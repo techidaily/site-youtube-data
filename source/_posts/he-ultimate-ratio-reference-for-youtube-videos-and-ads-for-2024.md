@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate Ratio Reference for YouTube Videos & Ads for 2024"
-date: 2024-06-17T08:44:16.449Z
-updated: 2024-06-18T08:44:16.449Z
+date: 2024-07-02T12:17:25.090Z
+updated: 2024-07-03T12:17:25.090Z
 tags:
   - ai video
   - ai youtube
@@ -108,7 +108,7 @@ You need to download and launch the software from the main window. There is a dr
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora >](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora >](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 

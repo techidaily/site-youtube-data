@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Thriving on YouTube  The Guide to Affiliates\""
-date: 2024-06-17T09:31:21.252Z
-updated: 2024-06-18T09:31:21.252Z
+date: 2024-07-02T12:17:27.899Z
+updated: 2024-07-03T12:17:27.899Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ In this article, we will explain how you can make money via YouTube affiliate ma
 * [**Part2: Steps to start your YouTube affiliate marketing project**](#part2)
 * [**Part2: 3 Tips before you begin**](#part3)
 
-Want to join the [Filmora affiliate program](https://tools.techidaily.com/wondershare/filmora/download/) but don’t have the media kit? Visit the [Filmora Marketing Kit](https://tools.techidaily.com/wondershare/filmora/download/)to download banners, logos and demo videos from Filmora.
+Want to join the [Filmora affiliate program](https://tools.techidaily.com/wondershare/filmora/download/) but don’t have the media kit? Visit the [Filmora Marketing Kit](https://tools.techidaily.com/wondershare/filmora/download/) to download banners, logos and demo videos from Filmora.
 
 ## Part 1: What is YouTube affiliate marketing?
 

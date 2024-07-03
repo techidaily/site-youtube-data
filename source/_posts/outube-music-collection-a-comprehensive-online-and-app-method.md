@@ -1,7 +1,7 @@
 ---
 title: "\"DIY YouTube Music Collection  A Comprehensive Online & App Method\""
-date: 2024-06-17T09:31:12.052Z
-updated: 2024-06-18T09:31:12.052Z
+date: 2024-07-02T12:17:24.117Z
+updated: 2024-07-03T12:17:24.117Z
 tags:
   - ai video
   - ai youtube
@@ -30,7 +30,7 @@ Are you one of those who want to listen to their favorite tracks while working o
 
 If you are using a Windows or Mac computer and want to create a YouTube music playlist on a web browser, follow the below steps:
 
-Step1 In the first step, turn on your PC, launch a web browser from the desktop or Dock, and head to the[YouTube](https://www.youtube.com/) website. Next, Sign into your account with your Google email ID if you are not already logged in.
+Step1 In the first step, turn on your PC, launch a web browser from the desktop or Dock, and head to the [YouTube](https://www.youtube.com/) website. Next, Sign into your account with your Google email ID if you are not already logged in.
 
 ![signing into youtube](https://images.wondershare.com/filmora/article-images/2023/03/signing-into-youtube.png)
 

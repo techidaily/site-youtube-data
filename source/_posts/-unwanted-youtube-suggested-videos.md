@@ -1,0 +1,122 @@
+---
+title: "Quash Unwanted YouTube Suggested Videos"
+date: 2024-07-02T12:28:52.972Z
+updated: 2024-07-03T12:28:52.972Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes Quash Unwanted YouTube Suggested Videos"
+excerpt: "This Article Describes Quash Unwanted YouTube Suggested Videos"
+keywords: "\"Stop Video Suggestions,Block AdSense Content,Halt YouTube Recommendations,Eliminate Auto Play Videos,Prevent Unsolicited Videos,Disable Suggest Videos Feature,Avoid Pop-Up YouTube Trailers\""
+thumbnail: https://thmb.techidaily.com/f190d8a7112798cba569b602f6c665fc16f642849f8a20bc7170c2547e3c8b5d.jpg
+---
+
+## Quash Unwanted YouTube Suggested Videos
+
+# YouTube Recommended Videos - Block the Videos I Don't Like
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube is forever recommending videos for you whether it's in your dashboard or next to the video you're already watching. In theory, these recommendations are based on your viewing habits and you're only directed to videos you're interested in.
+
+Except we all know that’s not always what happens.
+
+YouTube’s recommendations are based on more than just what you’ve watched and searched for, and sometimes even the data on that can get skewed over time. Not all your searches reflect your real tastes, and as your search history builds up the algorithm can start having trouble with all that data.
+
+Here’s what you can do about it:
+
+1. [**Manage Your Watch History**](#manage)
+2. [**Tell YouTube You Aren’t Interested**](#notinterested)
+3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
+
+## Manage Your Watch History
+
+![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
+
+Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
+
+You will be able to completely clear your watch history, remove specific videos from it, or pause your history while you look at videos you don’t want a record of you visiting. By taking control of your history, you can make sure nothing you looked up on a random whim is reflected in your recommendations.
+
+If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
+
+## Tell YouTube You Aren’t Interested
+
+![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
+
+Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
+
+What they do have is a system for you to flag recommendations you don’t like.
+
+Hover over the thumbnail of a video you don’t want to be recommended to you and a small icon that looks like three stacked dots will appear next to the title. Click on that, and then click **Not Interested**.
+
+When you tell YouTube you aren’t interested in certain videos they use that data to adjust what they recommend for you.
+
+## But Why Does It Recommend Stuff I Don’t Like?
+
+Your search/watch history is not the only thing that determines what YouTube recommends for you. Nobody outside of Google knows exactly how the algorithm works, but we do know one of the major factors influencing it is to watch **time**.
+
+Watch time refers to how a video effects the session time of a viewer. If a video has proven it can keep viewers on YouTube for longer it is more likely to get recommended, even if it isn't closely related to the interests of individual viewers. The ultimate goal of the algorithm is to keep you on the site longer. Part of that is recommending things, surely, you'll be interested in, and part of that is trying to get you interested in things that'll keep you around.
+
+  A video that is simply watched for longer, because it is engaging and can hold viewers’ attention for a long time, will have a high watch time. So will a video that is short, but which leads into a playlist which holds peoples’ attention. If a video is a frequent session starter – people see it outside of YouTube (i.e. in a Google search) and get to the site through it – then its watch time will be high because it is given credit for all of the time viewers are spending on YouTube watching other videos after they get there.
+
+The only way to stop certain types of videos from being recommended for you is to take advantage of the ‘not interested’ feature.
+
+ Are you usually happy with YouTube's recommended videos?
+
+## What video editing software did YouTube suggested videos are used?
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unlocking-youtube-writers-royalties-with-ad-driven-earnings-cpm/"><u>[Updated] In 2024, Unlocking YouTube' Writers' Royalties with Ad-Driven Earnings (CPM)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-elevating-youtube-performance-consistency-in-cc-usage/"><u>[Updated] In 2024, Elevating YouTube Performance  Consistency in CC Usage</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-elevate-your-youtube-presence-essential-tips-for-engaging-shorts/"><u>[New] 2024 Approved  Elevate Your Youtube Presence  Essential Tips for Engaging Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-crafting-journeys-a-comprehensive-guide-for-aspiring-travel-content-creators/"><u>[Updated] In 2024, Crafting Journeys  A Comprehensive Guide for Aspiring Travel Content Creators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-legal-steps-for-overcoming-a-youtube-copyright-strike-for-2024/"><u>[Updated] Legal Steps for Overcoming a YouTube Copyright Strike for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ely-save-your-favorite-videos-with-these-download-tools-for-2024/"><u>Securely Save Your Favorite Videos with These Download Tools for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtube-fixed-shorts-are-now-easily-accessible/"><u>[Updated] YouTube Fixed  Shorts Are Now Easily Accessible</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-digital-arcade-over-a-hundred-game-channels/"><u>[New] 2024 Approved  Digital Arcade  Over a Hundred Game Channels</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-tweets-unfolded-yearly-guide-to-social-reactions/"><u>2024 Approved  Tweets Unfolded  Yearly Guide to Social Reactions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-samsung-galaxy-s23-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Samsung Galaxy S23 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeos-gratis-editing-guide-enhance-videos-on-budget-for-2024/"><u>[Updated] Vimeo's Gratis Editing Guide  Enhance Videos on Budget for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/makeup-inspiration-videos/"><u>Makeup Inspiration Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-sharing-tweets-with-facebook-friends/"><u>2024 Approved  Sharing Tweets with Facebook Friends</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-best-video-brighten-apps-for-2024/"><u>Updated Best Video Brighten Apps for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-realme-v30-by-drfone-android/"><u>How to Bypass FRP on Realme V30?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-rise-to-fame-comprehensive-youtube-creators-series/"><u>[New] 2024 Approved  Rise to Fame  Comprehensive YouTube Creator's Series</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-audio-file-transformation-srt-to-xmlssattml/"><u>[Updated] Mastering Audio File Transformation  SRT to XML/SSA/TTML</u></a></li>
+</ul></div>
