@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Essentials of YouTube Mastery  Free Online Course Series\""
-date: 2024-06-17T09:13:00.955Z
-updated: 2024-06-18T09:13:00.955Z
+date: 2024-07-09T21:13:56.199Z
+updated: 2024-07-10T21:13:56.199Z
 tags:
   - ai video
   - ai youtube
@@ -45,7 +45,7 @@ While we encourage you to continue learning and exploring your interests and pas
 
 ## Creating YouTube Videos with Wondershare Filmora
 
-As one of the best video editing software for YouTubers, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)allows you to create videos with templates and effects easily.
+As one of the best video editing software for YouTubers, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to create videos with templates and effects easily.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 

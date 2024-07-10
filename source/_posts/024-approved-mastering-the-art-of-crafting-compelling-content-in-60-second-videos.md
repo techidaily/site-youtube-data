@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering the Art of Crafting Compelling Content in 60-Second Videos\""
-date: 2024-06-17T09:17:15.679Z
-updated: 2024-06-18T09:17:15.680Z
+date: 2024-07-09T21:13:51.124Z
+updated: 2024-07-10T21:13:51.124Z
 tags:
   - ai video
   - ai youtube
@@ -151,7 +151,7 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
