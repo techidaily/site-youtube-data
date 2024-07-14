@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Delete YouTube Comments Effortlessly?\""
-date: 2024-06-17T08:44:04.465Z
-updated: 2024-06-18T08:44:04.465Z
+date: 2024-07-13T02:00:35.000Z
+updated: 2024-07-14T02:00:35.000Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +63,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -112,7 +112,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +151,44 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/24-chart-a-course-for-success-top-5-effective-video-marketing-strategies-on-youtube/"><u>In 2024, Chart a Course for Success  Top 5 Effective Video Marketing Strategies on YouTube</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/learn-to-download-discord-videos-without-cost-on-all-devices-for-2024/"><u>Learn to Download Discord Videos Without Cost on All Devices for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-your-guide-to-stellar-igtv-talent/"><u>[New] Your Guide to Stellar IGTV Talent</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-identifying-causes-for-disappearing-youtube-shorts-thumbnails-for-2024/"><u>[Updated] Identifying Causes for Disappearing YouTube Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-from-isolated-viewers-to-shared-experiences-online/"><u>[Updated] In 2024, From Isolated Viewers to Shared Experiences Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-ultimate-shortcut-for-endless-youtube-video-repetition/"><u>[Updated] In 2024, The Ultimate Shortcut for Endless YouTube Video Repetition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/astery-in-motion-selecting-top-video-editors/"><u>[New] Mastery in Motion  Selecting Top Video Editors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-jake-pauls-youtube-success-story-all-you-need-to-know/"><u>In 2024, Jake Paul's YouTube Success Story - All You Need to Know</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-frameworks-for-compelling-youtube-content-layouts/"><u>[Updated] Frameworks for Compelling YouTube Content Layouts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-thumbnail-and-banner-strategies-for-online-success/"><u>[Updated] 2024 Approved  Thumbnail & Banner Strategies for Online Success</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-behind-the-numbers-carryminatis-youtube-wealth/"><u>[Updated] In 2024, Behind the Numbers  CarryMinati’s YouTube Wealth</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-amplifying-your-content-free-techniques-to-boost-youtube-views-for-2024/"><u>[Updated] Amplifying Your Content  Free Techniques to Boost YouTube Views for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-ultimate-user-handbook-youtube-conduct-codes/"><u>2024 Approved  Ultimate User Handbook  YouTube Conduct Codes</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-mastering-video-capture-on-hangouts-for-2024/"><u>[Updated] Mastering Video Capture on Hangouts for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-high-tech-vr-handhelds-our-top-10-list/"><u>[Updated] High-Tech VR Handhelds  Our Top 10 List</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-a-social-media-perspective-dissecting-igtv-versus-youtubes-features/"><u>[Updated] A Social Media Perspective  Dissecting IGTV versus YouTube's Features</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-font-powerhouses-for-captivating-youtube-thumbnails/"><u>[New] 2024 Approved  Font Powerhouses for Captivating YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-maximize-impact-aspect-ratio-expertise-for-youtube-experts/"><u>2024 Approved  Maximize Impact  Aspect Ratio Expertise for YouTube Experts</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-speedy-retrieval-for-elusive-snaps-for-2024/"><u>[Updated] Speedy Retrieval for Elusive Snaps for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-seven-best-youtube-live-streaming-tools-for-iphoneandroid-for-2024/"><u>Unveiling  The Seven Best YouTube Live Streaming Tools for iPhone/Android for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/unveiling-the-trailblazers-shaping-discords-visual-language-for-2024/"><u>Unveiling the Trailblazers Shaping Discord's Visual Language for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-learn-how-to-create-engaging-animation-from-any-video/"><u>In 2024, Learn How To Create Engaging Animation From Any Video</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-strategies-to-elevate-your-video-in-the-trending-topics/"><u>In 2024, Strategies to Elevate Your Video in the Trending Topics</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-dissecting-the-hidden-mechanics-behind-youtubes-popularity-index/"><u>[New] 2024 Approved  Dissecting the Hidden Mechanics Behind YouTube's Popularity Index</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-engagement-crafting-effective-youtube-shorts/"><u>In 2024, Elevate Engagement  Crafting Effective YouTube Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-mastering-the-monetized-space-a-buyers-primer/"><u>[Updated] In 2024, Mastering the Monetized Space  A Buyer's Primer</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-editing-excellence-sports-videos-that-stand-out/"><u>[New] 2024 Approved  Editing Excellence  Sports Videos That Stand Out</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-convenient-techniques-for-customizing-your-own-short-videos/"><u>[New] 2024 Approved  Convenient Techniques for Customizing Your Own Short Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-peak-viewing-valor-youtubes-daily-top-ten-highlights/"><u>In 2024, Peak Viewing Valor  YouTube's Daily Top Ten Highlights</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-elevate-your-aspects-a-beginner-cookbook-for-asmr-filmmaking/"><u>[New] 2024 Approved  Elevate Your Aspects  A Beginner' Cookbook for ASMR Filmmaking</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-integrated-story-spread-4-simple-steps-on-fb-for-2024/"><u>[Updated] Integrated Story Spread  4 Simple Steps on FB for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-ultimate-list-innovative-youtube-channel-titles-for-blogging-and-filming-no-more-than-156-characters/"><u>[Updated] 2024 Approved  The Ultimate List  Innovative Youtube Channel Titles For Blogging & Filming (No More than 156 Characters)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-uncover-the-best-12-flipscreen-vlogging-cameras-on-a-budget/"><u>[New] 2024 Approved  Uncover the Best 12 Flipscreen Vlogging Cameras on a Budget</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-leading-audio-alteration-applications-for-live-chatting/"><u>2024 Approved Leading Audio Alteration Applications for Live Chatting</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-ignite-imagination-crafting-engaging-content-for-channels/"><u>[Updated] In 2024, Ignite Imagination  Crafting Engaging Content for Channels</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/d-boundaries-recognizing-leading-women-in-digital-storytelling/"><u>Beyond Boundaries  Recognizing Leading Women in Digital Storytelling</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-elite-visionaries-video-realm/"><u>[New] 2024 Approved  Elite Visionaries  Video Realm</u></a></li>
+</ul></div>
