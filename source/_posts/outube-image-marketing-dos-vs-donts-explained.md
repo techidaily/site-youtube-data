@@ -1,7 +1,7 @@
 ---
 title: "\"[New] YouTube Image Marketing  Dos vs Don'ts Explained\""
-date: 2024-07-13T01:56:40.234Z
-updated: 2024-07-14T01:56:40.234Z
+date: 2024-07-29T14:13:43.434Z
+updated: 2024-07-30T14:13:43.434Z
 tags:
   - ai video
   - ai youtube
@@ -69,8 +69,14 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## Part 3: What Should I Write on My Banner?
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
 #### _Do: Include Your Channel Name_
@@ -91,6 +97,9 @@ Social media accounts are important to include in your channel art because we li
 
 Including social media icons in your channel art lets people know where they can find you. Another good reason to include your current social media in your banner is that sometimes you might join a new platform or quit an old one. You may be using Twitter for months and then decide that you like Facebook better. Your current social media handles keep subscribers from having to guess which one to follow you on.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ![YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
 _Make sure everything important fits in the safe area!_
@@ -125,12 +134,23 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -158,3 +178,42 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-free-vs-paid-youtubes-exclusive-picks-for-superior-opening-tutorials/"><u>[New] 2024 Approved  Free vs Paid  YouTube's Exclusive Picks for Superior Opening Tutorials</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-make-an-impression-with-youtube-clips-step-by-step-into-the-world-of-gif-making/"><u>[New] 2024 Approved  Make an Impression With YouTube Clips  Step-by-Step Into the World of Gif Making</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-secure-stock-images-avoiding-watermarks/"><u>[New] 2024 Approved  Secure Stock Images  Avoiding Watermarks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/limbing-the-youtube-search-rankings-key-seo-strategies-unveiled/"><u>[New] Climbing the YouTube Search Rankings  Key SEO Strategies Unveiled</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-cutting-edge-editors-elevating-online-videos/"><u>[New] In 2024, Cutting-Edge Editors Elevating Online Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-mastering-content-visibility-on-youtube-your-guide-to-effective-featured-channels/"><u>[New] In 2024, Mastering Content Visibility on YouTube  Your Guide to Effective Featured Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mics-on-mission-find-the-best-for-your-youtube-channels-vision-and-voice/"><u>[New] In 2024, Mics on Mission  Find the Best for Your YouTube Channel’s Vision & Voice</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-monetize-like-a-pro-how-to-use-youtube-studio-on-any-device/"><u>[New] In 2024, Monetize Like a Pro  How to Use Youtube Studio on Any Device</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/erfecting-your-youtube-videos-for-igtv-integration/"><u>[New] Perfecting Your Youtube Videos for IGTV Integration</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-compre-written-in-the-stars-harnessing-hidden-opportunities-for-insta-sponsorships/"><u>[New] The Compre Written in the Stars  Harnessing Hidden Opportunities for Insta-Sponsorships</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-9-essential-apps-for-pulling-youtube-videos-android/"><u>[Updated] 2024 Approved  9 Essential Apps for Pulling YouTube Videos (Android)</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-clean-slate-creations-guide-to-the-psx-eraser-tool/"><u>[Updated] Clean Slate Creations  Guide to the PSX Eraser Tool</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-crafting-a-successful-mukbang-video-journey/"><u>[Updated] In 2024, Crafting a Successful Mukbang Video Journey</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-cutting-through-the-noise-optimal-thumbnail-sizes/"><u>[Updated] In 2024, Cutting Through the Noise  Optimal Thumbnail Sizes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-dominating-the-index-youtube-seo-tools-that-work/"><u>[Updated] In 2024, Dominating the Index  YouTube SEO Tools That Work</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-navigating-youtube-strikes-understanding-and-resolving-copyright-issues/"><u>[Updated] In 2024, Navigating YouTube Strikes  Understanding and Resolving Copyright Issues</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-restoring-visibility-in-your-youtube-screens/"><u>[Updated] In 2024, Restoring Visibility in Your YouTube Screens</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-zero-cost-downloads-for-high-quality-audios-discover-this-list-of-23-tools-for-2024/"><u>[Updated] Zero Cost Downloads for High-Quality Audios  Discover This List of 23 Tools for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-examining-the-income-stream-for-t-series-youtube-channel/"><u>2024 Approved  Examining the Income Stream for T-Series YouTube Channel</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-faces-of-technology-analyzing-face-detection-in-phones/"><u>2024 Approved  Faces of Technology  Analyzing Face Detection in Phones</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-how-to-build-youtube-backlinks-for-your-channel/"><u>2024 Approved  How to Build YouTube Backlinks for Your Channel</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/enhancing-your-playtime-non-gamebar-video-recording-options/"><u>Enhancing Your Playtime  Non-GameBar Video Recording Options</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/fine-tune-video-quality-for-instagram-excellence/"><u>Fine-Tune Video Quality for Instagram Excellence</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-oppo-a1-5g-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Oppo A1 5G to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/o-edit-your-video-with-youtube-studio-editor-for-2024/"><u>How to Edit Your Video with YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-decoding-youtubes-algorithm-behind-prominent-comments/"><u>In 2024, Decoding YouTube's Algorithm Behind Prominent Comments</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-elevate-your-youtube-content-editing-in-adobe-premiere/"><u>In 2024, Elevate Your YouTube Content  Editing in Adobe Premiere</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-tecno-camon-20-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Tecno Camon 20 Devices</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-innovative-techniques-for-enhancing-youtube-audio/"><u>In 2024, Innovative Techniques for Enhancing YouTube Audio</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-ultimate-guide-to-professional-quality-audio-without-a-microphone/"><u>In 2024, The Ultimate Guide to Professional-Quality Audio without a Microphone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-infinix-smart-7-hd-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Infinix Smart 7 HD? Fixed | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/pro-youtuber-essentials-studio-choice-over-beta-alternative/"><u>Pro YouTuber Essentials  Studio Choice Over Beta Alternative</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ost-crucial-info-for-new-youtube-tv-users/"><u>The Most Crucial Info for New YouTube TV Users</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-itel-a05s-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Itel A05s Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/standing-and-mastering-video-content-on-yt-shorts-for-2024/"><u>Understanding and Mastering Video Content on YT Shorts for 2024</u></a></li>
+</ul></div>

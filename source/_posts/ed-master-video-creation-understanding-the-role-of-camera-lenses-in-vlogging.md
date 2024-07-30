@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Master Video Creation  Understanding the Role of Camera Lenses in Vlogging\""
-date: 2024-07-13T01:58:54.100Z
-updated: 2024-07-14T01:58:54.100Z
+date: 2024-07-29T14:15:24.256Z
+updated: 2024-07-30T14:15:24.256Z
 tags:
   - ai video
   - ai youtube
@@ -86,6 +86,9 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -103,10 +106,16 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
 ### Aperture
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
@@ -115,6 +124,9 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -129,6 +141,9 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -141,6 +156,9 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -168,3 +186,40 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-amplify-your-online-influence-with-these-best-5-youtube-marketing-techniques/"><u>[New] 2024 Approved  Amplify Your Online Influence with These Best 5 YouTube Marketing Techniques</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-choosing-creativitys-canvas-youtube-vs-tiktok/"><u>[New] 2024 Approved  Choosing Creativity's Canvas  Youtube Vs. TikTok</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-discover-the-prime-lineup-of-affordable-cutting-tools/"><u>[New] 2024 Approved  Discover the Prime Lineup of Affordable Cutting Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-elevate-your-youtube-presence-essential-tips-for-engaging-shorts/"><u>[New] 2024 Approved  Elevate Your Youtube Presence  Essential Tips for Engaging Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-from-newcomer-to-pro-a-step-by-step-creator-hub-guidebook/"><u>[New] 2024 Approved  From Newcomer to Pro  A Step-by-Step Creator Hub Guidebook</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-how-to-mix-text-and-video-on-a-shoestring-budget/"><u>[New] 2024 Approved  How to Mix Text & Video on a Shoestring Budget</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-master-iphones-natural-features-with-these-photo-hacks/"><u>[New] 2024 Approved  Master iPhone's Natural Features with These Photo Hacks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-mobile-sound-shakers-the-ultimate-playlist/"><u>[New] 2024 Approved  Mobile Sound Shakers  The Ultimate Playlist</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-no-cost-digital-revenue-prognosticator/"><u>[New] 2024 Approved  No-Cost Digital Revenue Prognosticator</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-pocket-friendly-pro-mics-for-youtube-enthusiasts/"><u>[New] 2024 Approved  Pocket-Friendly Pro Mics for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-premier-cutting-suites-on-linux-systems/"><u>[New] 2024 Approved  Premier Cutting Suites on Linux Systems</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-pro-level-gif-generation-a-critical-review/"><u>[New] 2024 Approved  Pro-Level GIF Generation  A Critical Review</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-starters-kit-establishing-yourself-on-youtube-profitably/"><u>[New] 2024 Approved  Starter's Kit  Establishing Yourself on YouTube Profitably</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-taming-darkness-for-a-bright-youtube-experience/"><u>[New] 2024 Approved  Taming Darkness for a Bright YouTube Experience</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-no-tripod-path-to-flawless-images/"><u>[New] 2024 Approved  The No-Tripod Path to Flawless Images</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-ultimate-guide-locating-the-heart-of-youtube-video-management/"><u>[New] 2024 Approved  The Ultimate Guide  Locating the Heart of YouTube Video Management</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-unleash-the-power-of-your-youtube-channel-with-expert-editing-techniques/"><u>[New] 2024 Approved  Unleash the Power of Your YouTube Channel with Expert Editing Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-engaging-audiences-perfecting-the-art-of-igtv-titles-and-summaries-for-2024/"><u>[New] Engaging Audiences  Perfecting the Art of IGTV Titles & Summaries for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-premier-hd-picks-for-impeccable-video-recorders/"><u>[New] Premier HD Picks for Impeccable Video Recorders</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unlock-the-power-of-pause-with-instagrams-slow-motion/"><u>[New] Unlock the Power of Pause with Instagram's Slow Motion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-joining-images-harmoniously-on-your-pc/"><u>[Updated] Joining Images Harmoniously on Your PC</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-memes-unite-reddit-and-twitters-top-twenty/"><u>[Updated] Memes Unite  Reddit & Twitter's Top Twenty</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-guide-to-perfectly-fit-your-content-in-instagram-feed/"><u>2024 Approved  Guide to Perfectly Fit Your Content in Instagram Feed</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/audio-alternatives-weighing-the-pros-of-podcasts-and-youtube-for-2024/"><u>Audio Alternatives  Weighing the Pros of Podcasts and YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-your-content-youtube-shorts-are-shown-again/"><u>Enjoy Your Content – YouTube Shorts Are Shown Again</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-level-expenditure-cost-effective-platforms-for-youtube-purchases/"><u>Entry-Level Expenditure  Cost-Effective Platforms for YouTube Purchases</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-against-the-tide-of-tradition-innovative-techniques-for-yt-rewinds/"><u>Going Against the Tide of Tradition  Innovative Techniques for YT Rewinds</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-to-top-templates-for-youtube-previews/"><u>Guide to Top Templates for YouTube Previews</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-reinstating-old-school-windows-photo-viewer-on-modern-win10/"><u>In 2024, Reinstating Old-School Windows Photo Viewer on Modern Win10</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-the-photographers-guide-to-pc-gaming-scenes/"><u>In 2024, The Photographer’s Guide to PC Gaming Scenes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/memes-unite-reddit-and-twitters-top-twenty-for-2024/"><u>Memes Unite  Reddit & Twitter's Top Twenty for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-vid-overview-top-tips-and-facts-now-in-2024/"><u>Quick Vid Overview  Top Tips & Facts Now, In 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/tips-to-activate-gpu-for-laptops-running-win1011/"><u>Tips to Activate GPU for Laptops Running Win10/11</u></a></li>
+</ul></div>

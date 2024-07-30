@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Ultimate Palette of Creative Ideas From 6 Graphic Websites"
-date: 2024-07-13T02:02:10.420Z
-updated: 2024-07-14T02:02:10.420Z
+date: 2024-07-29T14:17:56.600Z
+updated: 2024-07-30T14:17:56.600Z
 tags:
   - ai video
   - ai youtube
@@ -60,6 +60,10 @@ I clicked on the brown bird to open up the download screen, and then clicked int
 
 You can edit the colors in your icon just by clicking on the color you want to replace, and then clicking on the color in the color selector you want to replace it with. I made my birdie FLY.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![Edit Logo Icon on Flaticon](https://images.wondershare.com/filmora/article-images/edit-icons-logos-on-flaticon.jpg)
 
 _I never apologize for puns._
@@ -74,6 +78,9 @@ Flaticon has a great selection, it’s free, and they make it really easy to edi
 
 Flaticon asks that you include an “Icon made by \[author link\] from <www.flaticon.com> ” somewhere (i.e. video description, channel ‘about’ section) when you use their icons for free.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 2\. Freepik.com
 
 **Key Points:**
@@ -84,6 +91,9 @@ Flaticon asks that you include an “Icon made by \[author link\] from <www.flat
 
 On freepik, you start off by searching for a theme (like the genre of your YouTube title or the topic of a video, i.e. ‘makeup’ or ‘music’). I searched for ‘cat’.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ![download Logo Icon on Freepik](https://images.wondershare.com/filmora/article-images/icons-logos-on-freepik.jpg)
 
 _A few of the sets available on freepik. The crown icon means you need to be a paying Premium member, but most things are free._
@@ -105,10 +115,16 @@ In the ‘search’ on Seeklogo.net, you can type in the name of a brand or indu
 
 I searched for YouTube – you never know when you might need the YouTube logo.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![YouTube Logo Icon on Seeklogo](https://images.wondershare.com/filmora/article-images/youtube-icons-logos-on-seeklogo.jpg)
 
 Although the site does not advertise PNG in the list of formats on their front page, downloads do include PNG versions (which is useful if you need transparency and don’t have a program which can edit vector files, like .eps).
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. IconArchive.com
 
 **Key Points:**
@@ -134,6 +150,9 @@ Downloads are available in different sizes and formats including PNG. PNG is alw
 
 Note that all of your different download buttons will be located underneath your image. They favor those ads that look like ‘download’ or ‘start now’ buttons, and the ads sit right next to the images on the right, so it’s easy to get confused and click on the ad.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## 5\. Logaster.com
 
 **Key Points:**
@@ -150,10 +169,16 @@ When you arrive on Logaster there’s a button right on their home page that say
 
 In Step 1 it’ll ask for your company name and an activity type. You just need to put in your channel name and choose something from the activity drop down that you focus on in your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![YouTube Logo Icon on Logaster Start Window](https://images.wondershare.com/filmora/article-images/branding-icons-logos-on-logaster.jpg)
 
 My heart burns with the secret desire to be YouTube’s Neil Degrasse Tyson (it doesn’t really, but he is super cool) so I tried ‘Katie Does Science’ and ‘Science, Studies, Education’. Here’s what it came up with:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube Logo Icon on Logaster](https://images.wondershare.com/filmora/article-images/branding-icons-logos-suggestions-on-logaster.jpg)
 
 _There are 10 pages of suggestions!_
@@ -178,6 +203,9 @@ You will also need to link to Icons8 if you use their icons for free (i.e. in th
 
 To get started on Icons8, type something into the search bar on the home page that you think might work as an icon or as part of whatever graphics you have planned. I typed in ‘game’ for this one, since gaming is the biggest genre on YouTube. Here are a few of the results that came up:
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/gaming-icons-logos-on-icons8.jpg)
 
 _Lower down in the results there were different kinds of sports balls, hand-held gaming systems, playing cards, joy sticks, baseball caps and more._
@@ -188,6 +216,9 @@ After you find an icon you like, click on it and it will appear on the right sid
 
 You can give your icon a pretty different look from its default. Check this out:
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Change Gaming Logo Icon background on Icons8](https://images.wondershare.com/filmora/article-images/change-gaming-icons-logos-background-on-icons8.jpg)
 
 You cannot download your icon from the editing screen. You need to click Save, and then download it from the main display screen here:
@@ -198,6 +229,9 @@ You can change the size with that drop down menu, but you’ll be limited in you
 
 I downloaded my image and tried to see how it would look as an icon/profile picture. As you can see, it was pretty blurry in the preview:
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![Add Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/add-gaming-icons-logos-made-with-icons8.jpg)
 
 However, the preview is larger than the actual profile picture. Once I set it, it looked alright.
@@ -208,6 +242,9 @@ Looking for somewhere you can build your own icon/logo from scratch? Check out t
 
 After downloading the icons or logos, it is time to add them to your YouTube video. Here I recommend our [Wondershare Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/). Below is a video tutorial about [how to add a logo to video in Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Remember to download the free trial version to test.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -237,3 +274,63 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/0-strategies-to-make-money-on-youtube-shorts-easily/"><u>[New] 10 Strategies to Make Money on YouTube Shorts Easily</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-247-real-time-follower-analysis/"><u>[New] 2024 Approved  24/7 Real-Time Follower Analysis</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-7-comedy-youtube-video-ideas-that-funny-people-can-try/"><u>[New] 2024 Approved  7 Comedy YouTube Video Ideas That Funny People Can Try</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-budget-friendly-vlogging-cameras-unveiled-our-picks/"><u>[New] 2024 Approved  Budget-Friendly Vlogging Cameras Unveiled  Our Picks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-building-captivating-online-media-summaries/"><u>[New] 2024 Approved  Building Captivating Online Media Summaries</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-content-distribution-showdown-vimeo-vs-youtubes-and-dailymotions/"><u>[New] 2024 Approved  Content Distribution Showdown  Vimeo vs YouTubes and DailyMotions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-cutting-edge-editors-elevating-online-videos/"><u>[New] 2024 Approved  Cutting-Edge Editors Elevating Online Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-dancefloor-directives-expert-dj-video-downloads/"><u>[New] 2024 Approved  Dancefloor Directives  Expert DJ Video Downloads</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-dialing-in-the-perfect-aspect-ratio-for-youtube-images/"><u>[New] 2024 Approved  Dialing in the Perfect Aspect Ratio for YouTube Images</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-elevate-your-vlogging-game-with-tripod-mastery/"><u>[New] 2024 Approved  Elevate Your Vlogging Game with Tripod Mastery</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-explore-best-asmr-apps-both-sides-of-the-os/"><u>[New] 2024 Approved  Explore Best ASMR Apps, Both Sides of the OS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-explore-popular-youtube-comment-sections/"><u>[New] 2024 Approved  Explore Popular YouTube Comment Sections</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-from-idea-to-execution-a-comprehensive-youtube-video-guide/"><u>[New] 2024 Approved  From Idea to Execution  A Comprehensive YouTube Video Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-from-raw-to-masterpiece-the-premier-free-mobile-editors-for-android/"><u>[New] 2024 Approved  From Raw to Masterpiece  The Premier Free Mobile Editors for Android</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-going-bold-on-instagram-techniques-to-trend-worldwide/"><u>[New] 2024 Approved  Going Bold on Instagram  Techniques to Trend Worldwide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-innovative-copywriting-routines-adopting-three-key-approaches-to-fb-advertising/"><u>[New] 2024 Approved  Innovative Copywriting Routines  Adopting Three Key Approaches to FB Advertising</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-maximize-visibility-with-well-structured-yt-summaries/"><u>[New] 2024 Approved  Maximize Visibility with Well-Structured YT Summaries</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-personal-narratives-for-online-connection-and-growth/"><u>[New] 2024 Approved  Personal Narratives for Online Connection and Growth</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-pioneers-designing-the-online-avengers-landscape/"><u>[New] 2024 Approved  Pioneers Designing the Online Avengers Landscape</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-pro-tips-top-11-inexpensive-youtube-naming-tools/"><u>[New] 2024 Approved  Pro Tips  Top 11 Inexpensive YouTube Naming Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-seamless-techniques-for-swift-removal-of-your-youtube-comments/"><u>[New] 2024 Approved  Seamless Techniques for Swift Removal of Your Youtube Comments</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-secure-steps-for-skyrocketing-video-engagement-a-million-wins-strategy/"><u>[New] 2024 Approved  Secure Steps for Skyrocketing Video Engagement  A Million Wins Strategy</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-step-by-step-strategy-for-unearthing-secret-youtube-videos/"><u>[New] 2024 Approved  Step-by-Step Strategy for Unearthing Secret YouTube Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-streamers-checklist-secure-video-ad-revenue/"><u>[New] 2024 Approved  Streamer's Checklist  Secure Video Ad Revenue</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-tailoring-trailers-to-amplify-your-youtube-channels-earnings/"><u>[New] 2024 Approved  Tailoring Trailers to Amplify Your YouTube Channel's Earnings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-dynamics-of-youtubes-creator-payments/"><u>[New] 2024 Approved  The Dynamics of YouTube's Creator Payments</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-social-media-symphony-composing-jake-pauls-youtube-success/"><u>[New] 2024 Approved  The Social Media Symphony  Composing Jake Paul's YouTube Success</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-truth-behind-the-illusion-buying-non-existent-youtube-backers/"><u>[New] 2024 Approved  Truth Behind the Illusion  Buying Non-Existent YouTube Backers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-unison-video-visionaries-finding-your-cms/"><u>[New] 2024 Approved  Unison Video Visionaries  Finding Your CMS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-youtube-shorts-decoding-the-income-distribution-model/"><u>[New] 2024 Approved  YouTube Shorts  Decoding the Income Distribution Model</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-symphony-in-silence-mastering-audio-with-precision/"><u>[New] A Symphony in Silence  Mastering Audio with Precision</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-hidden-perspectives-what-youre-ignoring-as-a-stories-viewer/"><u>[New] Hidden Perspectives  What You're Ignoring as a Stories Viewer</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-12-simple-tricks-to-make-your-youtube-videos-go-viral/"><u>[Updated] In 2024, 12 Simple Tricks to Make Your YouTube Videos Go Viral</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-still-photos-to-dynamic-video-how-to-use-your-cellular-device/"><u>[Updated] In 2024, From Still Photos to Dynamic Video  How To Use Your Cellular Device</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-top-strategies-for-scaling-your-instagram-tv-content/"><u>[Updated] In 2024, Top Strategies for Scaling Your Instagram TV Content</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-strategies-for-effortlessly-sharing-youtube-videos-on-fb/"><u>[Updated] Strategies for Effortlessly Sharing YouTube Videos on FB</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-xiaomi-civi-3-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-discovering-yis-high-res-filming-experience/"><u>2024 Approved  Discovering Yi's High-Res Filming Experience</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-youtube-earnings-insight-2023/"><u>Ajey's YouTube Earnings Insight - 2023</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-on-apple-iphone-12-pro-max-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled On Apple iPhone 12 Pro Max? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://network-issues.techidaily.com/eradicate-lagging-vids-instantly/"><u>Eradicate Lagging Vids Instantly!</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/hide-location-on-apple-iphone-14-pro-and-android-without-others-knowing-drfone-by-drfone-virtual-ios/"><u>Hide location on Apple iPhone 14 Pro and Android without others knowing | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-breaking-down-lg-27ud88-uhd-tv-with-usb-type-c/"><u>In 2024, Breaking Down LG 27UD88-UHD TV with USB Type-C</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-choreographing-compelling-cinematic-hooks/"><u>In 2024, Choreographing Compelling Cinematic Hooks</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-vivo-y56-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Vivo Y56 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-poco-x5-pro-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-maximize-your-visuals-on-zoom-the-definitive-guide/"><u>In 2024, Maximize Your Visuals on Zoom – The Definitive Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-xiaomi-redmi-note-12-pro-5g-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Xiaomi Redmi Note 12 Pro 5G Phone Network-Ready</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-unwanted-youtube-suggested-videos-for-2024/"><u>Quash Unwanted YouTube Suggested Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-alteration-youtube-vids-fit-mac-displays-for-2024/"><u>Quick Alteration  YouTube Vids Fit Mac Displays for 2024</u></a></li>
+<li><a href="https://techidaily.com/solved-microsoft-excel-file-error-the-document-cannot-be-saved-by-stellar-guide/"><u>Solved Microsoft Excel File Error The document cannot be saved</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/0-histology-streams-for-academics/"><u>Top 10 Histology Streams for Academics</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/tune-sharing-compliance-instagram-ip-codex-for-2024/"><u>Tune-Sharing Compliance  Instagram IP Codex for 2024</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-some-outdated-drivers-on-windows-11107-by-drivereasy-guide/"><u>Use Device Manager to identify some outdated drivers on Windows 11/10/7</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-audio-waves-top-10-bgm-for-youtube-short-videos-for-2024/"><u>Viral Audio Waves  Top 10 BGM for YouTube Short Videos for 2024</u></a></li>
+</ul></div>

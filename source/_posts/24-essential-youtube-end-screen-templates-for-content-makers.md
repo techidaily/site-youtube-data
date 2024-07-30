@@ -1,0 +1,217 @@
+---
+title: "In 2024, Essential YouTube End Screen Templates for Content Makers"
+date: 2024-07-29T14:23:12.584Z
+updated: 2024-07-30T14:23:12.584Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes In 2024, Essential YouTube End Screen Templates for Content Makers"
+excerpt: "This Article Describes In 2024, Essential YouTube End Screen Templates for Content Makers"
+keywords: "Video SEO Plugins,YT Screenshot Tips,Engaging End Screens,Creator Video Ads,Effective YT Teasers,YouTube Content Boost,Audience Retention Strategies"
+thumbnail: https://thmb.techidaily.com/fea69578f265b77158961ce9649233eee0ace50ab1ad8d0ca655a5decd1786bf.jpg
+---
+
+## Essential YouTube End Screen Templates for Content Makers
+
+# Free YouTube End Screen Templates
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube end screens are a great way to get your viewers who have watched your YouTube video until the end to subscribe to your channel, visit your website, or watch more of your videos. End screens work on all devices, including mobile phones and tablets. This was not the case for annotations (YouTube’s former way of doing these things). As more YouTubers have jumped onto using end screens, the need for well-designed end screen templates have rapidly grown. In this post, I will
+
+1. [List some places you can download free end screen templates](#freeendscreentemplates)
+2. [Give you a step-by-step tutorial on how to build your own outro for free](#diyoutro)
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 1: Free End Screen Templates Download
+
+[Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle?spm=rs.filmora%5Fweb)
+
+(The images displayed below are for preview purposes only. For the highest quality and ideal dimensions to add into your own video, click the image and follow the links that we provide)
+
+#### 1. The Sales Lion
+
+In exchange for your name and e-mail address, the Sales Lion will let you download their YouTube templates pack, which includes a PhotoShop PSD file of their designed YouTube end screen.
+
+[sales-lion-outro-end-screen](https://images.wondershare.com/filmora/article-images/sales-lion-outro-end-screen.jpg) ](https://www.thesaleslion.com/download-youtube-templates-pack/ "The Sales Lion YouTube Templates Pack")
+
+#### 2. Grabster
+
+Grabster offers five free YouTube end screen templates. With each download, you’ll get a PhotoShop PSD file and a font file so that you can change the text.
+
+[grabster-outro](https://images.wondershare.com/filmora/article-images/grabster-outro.jpg) ](https://mega.nz/#!l5VVwR7J!w9hv%5FBgVIN2SsEdlf5IZViISJvXgmkDbErhG4A3gGYQ "Grabster Channel Art Template")
+
+[grabster-your-channel-name-outro](https://images.wondershare.com/filmora/article-images/grabster-your-channel-name-outro.jpg) ](https://mega.nz/#!RoMXlTbR!ALzroPD6CNRVuDABR7Uv3WAPajr0WJ1BT9ZVDwF4m0Y "Grabster Channel Art Template")
+
+[grabster-youtube-end-screen](https://images.wondershare.com/filmora/article-images/grabster-youtube-end-screen.jpg) ](https://mega.nz/#!B8sAhL6Q!iIaTl4uGojXONee6k%5FdTLWdSVrGOiRWPQu4BjU2zJ5o "Grabster Channel Art Template")
+
+[grabster-youtube-end-screen-2](https://images.wondershare.com/filmora/article-images/grabster-youtube-end-screen-2.jpg) ](https://mega.nz/#!RokxlYTK!vuKGcwG-ymNdR9tBfSp8xjhynNIkn%5F4PC9ob%5Fq2TvWc "Grabster Channel Art Template")
+
+[grabster-youtube-end-screen-3](https://images.wondershare.com/filmora/article-images/grabster-youtube-end-screen-3.jpg) ](https://mega.nz/#!otc2wRaK!pk%5F7smhaRSuymYkKpf6DVPh2yt40Vlhz8xd8wRuu9Oo "Grabster Channel Art Template")
+
+#### 3. Taha Chimar
+
+Those who do not have PhotoShop can use Taha Chimar’s end screen designs that come in png file format.
+
+![taha-chimar-youtube-end-screen](https://images.wondershare.com/filmora/article-images/taha-chimar-youtube-end-screen.jpg)
+
+To download, you will have to follow a URL link in the description box of the YouTube videos. Be careful, though, as a lot of the links lead to free hosting websites with pop-ups that can harm your computer if you are easily fooled by them.
+
+#### 4. SoapyEdits
+
+SoapyEdits is a YouTuber with a [channel](https://www.youtube.com/playlist?list=PLZ-0Oq4zZj8hJkW1aXFzLr-x6WsjuGsW1) offering a whole playlist of PhotoShop PSD file end screen designs.
+
+Here are some of our favorite ones.
+
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![SoapyEdits-youtube-end-screen-template-1](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-1.jpg)
+
+Here’s one for the Minecraft fans:
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
+![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
+![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
+![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
+
+Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
+
+## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
+
+1\. First, you have to sign up with an e-mail address
+
+![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+
+2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+
+3\. After clicking “Design!,” a new browser will open with a blank canvas.
+
+4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
+
+![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
+
+5\. Upload the image onto your Canva project.
+
+![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+
+6\. Stretch your image to the ends of your canvas.
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
+![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+
+7\. Insert your own shapes, lines, colours, images, and text over the image.
+
+![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
+
+8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
+![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
+
+If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-dissecting-digital-dynamics-comparative-channel-analysis/"><u>[New] 2024 Approved  Dissecting Digital Dynamics  Comparative Channel Analysis</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-essential-manual-for-youtube-to-gif-conversion-online/"><u>[New] 2024 Approved  The Essential Manual for YouTube-to-GIF Conversion Online</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-crafting-customized-clips-on-iphone-3-free-music-integration-techniques/"><u>[New] Crafting Customized Clips on iPhone – 3 Free Music Integration Techniques</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/esign-your-closure-the-best-free-youtube-tutorials/"><u>[New] Design Your Closure  The Best Free YouTube Tutorials</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-boost-your-mobile-film-game-best-9-camera-add-ons-for-vloggers/"><u>[New] In 2024, Boost Your Mobile Film Game  Best 9 Camera Add-Ons For Vloggers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-equipment-for-beginners-ultimate-guide-for-2024/"><u>[New] YouTube Equipment for Beginners [Ultimate Guide] for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-fb-streams-save-as-mp3-beat-for-easy-playback/"><u>[Updated] 2024 Approved  FB Streams  Save as MP3 Beat for Easy Playback</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-stream-and-record-gamers-ultimate-guide/"><u>[Updated] 2024 Approved  Stream and Record  Gamers' Ultimate Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unlocking-monetization-potential-the-modern-creators-manual-for-mobile/"><u>[Updated] 2024 Approved  Unlocking Monetization Potential  The Modern Creator’s Manual for Mobile</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-comprehensive-guide-to-live-streaming-with-obs-and-platforms/"><u>[Updated] In 2024, Comprehensive Guide to Live-Streaming with OBS and Platforms</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-efficient-guide-image-conversion-to-professional-youtube-thumbnails/"><u>[Updated] In 2024, Efficient Guide  Image Conversion to Professional YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-mastering-custom-youtube-shorts-image-credits-with-ease/"><u>[Updated] In 2024, Mastering Custom YouTube Shorts Image Credits with Ease</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-pinnacle-of-asmr-sound-quality-in-recorded-microphones/"><u>[Updated] In 2024, Pinnacle of ASMR Sound Quality in Recorded Microphones</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-ultimate-guide-to-finding-the-most-impactful-keywords-for-your-videos/"><u>[Updated] In 2024, The Ultimate Guide to Finding the Most Impactful Keywords for Your Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unleashing-potential-crafting-a-youtube-channel-brand-for-success/"><u>[Updated] In 2024, Unleashing Potential  Crafting a YouTube Channel Brand for Success</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mastering-idevice-screen-recording-techniques-for-youtube/"><u>[Updated] Mastering iDevice Screen Recording Techniques for YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-navigating-the-world-of-streamed-games/"><u>[Updated] Navigating the World of Streamed Games</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-optimal-size-strategy-for-click-driven-titles/"><u>[Updated] Optimal Size Strategy for Click-Driven Titles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-pro-thumbnails-made-simple-macos-style/"><u>[Updated] Pro Thumbnails Made Simple  MacOS Style</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-strategies-for-finding-and-forming-youtube-content-partnerships/"><u>[Updated] Strategies for Finding & Forming YouTube Content Partnerships</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-striking-a-chord-with-effective-youtube-imagery-sizes/"><u>[Updated] Striking a Chord with Effective YouTube Imagery Sizes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-dive-deep-into-the-past-with-these-top-10-student-friendly-yt-channels/"><u>2024 Approved  Dive Deep Into the Past with These Top 10 Student-Friendly YT Channels</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-poco-x5-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/bridging-worlds-unveiling-the-best-6-in-nft-art-for-2024/"><u>Bridging Worlds  Unveiling the Best 6 in NFT Art for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-your-thriving-youtube-space-for-gamers-for-2024/"><u>Building Your Thriving YouTube Space for Gamers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/vating-an-audience-naturally-youtubes-way-for-2024/"><u>Cultivating an Audience Naturally - YouTube's Way for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-frequencies-role-music-synopsis-for-2024/"><u>Flashing Frequencies  Role-Music Synopsis for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-iphone-13-in-lost-mode-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock iPhone 13 in Lost Mode</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-cutting-edge-techniques-to-upgrade-channel-descriptions/"><u>In 2024, Cutting-Edge Techniques to Upgrade Channel Descriptions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-structured-approach-to-managing-youtube-videos-a-complete-watch-later-system/"><u>In 2024, Structured Approach to Managing YouTube Videos  A Complete Watch Later System</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-ranked-mobile-melody-design-experts/"><u>In 2024, Top-Ranked  Mobile Melody Design Experts</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-imovie-free-alternatives-top-5-online-video-editors/"><u>New 2024 Approved IMovie Free Alternatives Top 5 Online Video Editors</u></a></li>
+<li><a href="https://win11.techidaily.com/switching-notepad-to-dark-mode-on-windows-11plus/"><u>Switching Notepad to Dark Mode on Windows 11+</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/reat-video-platform-debate-vimeo-and-youtube/"><u>The Great Video Platform Debate  Vimeo & YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/form-your-online-presence-sharing-youtube-videos-on-fb-today-for-2024/"><u>Transform Your Online Presence  Sharing YouTube Videos on FB Today for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/uncover-the-secret-to-extra-instagram-filters-for-zero-cost/"><u>Uncover the Secret to Extra Instagram Filters for Zero Cost</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/al-makeup-mavens-top-youtube-creators/"><u>Virtual Makeup Mavens  Top YouTube Creators</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Nokia 150 (2023) | Dr.fone</u></a></li>
+</ul></div>
