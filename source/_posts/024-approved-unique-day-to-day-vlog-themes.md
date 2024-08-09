@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unique Day-to-Day Vlog Themes\""
-date: 2024-07-13T03:40:52.137Z
-updated: 2024-07-14T03:40:52.137Z
+date: 2024-08-08T13:43:42.358Z
+updated: 2024-08-09T13:43:42.358Z
 tags:
   - ai video
   - ai youtube
@@ -45,12 +45,18 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
@@ -67,6 +73,9 @@ It does not matter what it is that is making you have this strong reaction (unle
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -83,10 +92,16 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 
 Sea monkeys can survive in space.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -95,6 +110,9 @@ You could also just flick the camera on and tell the full story of your day like
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -120,3 +138,47 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-building-a-business-from-blogs-and-video-reviews/"><u>[New] 2024 Approved  Building a Business From Blogs and Video Reviews</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-social-media-integration-for-amplified-youtube-shorts-reach/"><u>[New] 2024 Approved  Social Media Integration for Amplified YouTube Shorts Reach</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/udiovisual-alchemy-formulating-your-youtube-playlist-for-2024/"><u>[New] Audiovisual Alchemy  Formulating Your YouTube Playlist for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-achieving-a-noiseless-presence-on-social-video-platforms/"><u>[New] In 2024, Achieving a Noiseless Presence on Social Video Platforms</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-asmr-gurus-recommend-best-microphones-reviewed/"><u>[New] In 2024, ASMR Gurus Recommend  Best Microphones Reviewed</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-budget-friendly-edits-made-easy-with-vimeos-free-tools/"><u>[New] In 2024, Budget-Friendly Edits Made Easy with Vimeo's Free Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-deleted-and-found-again-streaming-yts-forgotten-videos/"><u>[New] In 2024, Deleted and Found Again  Streaming YT’s Forgotten Videos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-unleashing-productivity-comprehensive-guide-to-recording-skype-conversations/"><u>[New] In 2024, Unleashing Productivity  Comprehensive Guide to Recording Skype Conversations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ourney-through-the-stars-with-these-innovative-science-youtubers-for-2024/"><u>[New] Journey Through the Stars with These Innovative Science YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ptimizing-your-youtube-stream-with-wirecast-for-2024/"><u>[New] Optimizing Your YouTube Stream with WireCast for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-perfecting-video-segmentation-for-enhanced-viewing-experience-on-youtube/"><u>[New] Perfecting Video Segmentation for Enhanced Viewing Experience on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-art-of-conveying-excitement-perfecting-your-valorant-video-thumbnails-for-2024/"><u>[New] The Art of Conveying Excitement  Perfecting Your Valorant Video Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nlocking-potential-how-to-gain-more-viewers-and-followers-on-youtube-for-2024/"><u>[New] Unlocking Potential  How to Gain More Viewers and Followers on Youtube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-speedy-realignment-youtube-videos-for-mac-views/"><u>[Updated] 2024 Approved  Speedy Realignment  YouTube Videos for MAC Views</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-boosting-clickthrough-rates-with-attention-grabbing-youtube-thumbnails/"><u>[Updated] Boosting Clickthrough Rates with Attention-Grabbing YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-from-raw-footage-to-final-cut-chroma-mastery-for-2024/"><u>[Updated] From Raw Footage to Final Cut  Chroma Mastery for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-humor-hits-the-best-funny-youtube-short-ideas-on-the-block-for-2024/"><u>[Updated] Humor Hits  The Best Funny YouTube Short Ideas on the Block for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-digital-fortune-makers-top-earning-youtubers/"><u>[Updated] In 2024, Digital Fortune Makers  Top Earning YouTubers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-strategizing-an-attention-grabbing-tiktok-signoff/"><u>[Updated] In 2024, Strategizing an Attention-Grabbing TikTok Signoff</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-streamline-visual-marking-in-youtube-posts-with-watermarks-and-logos/"><u>[Updated] In 2024, Streamline Visual Marking in Youtube Posts with Watermarks & Logos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-ultimate-guide-to-engaging-viewers-and-boosting-traffic-on-youtube/"><u>[Updated] In 2024, The Ultimate Guide to Engaging Viewers and Boosting Traffic on YouTube</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-streamline-your-wedding-countdown-the-best-androidios-clock-apps-guide/"><u>[Updated] Streamline Your Wedding Countdown  The Best Android/iOS Clock Apps Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-streamlined-playback-controlling-youtube-video-delivery-speeds-for-2024/"><u>[Updated] Streamlined Playback  Controlling YouTube Video Delivery Speeds for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/emier-yoga-educators-on-youtube-for-2024/"><u>10 Premier Yoga Educators on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-avoid-every-interruption-the-ultimate-guide-to-7-adblocking-tools/"><u>2024 Approved  Avoid Every Interruption  The Ultimate Guide to 7 AdBlocking Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-dive-deep-into-youtube-shorts-essentials/"><u>2024 Approved  Dive Deep Into YouTube Shorts Essentials</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-harnessing-iphone-downloads-top-podcast-strategies/"><u>2024 Approved  Harnessing iPhone Downloads  Top Podcast Strategies</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-swiftly-upgrade-your-videos-with-professional-level-fb-subtitle-making/"><u>2024 Approved  Swiftly Upgrade Your Videos with Professional-Level FB Subtitle Making</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-samsung-galaxy-s23-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Samsung Galaxy S23 Phone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-quick-guide-to-samsung-galaxy-s23plus-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Samsung Galaxy S23+ FRP Bypass Instantly</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-earnings-in-cosmetic-videography/"><u>Boosting Earnings in Cosmetic Videography</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/discover-the-top-10-efficiency-boosters-for-fcp/"><u>Discover the Top 10 Efficiency Boosters for FCP</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/eyevid-fb-content-grabber/"><u>EyeVid  FB Content Grabber</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/g-the-problem-hidden-thumbnails-in-youtube-shorts/"><u>Fixing the Problem  Hidden Thumbnails in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-content-creators-den/"><u>In 2024, Content Creator's Den</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-seconds-in-a-snapshot-20mb-videography/"><u>In 2024, Seconds in a Snapshot  20MB Videography</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aging-multiple-channels-to-boost-online-visibility-for-2024/"><u>Leveraging Multiple Channels to Boost Online Visibility for 2024</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-2024-approved-how-to-access-and-watch-nonstop-nba-live-stream-free-online/"><u>New 2024 Approved How To Access and Watch Nonstop NBA Live Stream Free Online</u></a></li>
+<li><a href="https://windows11.techidaily.com/seamlessly-access-lately-used-documents-in-windows/"><u>Seamlessly Access Lately Used Documents in Windows</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-tutorial-revamp-your-lenovo-docking-station-with-the-latest-drivers/"><u>Step-by-Step Tutorial: Revamp Your Lenovo Docking Station with the Latest Drivers</u></a></li>
+</ul></div>
