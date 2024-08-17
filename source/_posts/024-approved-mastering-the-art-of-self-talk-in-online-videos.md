@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering the Art of Self-Talk in Online Videos\""
-date: 2024-07-13T03:32:06.662Z
-updated: 2024-07-14T03:32:06.662Z
+date: 2024-08-16T03:24:15.314Z
+updated: 2024-08-17T03:24:15.314Z
 tags:
   - ai video
   - ai youtube
@@ -37,8 +37,14 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -53,6 +59,9 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -75,6 +84,9 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ### 4.  Long Teleprompter Vlog Set-Up
 
 If you want to read over a script but still make it appear like you’re looking straight into the camera, you’ll need to use a long teleprompter vlog set-up.
@@ -96,8 +108,14 @@ Looking to find the right lights for your video recording set? Check out our [To
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -124,3 +142,46 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-accelerating-your-creative-process-high-quality-3d-models-tools/"><u>[New] Accelerating Your Creative Process  High-Quality 3D Models Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-designing-your-own-instagram-notification-sounds-for-2024/"><u>[New] Designing Your Own Instagram Notification Sounds for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-delving-into-t-series-revenue-generation-on-video-platforms/"><u>[New] In 2024, Delving Into T-Series' Revenue Generation on Video Platforms</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-discovering-how-youtube-runs-its-creator-workshop/"><u>[New] In 2024, Discovering How YouTube Runs Its Creator Workshop</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-dissecting-the-income-from-a-million-on-youtube/"><u>[New] In 2024, Dissecting the Income From a Million on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-intense-leaderboard-scrutinizer-tracking-youtube-titans/"><u>[New] In 2024, Intense Leaderboard Scrutinizer  Tracking YouTube Titans</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-strategic-use-of-creative-commons-copyright-law/"><u>[New] In 2024, Strategic Use of Creative Commons Copyright Law</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-todays-hot-tickets-top-youtube-tracks-for-the-day/"><u>[New] In 2024, Today’s Hot Tickets  Top Youtube Tracks for the Day</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-viral-vector-tags-keywords-that-power-up-your-social-media-snaps/"><u>[New] In 2024, Viral Vector Tags  Keywords that Power Up Your Social Media Snaps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ost-in-the-stream-reclaiming-deleted-youtube-videos-for-2024/"><u>[New] Lost in the Stream  Reclaiming Deleted YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/evitalize-your-routine-with-these-top-10-yoga-streams-of-note/"><u>[New] Revitalize Your Routine with These Top 10 Yoga Streams of Note</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-cinema-for-all-a-comparative-look-at-vimeo-and-youtube/"><u>[Updated] 2024 Approved  Cinema for All? A Comparative Look at Vimeo & YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-from-free-to-fortune-unlocking-youtubes-earnings-at-the-500-subscriber-level/"><u>[Updated] 2024 Approved  From Free to Fortune  Unlocking YouTube's Earnings at the 500 Subscriber Level</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-pro-video-enhancements-grasping-green-screen-artistry-through-4-youtube-demos/"><u>[Updated] 2024 Approved  Pro Video Enhancements  Grasping Green Screen Artistry Through 4 YouTube Demos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-skyrocket-views-with-these-essential-youtube-seo-hacks/"><u>[Updated] 2024 Approved  Skyrocket Views with These Essential YouTube SEO Hacks</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-expert-tips-for-efficient-screenshotting-with-zd-softwares-advanced-features-for-2024/"><u>[Updated] Expert Tips for Efficient Screenshotting with ZD Software's Advanced Features for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-harness-the-power-of-yt-green-screens-for-imaginative-projects-for-2024/"><u>[Updated] Harness the Power of YT Green Screens for Imaginative Projects for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-boosting-your-youtube-earnings-on-mobile-devices-a-comprehensive-guide/"><u>[Updated] In 2024, Boosting Your YouTube Earnings on Mobile Devices - A Comprehensive Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-mastering-your-slide-show-webcam-screen-capture-methods/"><u>[Updated] In 2024, Mastering Your Slide Show  Webcam Screen Capture Methods</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-streaming-made-easy-top-20-free-youtube-playlist-savers/"><u>[Updated] In 2024, Streaming Made Easy  Top 20 Free YouTube Playlist Savers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-navigating-best-options-expert-picks-from-top-9-free-logomakers/"><u>[Updated] Navigating Best Options  Expert Picks From Top 9 Free Logomakers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-why-are-your-video-shorts-thumbnails-not-showing-in-2024/"><u>[Updated] Why Are Your Video Shorts' Thumbnails Not Showing, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-essential-steps-to-producing-a-youtube-hit-music-reaction-video-guide/"><u>2024 Approved  Essential Steps to Producing a YouTube Hit  Music Reaction Video Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-mr-beasts-wealth-estimated-net-worth/"><u>2024 Approved  Mr. Beast's Wealth  Estimated Net Worth</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-silliness-set-to-sound-10-hilarious-hits/"><u>2024 Approved  Silliness Set to Sound  10 Hilarious Hits</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ess-breakthroughs-on-youtube-the-simplest-channel-launches-ranked-for-2024/"><u>Business Breakthroughs on YouTube  The Simplest Channel Launches Ranked for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-heartfelt-youtube-journeys/"><u>Creating Heartfelt YouTube Journeys</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/te-youtube-presence-ideal-release-windows/"><u>Elevate Youtube Presence  Ideal Release Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-english-simplified-by-oxford-and-mondly/"><u>Essential English, Simplified by Oxford & Mondly</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-infinix-hot-40i-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Infinix Hot 40i Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-seamlessly-integrate-samsung-in-ear-wireless-with-your-laptops-bluetooth-system/"><u>How to Seamlessly Integrate Samsung In-Ear Wireless with Your Laptop's Bluetooth System</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-best-compact-cameras-for-1000-or-less-4k/"><u>In 2024, Best Compact Cameras for $1000 or Less (4K)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-echoes-of-the-past-the-top-10-youtube-sources-for-history-lovers/"><u>In 2024, Echoes of the Past  The Top 10 YouTube Sources for History Lovers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-tecno-pop-8-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Tecno Pop 8 Phone Now with These Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/mlining-video-updates-on-youtube-for-2024/"><u>Streamlining Video Updates on YouTube for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/take-control-comprehensive-walkthrough-of-the-newly-released-apple-iphone/"><u>Take Control: Comprehensive Walkthrough of the Newly Released Apple iPhone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/2-video-grabber-online-to-download-any-video-you-like/"><u>Top 12 Video Grabber Online to Download Any Video You Like</u></a></li>
+</ul></div>

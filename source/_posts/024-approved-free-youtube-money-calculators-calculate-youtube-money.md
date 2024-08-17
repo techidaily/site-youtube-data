@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Free YouTube Money Calculators-Calculate YouTube Money\""
-date: 2024-07-13T03:32:46.707Z
-updated: 2024-07-14T03:32:46.707Z
+date: 2024-08-16T03:23:36.197Z
+updated: 2024-08-17T03:23:36.197Z
 tags:
   - ai video
   - ai youtube
@@ -49,6 +49,9 @@ YouTube calculators will never be able to know the CPM for a YouTube channel as 
 
 However, by taking an average of some of the current CPM rates from advertisers on YouTube, calculators are able to average out what a YouTube channel could be making. Keep in mind that, usually, the numbers that they use can be a bit on the high side compared to actual earnings. At times, though, these calculators can be very close.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## Part 2: The Free YouTube Money Calculator
 
 The YouTube Money Calculator is a free calculator tool that allows you to estimate the money obtained from any YouTube video. Calculations are entirely based on the number of views and an average CPM of $2 - $5\. A user just needs to insert the total number of video views that they think they can get or that another channel has to discover how much a person could earn or be earning.
@@ -58,6 +61,9 @@ If you don't know your CPM yet, don't worry because our tool can give you an est
 * [1\. Estimated YouTube Revenue by Videos](#videos)
 * [2\. Estimated YouTube Revenue by Channel](#channel)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ### 1\. Estimated YouTube Revenue by Videos
 
 To use YouTube Money Calculator to get an estimated calculation of your revenue for a single video, simply set the number of views you get per day (or hope to get) and the CPM rates. If you don't know your CPM, the tool will automatically select a typical range based on the number of views.
@@ -66,12 +72,18 @@ From here you can start to play around and see what the impact could be of a dif
 
 If you want to go deeper into your research and discover how much revenue a specific video could make, you can simply paste in the URL of the video you want to investigate, and the YouTube Money Calculator will show you the results. These will be presented as the number of total video views as well as the estimated earnings for that video based on typical CPM rates, making it a great resource to establish whether to monetize a video or not.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Estimated YouTube Revenue by Channel
 
 If you'd like a more complete view of your YouTube earnings potential, why not investigate the revenue possibilities for the whole channel? Simply paste your channel link into the box and our tool will estimate how much you could be earning if you monetize that channel.
 
 As well as showing this, the tool will show all sorts of other useful information such as number of total views, number of subscribers, number of uploaded videos and even your country and category. It's a great place to start to evaluate your efforts and to get a realistic idea of what your earnings could be.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: Free YouTube Money Calculator Alternatives
 
 Some of the best YouTube Money Calculator alternatives available are:
@@ -83,6 +95,9 @@ Some of the best YouTube Money Calculator alternatives available are:
 
 Social Blade delivers a calculation based on a CPM rate between .25 cents and $4 USD. Users need only type in the name of the channel they are interested in and Social Blade will deliver all kinds of information about that channel, like how many subscribers and views it received in the last 30 days. It will also include estimates of monthly and yearly earnings. The revenue results are adjusted based off of the overall size of the channel and the total number of views that they receive each day. You can even scroll down for estimates of daily earnings listed by date.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 2. How Influencer Marketing Hub Calculates YouTube Money
 
 Influencer Marketing Hub is almost like an active infographic that allows a user to very quickly adjust sliders based on the daily video views, active engagement, views per month, and views per year.
@@ -105,6 +120,9 @@ As your subscriber numbers rise and your daily views rise, so will your CPM, so 
 
 It's important to realize that, for most new channels, they'll need to post videos for around two years before they start earning anything significant. If you're just getting started on YouTube, find your niche and make sure it's one that advertisers care about. Get it right, and you'll have a highly targeted audience base which advertisers are willing to pay good money to use.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 5: How to Join the YouTube Partner Platform
 
 If you've had a go with the YouTube money calculator and are excited about the potential to make money from YouTube, the next thing you'll need to do is to sign up for the partner program. Here's how:
@@ -150,3 +168,84 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-amplifying-your-content-free-techniques-to-boost-youtube-views/"><u>[New] 2024 Approved  Amplifying Your Content  Free Techniques to Boost YouTube Views</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/35578242-new-2024-approved-free-youtube-channel-art-templates-find-them-here/"><u>[New] 2024 Approved  Free YouTube Channel Art Templates - Find Them Here!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-frosty-yet-warm-choosing-the-best-winter-backdrops/"><u>[New] 2024 Approved  Frosty Yet Warm  Choosing the Best Winter Backdrops</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ttract-1000-viewers-quickly-on-youtube/"><u>[New] Attract 1,000 Viewers Quickly on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/apturing-attention-striking-shots-for-youtube-success-for-2024/"><u>[New] Capturing Attention  Striking Shots for YouTube Success for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/utting-costs-without-compromising-on-youtube-intros-quality/"><u>[New] Cutting Costs without Compromising on YouTube Intros Quality</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/fficiently-broadcasting-your-videos-as-shorts-via-computers-and-mobile/"><u>[New] Efficiently Broadcasting Your Videos as Shorts via Computers & Mobile</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-expert-review-dynamic-action-recording-tools-for-2024/"><u>[New] Expert Review  Dynamic Action Recording Tools for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rom-raw-footage-to-final-cut-chroma-mastery/"><u>[New] From Raw Footage to Final Cut  Chroma Mastery</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-full-analysis-compreenaside-with-camstudio-screencap/"><u>[New] Full Analysis  Compreenaside with CamStudio Screencap</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-beat-procrastination-with-instant-access-to-your-youtube-favorites/"><u>[New] In 2024, Beat Procrastination with Instant Access to Your Youtube Favorites</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-bite-sized-video-knowledge-now/"><u>[New] In 2024, Bite-Sized Video Knowledge Now</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-youtube-traction-techniques-for-million-sub-attainment/"><u>[New] In 2024, Youtube Traction Techniques for Million-Sub Attainment</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-video-reversal-on-ios-devices-for-2024/"><u>[New] Mastering Video Reversal on iOS Devices for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aximizing-your-youtube-earnings-potential/"><u>[New] Maximizing Your YouTube Earnings Potential</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aximizing-your-youtube-income-through-understanding-cpm-for-2024/"><u>[New] Maximizing Your YouTube Income Through Understanding CPM for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-pixel-power-unveiling-youtubes-twitter-crew-for-2024/"><u>[New] Pixel Power  Unveiling YouTube's Twitter Crew for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-streamlined-process-for-upgrading-macos-sierra/"><u>[New] Streamlined Process for Upgrading macOS Sierra</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-turbocharge-video-on-snapchat-new-users-edition/"><u>[New] Turbocharge Video on Snapchat  New Users Edition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nlock-your-youtube-potential-by-dodging-these-8-typical-mistakes/"><u>[New] Unlock Your YouTube Potential by Dodging These 8 Typical Mistakes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-video-ranking-what-factors-affect-your-rank-for-2024/"><u>[New] YouTube Video Ranking - What Factors Affect Your Rank for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-best-5-non-youtube-editing-tools-for-vids/"><u>[Updated] 2024 Approved  Best 5 Non-YouTube Editing Tools for Vids</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-craft-magical-reels-on-instagram-using-top-6-tools/"><u>[Updated] 2024 Approved  Craft Magical Reels on Instagram Using Top 6 Tools</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-elevate-your-expression-a-gallery-of-stunning-video-themes-for-tiktok/"><u>[Updated] 2024 Approved  Elevate Your Expression  A Gallery of Stunning Video Themes for TikTok</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-monetizing-success-a-guide-to-purchasing-youtube-content/"><u>[Updated] 2024 Approved  Monetizing Success  A Guide to Purchasing YouTube Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-offline-watching-made-simple-youtube-videos-for-ios-users/"><u>[Updated] 2024 Approved  Offline Watching Made Simple  YouTube Videos for iOS Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-quality-guffaws-uncover-the-top-15-youtube-comedy-talents/"><u>[Updated] 2024 Approved  Quality Guffaws  Uncover the Top 15 YouTube Comedy Talents</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-simplify-stream-sideswapping-youtube-playlist-tips/"><u>[Updated] 2024 Approved  Simplify Stream-Sideswapping  Youtube Playlist Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-navigating-youtube-music-eclecticism/"><u>[Updated] In 2024, Navigating YouTube Music Eclecticism</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-perfect-your-instagram-video-upload/"><u>[Updated] In 2024, Perfect Your Instagram Video Upload</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-strategic-trailer-planning-for-increased-channels-profitability/"><u>[Updated] In 2024, Strategic Trailer Planning for Increased Channels' Profitability</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-unselect-recommended-podcasts-efficiently-on-spotify/"><u>[Updated] In 2024, Unselect Recommended Podcasts Efficiently on Spotify</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-innovative-strategies-for-youtube-video-closures-for-2024/"><u>[Updated] Innovative Strategies for YouTube Video Closures for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-instaphoto-tips-for-seamless-sharing/"><u>[Updated] InstaPhoto Tips for Seamless Sharing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-boost-popularity-quickly-top-30-hashtags-every-gamer-needs/"><u>2024 Approved  Boost Popularity Quickly  Top 30 Hashtags Every Gamer Needs</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-craft-compelling-openers-for-your-podcast-episodes-examples-and-tips/"><u>2024 Approved  Craft Compelling Openers for Your Podcast Episodes  Examples & Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-revolutionize-content-consumption-uncover-the-best-6-free-and-online-platforms-for-short-film-downloads/"><u>2024 Approved  Revolutionize Content Consumption  Uncover the Best 6 Free & Online Platforms for Short Film Downloads</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-skyrocketing-channels-essential-narrative-methods/"><u>2024 Approved  Skyrocketing Channels  Essential Narrative Methods</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-surpass-your-competition-effective-youtube-seo-tips/"><u>2024 Approved  Surpass Your Competition  Effective YouTube SEO Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-editors-guide-to-powerful-notebooks-and-more/"><u>2024 Approved  The Editor's Guide to Powerful Notebooks and More</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-honor-90-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/capture-perfect-shots-mastering-the-art-of-zipping-inout-on-iphoneipad/"><u>Capture Perfect Shots: Mastering the Art of Zipping In/Out on iPhone/iPad</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-cost-not-your-content-quality-try-these-top-8-free-tools-for-2024/"><u>Cut The Cost, Not Your Content Quality - Try These Top 8 Free Tools for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/detailed-assessment-editorpro-xs-the-ultimate-video-tool/"><u>Detailed Assessment  EditorPro XS, the Ultimate Video Tool</u></a></li>
+<li><a href="https://driver-download.techidaily.com/direct-download-links-newest-nvidia-geforce-rtx-cufft-driver-for-microsoft-windows-64-bit/"><u>Direct Download Links: Newest Nvidia GeForce RTX cuFFT Driver For Microsoft Windows (64-Bit)</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevating-your-imagery-with-advanced-hdr-photography/"><u>Elevating Your Imagery with Advanced HDR Photography</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/t-strategies-for-tackling-copyright-claims-on-youtube-for-2024/"><u>Expert Strategies for Tackling Copyright Claims on YouTube for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/free-asrock-ab350-pro4-driver-download-optimize-graphics-performance-in-windows-environment/"><u>FREE ASRock AB350 Pro4 Driver Download – Optimize Graphics Performance in Windows Environment</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/live-demos-to-online-sharing-mastering-idevice-screenshots-for-video-content-for-2024/"><u>From Live Demos to Online Sharing  Mastering iDevice Screenshots for Video Content for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-tutorial-to-bypass-your-tecno-camon-30-pro-5g-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Tecno Camon 30 Pro 5G Face Lock?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-zte-blade-a73-5g-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-how-to-access-full-range-of-groups-shared-media/"><u>In 2024, How to Access Full Range of Group's Shared Media</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-password-on-your-apple-iphone-6-plus-drfone-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID Password On your Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-z-fold-5-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy Z Fold 5 Phone with Broken Screen</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-rising-tides-of-streamers-a-guide-to-building-a-successful-chatter/"><u>In 2024, Rising Tides of Streamers  A Guide to Building a Successful Chatter</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-leading-7-android-apps-to-cut-out-intrusive-ads/"><u>In 2024, The Leading 7 Android Apps to Cut Out Intrusive Ads</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-transforming-viewers-into-income-how-many-votes-yield-earnings/"><u>In 2024, Transforming Viewers Into Income  How Many Votes Yield Earnings?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-unlock-content-revenue-accessing-youtubes-partner-benefits/"><u>In 2024, Unlock Content Revenue  Accessing YouTube's Partner Benefits</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-unlock-potential-empowered-channel-expansion-via-youtube-insights/"><u>In 2024, Unlock Potential  Empowered Channel Expansion via YouTube Insights</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-unlock-youtubes-potential-key-strategies-from-creator-studio-manual/"><u>In 2024, Unlock YouTube's Potential  Key Strategies From Creator Studio Manual</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unveiling-horizon-based-approaches-to-post-on-igtv/"><u>In 2024, Unveiling Horizon-Based Approaches to Post on IGTV</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-yts-game-changers-the-elite-ladies-in-gaming/"><u>In 2024, YT's Game Changers  The Elite Ladies in Gaming</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/mastering-the-art-of-digital-archiving-burning-videos-onto-blank-discs-in-windows-11-8-or-7-platforms/"><u>Mastering the Art of Digital Archiving: Burning Videos Onto Blank Discs in Windows 11, 8 or 7 Platforms</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-earnings-skyward-youtube-analytics-and-advertising-guide/"><u>Navigating Earnings Skyward  YouTube Analytics & Advertising Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-pc-building-tips-and-tricks-from-tomn-hardware/"><u>Navigating PC Building Tips and Tricks From Tom'n Hardware</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-elevate-your-videos-how-to-use-picture-in-picture-in-final-cut-pro/"><u>New 2024 Approved Elevate Your Videos How to Use Picture-in-Picture in Final Cut Pro</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/pictureprofessional-expert-guide-to-adjusting-ig-content-sizes/"><u>PictureProfessional  Expert Guide to Adjusting IG Content Sizes</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/secure-recording-methods-for-sensitive-whatsapp-discussions-for-2024/"><u>Secure Recording Methods for Sensitive WhatsApp Discussions for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/stay-cool-with-thermal-grizzlys-new-heatspreader-a-remarkable-15c-drop-in-processor-temperatures/"><u>Stay Cool with Thermal Grizzly's New Heatspreader: A Remarkable 15°C Drop in Processor Temperatures</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nto-thriving-youtube-threads-for-2024/"><u>Tap Into Thriving YouTube Threads for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-ultimate-list-of-high-quality-streaming-services-for-cricket-fans-for-2024/"><u>The Ultimate List of High-Quality Streaming Services for Cricket Fans for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-oneplus-frp-bypass-by-drfone-android/"><u>Ultimate Guide from OnePlus FRP Bypass</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/key-to-creative-advertising-access-all-50-free-youtube-banner-designs/"><u>Your Key to Creative Advertising  Access All 50 FREE YouTube Banner Designs!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/bes-shorts-thumbnail-dilemnas-and-quick-fixes/"><u>YouTube's Shorts Thumbnail Dilemnas & Quick Fixes</u></a></li>
+</ul></div>

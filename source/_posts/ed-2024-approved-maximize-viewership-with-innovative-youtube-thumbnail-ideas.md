@@ -1,0 +1,230 @@
+---
+title: "\"[Updated] 2024 Approved  Maximize Viewership with Innovative YouTube Thumbnail Ideas\""
+date: 2024-08-16T03:29:38.950Z
+updated: 2024-08-17T03:29:38.950Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] 2024 Approved: Maximize Viewership with Innovative YouTube Thumbnail Ideas\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: Maximize Viewership with Innovative YouTube Thumbnail Ideas\""
+keywords: "Video Thumbnails Optimization,Boosting YouTube Views,Engaging Thumbnails Design,Increase Video Popularity,Thumbnail Effectiveness Tips,Enhance Video Discoverability,Attractive Thumbnail Strategies"
+thumbnail: https://thmb.techidaily.com/99c9865a6c9c6ec80635e573e65ff37309dc9b7d70208081aa77b6f0d087fbe7.jpg
+---
+
+## Maximize Viewership with Innovative YouTube Thumbnail Ideas
+
+# How To Make Good YouTube Banner - Dos and Don’ts
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+It's important to learn how to make a good YouTube banner because, when you click into a channel, the first thing you usually see and pay attention to is the channel art.
+
+Channel art gives viewers a first impression of who you are and allows viewers to know what your channel is all about. Channel art can be a great way to show creativity, and there are also ways you can design your banner to help your channel grow.
+
+Here are the Dos and Don’ts of YouTube Channel Art.
+
+* **[What Kind of Background Should I Use?](#background)**
+* **[Should I Use My Face?](#face)**
+* **[What Should I Write on Banner?](#write)**
+* **[How Can I Make My Channel Art Look Good?](#good)**
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 1: What Kind of Background Should I Use?
+
+#### _DO: High-Quality Photos_
+
+It’s easy to take pictures with our phones, but not all of these pictures will look great blown up for channel art.
+
+When choosing great photos for your background, pick ones that are high quality and don’t become pixelated once they are blown up. There are tons of free stock photo websites out there to help you find a high-quality picture that’s perfect for your channel.
+
+#### _DON’T: Use Chaotic Patterns_
+
+Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
+
+![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
+## Part 2: Should I Use My Face?
+
+Whether you should use your face on your channel banner depends on what your channel is about. If you have a channel focused on beauty, fashion, fitness, or family vlogs then it’s a good idea to include your face. It comes off personable and helps viewers relate to you. If you have a channel that is about something like gaming, tech reviews, or book reviews then it isn’t necessary to include your face because the focus of your content isn’t you as a personality.
+
+If you do include pictures, here are some tips:
+
+#### _Don’t: Use Blurry Photos_
+
+If your photos are blurry, pixilated, or poor quality then don’t use them. Using blurry pictures comes off as unprofessional.
+
+That doesn’t mean you have to hire a photographer to take pictures for your channel. The average smartphone takes really great pictures, so long as you have enough light. If you need a great picture, use a high-quality selfie or ask a friend to take a nice picture of you.
+
+#### _Don’t: Use Outdated Pictures_
+
+It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
+## Part 3: What Should I Write on My Banner?
+
+![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
+
+#### _Do: Include Your Channel Name_
+
+While including your channel name in your banner seems like a no brainer, it is often left out by aspiring YouTubers. Displaying your channel name in a large font allows it to be more visible for viewers - your channel name is already on the page, but it is underneath your channel art and doesn’t stand out.
+
+Seeing your channel name included in your banner also helps viewers to know they are on the right page, if there are YouTubers out there with similar names to yours.
+
+#### _Do: Include Upload Days_
+
+Consistent upload days are highly important for gaining more views and subscribers. Including your exact upload days helps viewers know when they should expect new videos from you. I made the mistake of not including upload days when I first started my channel 3 years ago. I had drops in views because my subscribers didn’t know when I would upload videos.
+
+If you find that you cannot stick to a certain upload day, try to include how often you will post instead. For example, you can say, “New Videos Posted Weekly.” Viewers will respect you more and even be more likely to subscribe when you tell them your upload days. They want a guarantee that you’re going to post again in the near future.
+
+#### _Do: Include Social Media_
+
+Social media accounts are important to include in your channel art because we live in a social media generation. People are on social media every second of the day. If you are looking to take your YouTube channel seriously, it is good practice to ask viewers to follow you on your social media.
+
+Including social media icons in your channel art lets people know where they can find you. Another good reason to include your current social media in your banner is that sometimes you might join a new platform or quit an old one. You may be using Twitter for months and then decide that you like Facebook better. Your current social media handles keep subscribers from having to guess which one to follow you on.
+
+![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
+
+_Make sure everything important fits in the safe area!_
+
+#### _Do: Include Brief Channel Description or Tag Line_
+
+Aside from your channel name, you should also include a brief channel description or tag line to tell your viewers what your channel is all about. If you’re an aspiring beauty guru, you may include something like Makeup Tutorials, Product Reviews, or Mommy Makeovers. Or, you may include a cool tag line that describes the goal of your channel, like “Empowering Mother’s Through Makeup.”
+
+I’ve noticed that YouTubers that use 2-3 descriptive words in their channel art make many different types of videos on their channel but they all full under those categories.
+
+YouTubers that use tag lines are using their channel as a platform to carry out a specific mission on giving help or educating others.
+
+Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 4: How Can I Make My Channel Art Look Good?
+
+#### _Do: Create Consistent Branding_
+
+Since becoming a YouTuber myself, I’ve come to learn that paying attention to your branding is very important. Focus attention to what colors and fonts you use. The colors you use for your channel can influence your audience to feel a certain way. For example, using yellow can show that you’re happy and upbeat while using blue can show you’re more calm and relaxed. Whatever color you choose, make sure it’s a true representation of who you are.
+
+Using the right font can also be important to your channel. There are many different fonts available now. When choosing a font, choose one that goes with your channel that is easy to read. You might choose a very pretty cursive font, but if your viewers can’t read it, it can be useless.
+
+#### _Don’t: Include Images That Have Nothing to Do with Your Channel_
+
+This simple mistake can cost you many subscribers. For example, if your channel is about Beauty videos, then your channel art shouldn’t include pictures of food or you eating a burger. Your channel art is the first thing that viewers see when clicking on your page. You want them to instantly know what your channel is all about without having to find it in the description box. If your channel is about a few different things, then include all of those images in the channel art so they still know what your channel about. Just don’t confuse your viewers as to what your channel is really about.
+
+#### _Don’t: Have Images and Text That Cut Off_
+
+YouTube helps YouTubers by giving them a free channel art template to use as a guide when creating channel art. The template includes 3 different perspectives on how your channel art will be viewed by people looking at mobile devices, computer screens, and TVs. Many people make the mistake of creating art on the TV perspective which then cuts off images and text for the mobile and computer views. To save you the trouble of having images that cut off, it’s best to create your channel in the mobile dimensions that way it will be seen in the computer and TV dimensions with no problem.
+
+_Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [ElleToshea](https://www.youtube.com/channel/UCXnoVS-z%5FpsUtjmUsgnsdLA?sub%5Fconfirmation=1) where she shows viewers how to improve their homes and spaces on an affordable budget through DIY home decor. ElleToshea features minimalist home decor styles based off popular stores such as Anthropologie and Urban Outfitters._
+
+Now that you know how to make a good YouTube banner, what will you do next?
+
+## Touch Up YouTube Videos with Filmora
+
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-5-leading-apps-to-create-professional-youtube-intros/"><u>[New] 2024 Approved  5 Leading Apps to Create Professional YouTube Intros</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-convert-youtube-to-mp3-safely-top-3-guided-approaches/"><u>[New] 2024 Approved  Convert YouTube to MP3 Safely  Top 3 Guided Approaches</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-essential-list-6-free-online-platforms-for-youtube-short-downloads/"><u>[New] 2024 Approved  Essential List  6 Free Online Platforms for YouTube Short Downloads</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-exclusive-free-mcb-visual-tools/"><u>[New] 2024 Approved  Exclusive Free MCB Visual Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-ultimate-playbook-for-youtube-brand-development-and-expansion/"><u>[New] 2024 Approved  The Ultimate Playbook for YouTube Brand Development and Expansion</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ffortless-audio-blending-into-youtube-clips-using-editors-for-2024/"><u>[New] Effortless Audio Blending Into YouTube Clips Using Editors for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nhancing-visibility-and-discoverability-via-targeted-tags/"><u>[New] Enhancing Visibility and Discoverability via Targeted Tags</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ssential-guide-to-mounting-a-tripod-for-vloggers-for-2024/"><u>[New] Essential Guide to Mounting a Tripod for Vloggers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/xploring-income-average-creator-revenue-from-adverts-on-youtube-in-2024/"><u>[New] Exploring Income  Average Creator Revenue From Adverts on YouTube, In 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-enabling-instant-access-to-youtube-videos-in-your-facebook-browsing/"><u>[New] In 2024, Enabling Instant Access to YouTube Videos in Your Facebook Browsing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-massive-viewership-triumphs-youtubes-greatest-hits/"><u>[New] In 2024, Massive Viewership Triumphs  YouTube's Greatest Hits</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-video-alchemy-on-a-pc-transforming-footage-into-youtube-gold/"><u>[New] In 2024, Video Alchemy on a PC  Transforming Footage Into YouTube Gold</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-precision-techniques-the-most-essential-8-tools-for-microphone-and-speaker-recording/"><u>[New] Precision Techniques  The Most Essential 8 Tools for Microphone & Speaker Recording</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rofessional-thumbnail-tactics-dos-and-donts-guidebook-for-2024/"><u>[New] Professional Thumbnail Tactics  Do's and Don'ts Guidebook for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-enlightening-your-youtube-footage-with-proper-lighting/"><u>[Updated] 2024 Approved  Enlightening Your YouTube Footage with Proper Lighting</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-obs-high-encoding-how-to-fix/"><u>[Updated] 2024 Approved  OBS High Encoding - How to Fix</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-short-film-synopsis-must-know-points/"><u>[Updated] 2024 Approved  Short Film Synopsis  Must-Know Points</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-boosting-channel-profitability-famebit-powered-sponsorship-tactics/"><u>[Updated] Boosting Channel Profitability  FameBit-Powered Sponsorship Tactics</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-how-to-stabilize-your-camera-without-buying-a-tripod/"><u>[Updated] How to Stabilize Your Camera without Buying a Tripod?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-quick-steps-to-validate-your-youtube-login/"><u>[Updated] In 2024, Quick Steps to Validate Your YouTube Login</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-natural-vs-artificial-balancing-your-sets-illumination/"><u>[Updated] Natural Vs. Artificial  Balancing Your Set's Illumination</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-prime-your-vlogging-game-top-tier-mac-mp4-editors-reviewed-for-2024/"><u>[Updated] Prime Your Vlogging Game  Top-Tier Mac MP4 Editors Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-professional-thumbnails-from-your-phone-for-youtube-for-2024/"><u>[Updated] Professional Thumbnails From Your Phone for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-from-zero-to-hero-boosting-youtube-view-count-quickly/"><u>2024 Approved  From Zero to Hero  Boosting YouTube View Count Quickly</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-legitimate-protocols-for-achieving-over-a-million-viewership/"><u>2024 Approved  Legitimate Protocols for Achieving Over a Million Viewership</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-seamless-webm-creation-from-youtube-videos/"><u>2024 Approved  Seamless WebM Creation From YouTube Videos</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-change-country-on-app-store-for-iphone-15-pro-with-7-methods-by-drfone-ios/"><u>How To Change Country on App Store for iPhone 15 Pro With 7 Methods</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-realme-11-pro-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Realme 11 Pro If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-fix-when-your-nintendo-wii-fails-to-recognize-discs/"><u>How To Fix When Your Nintendo Wii Fails to Recognize Discs</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-videos-on-infinix-note-30i-by-fonelab-android-recover-video/"><u>How to restore wiped videos on Infinix Note 30i</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-auditory-interface-excellence-for-podcasters/"><u>In 2024, Auditory Interface Excellence  For Podcasters</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-perfecting-the-skill-for-selective-youtube-downloads/"><u>In 2024, Perfecting the Skill for Selective YouTube Downloads</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-youtubes-discussions-for-2024/"><u>Scouring YouTubes' Discussions for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/simplifying-the-process-of-creating-a-high-quality-rss-feed-for-2024/"><u>Simplifying the Process of Creating a High-Quality RSS Feed for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ust-know-about-youtube-shorts-explained/"><u>The Must-Know About YouTube Shorts Explained</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-5-best-realistic-text-to-speech-ai-voice-generators-you-may-like/"><u>Updated 2024 Approved 5 Best Realistic Text to Speech AI Voice Generators You May Like</u></a></li>
+<li><a href="https://extra-information.techidaily.com/your-guide-to-the-top-8-tablets-for-next-level-photo-enhancements/"><u>Your Guide to the Top 8 Tablets for Next-Level Photo Enhancements</u></a></li>
+</ul></div>

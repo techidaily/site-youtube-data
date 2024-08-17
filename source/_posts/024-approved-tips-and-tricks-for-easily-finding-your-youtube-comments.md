@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Tips & Tricks for Easily Finding Your YouTube Comments\""
-date: 2024-07-13T03:34:54.525Z
-updated: 2024-07-14T03:34:54.525Z
+date: 2024-08-16T03:21:37.016Z
+updated: 2024-08-17T03:21:37.016Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,9 @@ YouTube allows you to post comments on any video only if you are signed in to yo
 
 You can learn how to find all the comments you have posted on YouTube while using your preferred device by following the instructions given below:
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### 1\. Find Your YouTube Comments on a Desktop or Laptop Computer
 
 **Step 1: Sign In to Your YouTube Account**
@@ -58,6 +61,10 @@ Click the **Menu</strong > button from the top-left corner of the page, and then
 Click **Comments** from the right of the **History** page to view all the comments that you have posted earlier.
 
 ![YouTube History Menu  Comments](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 
 ### 2\. Find Your YouTube Comments on an iPhone
 
@@ -79,6 +86,9 @@ Tap the **Menu** icon from the top-left corner of the YouTube page, and tap **Hi
 
 ![Access the Desktop Version of YouTube](https://images.wondershare.com/filmora/article-images/view-past-youtube-comments-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. Find Your YouTube Comments on an Android Smartphone
 
 As it is with iOS, the YouTube app for Android doesn’t allow you to view your comments history either. However, the workaround of using a web browser works pretty well on Android smartphones too, but with a few tweaks. The process of doing so is given below:
@@ -101,6 +111,10 @@ Once you are signed in to your account, tap the **Menu** icon from the top-left 
 
 If you own a YouTube channel and have posted several videos there, it is likely that you also have received a decent number of comments. Usually, these remarks are pretty helpful as they tell you how to improve your production quality, and what your audience prefers to watch in the future. Therefore, it is imperative to learn how to find all the comments that your YouTube channel has received, and the process given below explains exactly that:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ### 1\. Find Your Channel’s YouTube Comments on a Desktop or Laptop Computer
 
 You can use your favorite web browser on a PC to easily find all the comments that the videos on your YouTube channel have received as long as you are signed in to your Google account. The step-by-step instructions on how this can be done are given below:
@@ -125,6 +139,9 @@ Click the **More** icon from the right of the comment you want to moderate, and 
 
 Note: To view all comments received on your YouTube channel, go to the Comments tab under YouTube Studio, and you will find all Channel comments & mentions.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Find Your Channel’s YouTube Comments on a Mobile App
 
 This process is comparatively simpler than the previous one as all that you need to do is download the YT Studio app, and access a central location where all the comments for all the videos can be viewed. The process is given below:
@@ -145,6 +162,9 @@ Tap the **More** button from the right of an inappropriate comment, and tap **Hi
 
 ![Find  YouTube Comments mobile](https://images.wondershare.com/filmora/article-images/find-youtube-channel-comments-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Find Someone’s YouTube Comments by User Name
 
 If any of your YouTube videos has thousands of comments and you need to find a particular one from a specific user, checking each remark manually would be an extremely time-consuming and tedious task. Therefore, it is a good idea to let an efficient application do the job for you.
@@ -166,7 +186,13 @@ Go to your or any other’s YouTube video, and click **Load All** from the top-r
 Choose **Comments** from the search type drop-down list, enter the name of the user in question in the **Search** box, and click **Search** to fetch all their comments on the video.
 
 ![Serach  YouTube Comments of specific users](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: How to Edit and Reply to YouTube Comments?
 
 Editing an existing YouTube comment that you have posted earlier, or replying to the one published by someone else is simple. The process is given below:
@@ -181,6 +207,10 @@ Locate the comment that you want to reply to, click **REPLY** from under the com
 
 ![Reply  YouTube Comments](https://images.wondershare.com/filmora/article-images/reply-youtube-comments.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 5: How to Moderate YouTube Comments?
 
 If you publish videos on YouTube that may put some impact on people’s lifestyle, you are likely to face criticism quite often. Therefore, you might want to moderate all your comments before they become visible to the audience so as not to spread negativity among the mass. Fortunately, YouTube helps you get this done easily, and the instructions that teach you the process are given below:
@@ -207,6 +237,9 @@ While posting a comment on a YouTube video, it is imperative to keep a few thing
 * In case you want to add some suggestions, make sure to be humble
 * Ignore the replies with inappropriate content
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 **Q1) Why can’t I see the comments I posted?**
@@ -220,6 +253,9 @@ In such a case, you are advised to wait for the authorized person to approve you
 **A:** You won’t be able to view the unpublished comments or those from the users you have added to the ‘hidden’ list. To fix this problem, you may want to disable moderation from your channel or the videos, and also unhide the users. The processes of both these configurations are explained in detail in the above sections.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -244,3 +280,67 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-unveiling-youtubes-complex-view-count-system/"><u>[New] 2024 Approved  Unveiling YouTube's Complex View Count System</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-be-the-game-changer-xbox-one-screen-recording-mastery-for-2024/"><u>[New] Be the Game Changer  Xbox One Screen Recording Mastery for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/hannel-personality-complimentary-youtube-graphics-for-2024/"><u>[New] Channel Personality  Complimentary YouTube Graphics for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/heck-your-channels-revenue-flow-for-2024/"><u>[New] Check Your Channel's Revenue Flow for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/utting-edge-techniques-for-powerful-youtube-thumbnail-designs/"><u>[New] Cutting-Edge Techniques for Powerful YouTube Thumbnail Designs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ive-deep-into-video-creation-with-these-top-12-vlogger-friendly-cameras-for-2024/"><u>[New] Dive Deep Into Video Creation with These Top 12 Vlogger-Friendly Cameras for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/levate-your-content-strategy-with-social-blade-and-youtube-stats/"><u>[New] Elevate Your Content Strategy with Social Blade and YouTube Stats</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-channel-name-wizardry-brainstorm-and-create/"><u>[New] In 2024, Channel Name Wizardry  Brainstorm & Create!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-engaging-vlogger-subjects-each-day/"><u>[New] In 2024, Engaging Vlogger Subjects Each Day</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-masterful-moments-a-deep-dive-into-youtube-to-facebook-sharing/"><u>[New] In 2024, Masterful Moments  A Deep Dive Into YouTube-to-Facebook Sharing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ey-principles-to-uphold-youtube-civility-for-2024/"><u>[New] Key Principles to Uphold YouTube Civility for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/avigating-to-submillion-territory-on-youtube/"><u>[New] Navigating to Submillion Territory on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/o-cost-sound-transformation-ultimate-10-youtube-tools/"><u>[New] No-Cost Sound Transformation  Ultimate 10 YouTube Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tep-by-step-process-converting-youtube-clips-into-playful-gifs-for-2024/"><u>[New] Step-By-Step Process  Converting YouTube Clips Into Playful GIFs for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-video-ranking-what-factors-affect-your-rank-for-2024/"><u>[New] YouTube Video Ranking - What Factors Affect Your Rank for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-audience-wow-factor-best-stream-cameras-for-your-twitch-channel/"><u>[Updated] 2024 Approved  Audience Wow Factor  Best Stream Cameras for Your Twitch Channel</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-get-superior-visuals-from-youtube-downloading-thumbnails-free/"><u>[Updated] 2024 Approved  Get Superior Visuals From YouTube - Downloading Thumbnails Free!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-mastering-youtube-adjust-your-video-privacy-settings/"><u>[Updated] 2024 Approved  Mastering YouTube  Adjust Your Video Privacy Settings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-mastering-youtube-ultimate-guide-to-live-360-degree-streams/"><u>[Updated] 2024 Approved  Mastering YouTube  Ultimate Guide to Live 360-Degree Streams</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-swift-techniques-mastering-effective-double-exposure/"><u>[Updated] 2024 Approved  Swift Techniques  Mastering Effective Double Exposure</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-curate-a-perfect-playlist-on-youtube-a-step-by-step-guide-for-2024/"><u>[Updated] Curate a Perfect Playlist on YouTube  A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-essential-tips-for-crafting-youtube-image-marketing/"><u>[Updated] In 2024, Essential Tips for Crafting YouTube Image Marketing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-how-to-recover-hidden-shorts-thumbnails-in-videos/"><u>[Updated] In 2024, How to Recover Hidden Shorts' Thumbnails in Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-leaders-in-learning-top-15-online-science-hubs/"><u>[Updated] In 2024, Leaders in Learning  Top 15 Online Science Hubs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-navigating-youtube-music-eclecticism/"><u>[Updated] In 2024, Navigating YouTube Music Eclecticism</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-premium-talker-alteration-tech-for-bloggers-and-streamers/"><u>[Updated] In 2024, Premium Talker Alteration Tech for Bloggers and Streamers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-depth-analysis-of-youtube-adrevenue-average-payout-per-1000-viewers-engagement-for-2024/"><u>[Updated] In-Depth Analysis of YouTube AdRevenue  Average Payout per 1,000 Viewers' Engagement for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-your-treasure-trove-of-free-marketing-50plus-youtube-ads-ready-to-go/"><u>[Updated] Your Treasure Trove of Free Marketing  50+ YouTube Ads Ready to Go!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exclusive-list-best-10-gopro-case-models-reviewed/"><u>2024 Approved  Exclusive List  Best 10 GoPro Case Models Reviewed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-history-streams-that-will-transform-your-study-habits/"><u>2024 Approved  History Streams That Will Transform Your Study Habits</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-streamlining-your-avatar-on-google-meet-devices/"><u>2024 Approved  Streamlining Your Avatar on Google Meet Devices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-tales-that-echo-through-time-top-8-halls-for-storytellers/"><u>2024 Approved  Tales That Echo Through Time  Top 8 Halls for Storytellers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-unlock-flawless-loops-on-youtube-with-these-tips/"><u>2024 Approved  Unlock Flawless Loops on YouTube with These Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-unveiling-the-8-leading-no-monetary-cost-video-tools-for-editors/"><u>2024 Approved  Unveiling the 8 Leading No-Monetary-Cost Video Tools for Editors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-youtubes-mini-millionaire-how-a-kid-earned-big-bucks-daily/"><u>2024 Approved  YouTube's Mini Millionaire  How a Kid Earned Big Bucks Daily</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/camera-mended-problems-resolved-with-obs-for-2024/"><u>Camera Mended, Problems Resolved with OBS for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1722058682171-chatgpt-goes-mobile-seamlessly-integrate-ai-with-your-android-phone/"><u>ChatGPT Goes Mobile: Seamlessly Integrate AI with Your Android Phone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/dji-spark-explored-pioneering-portable-drones-for-self-photography-for-2024/"><u>DJI Spark Explored  Pioneering Portable Drones for Self-Photography for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/re-11-budget-friendly-title-generators-for-yt/"><u>Explore 11 Budget-Friendly Title Generators for YT</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/first-picks-best-webcams-for-seamless-zoom-participation-for-2024/"><u>First Picks  Best Webcams for Seamless Zoom Participation for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-motorola-moto-g13-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Motorola Moto G13 Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-craft-a-powerhouse-channel-with-studio-expertise/"><u>In 2024, Craft a Powerhouse Channel with Studio Expertise</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-in-depth-look-at-facetune-complete-app-revision/"><u>In 2024, In-Depth Look at Facetune  Complete App Revision</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-script-strategies-for-captivating-youtube-audiences/"><u>In 2024, Script Strategies for Captivating YouTube Audiences</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-investors-edge-tapping-into-youtube-creators-earnings/"><u>In 2024, The Investor’s Edge  Tapping Into YouTube Creators' Earnings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-top-viral-video-tags-tips-for-popular-youtube-shorts/"><u>In 2024, Top Viral Video Tags  Tips for Popular YouTube Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tivizing-engagement-for-a-robust-subscription-base-for-2024/"><u>Incentivizing Engagement for a Robust Subscription Base for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-the-art-of-instantaneous-deletion-of-youtube-discussions-for-2024/"><u>Mastering the Art of Instantaneous Deletion of YouTube Discussions for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/navigate-the-metaverse-with-friends-top-10-games/"><u>Navigate the Metaverse with Friends - Top 10 Games</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/actics-to-increase-youtube-traffic-and-views-for-2024/"><u>SEO Tactics to Increase YouTube Traffic and Views for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ng-words-and-images-lyric-video-magic-with-lyric-video-maker/"><u>Syncing Words and Images  Lyric Video Magic with Lyric Video Maker</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/tailoring-the-spectrum-of-light-in-windows-based-video-editing-for-2024/"><u>Tailoring the Spectrum of Light in Windows-Based Video Editing for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ltimate-buyers-blueprint-for-youtubers-for-2024/"><u>The Ultimate Buyer's Blueprint for Youtubers for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/tycoon-titans-the-12-game-series-for-budding-business-masters/"><u>Tycoon Titans  The #12 Game Series for Budding Business Masters</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/k-the-magic-of-capturing-youtube-content-the-no-cost-way-for-2024/"><u>Unlock the Magic of Capturing YouTube Content - The No-Cost Way for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Samsung Galaxy A25 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/marketing-journey-begins-here-experience-the-full-spectrum-of-over-50-free-ads-in-2024/"><u>Your Marketing Journey Begins Here - Experience the Full Spectrum of Over 50 FREE Ads, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/youtube-to-mp4-get-free-hd1080p-from-facebook-vids/"><u>YouTube-to-MP4  Get Free HD/1080P From Facebook Vids</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/bes-shorts-thumbnail-dilemnas-and-quick-fixes/"><u>YouTube's Shorts Thumbnail Dilemnas & Quick Fixes</u></a></li>
+</ul></div>
