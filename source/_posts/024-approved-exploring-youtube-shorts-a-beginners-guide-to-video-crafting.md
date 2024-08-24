@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Exploring YouTube Shorts  A Beginner's Guide to Video Crafting\""
-date: 2024-07-13T03:24:59.550Z
-updated: 2024-07-14T03:24:59.550Z
+date: 2024-08-23T06:29:26.657Z
+updated: 2024-08-24T06:29:26.657Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,9 @@ A short and quick answer to the question is, **YouTube Shorts** is a Tik Tok com
 
 At the time of this writing, **YouTube Shorts** is still in the Beta phase, and there is a lot more that the developers at Google have yet to explore and discover. However, for now, the fully functional variant of the program is available only for users in India on Android and iOS platforms.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. YouTube Shorts Target Audience
 
 A majority of people who can be called the target audience for YouTube Shorts are the artists and creators looking forward to getting noticed. Some of them could also be among those who wish to become an influencer, or get their YouTube channel more subscribers to be able to become eligible for YouTube Partnership Program.
@@ -57,6 +60,9 @@ The type of contents that the viewers expect to see as YouTube Shorts could incl
 
 In addition to the above, a few other categories could be People and Places, Music, Domestic and Wild Animals, Education, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ### 3\. YouTube Shorts Content Requirements
 
 While creating **YouTube Shorts**, there are certain guidelines that must be followed. These points include:
@@ -83,6 +89,9 @@ You can follow the instructions given below to make and [upload a YouTube Shorts
 
 ![Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 Launch the YouTube app on your Android or iOS smart device (Samsung Galaxy Note 10+ is used here for demonstration), make sure that you are signed in to your Google account, tap the **+** (**Add**) button present at the bottom of the screen, tap **Create a Short** on the popup box that appears next, tap the **Record** button on the next window to start the recording. Once you are done, tap the **Stop** button to stop the recording.
 
 **Step 2: Edit the Video**
@@ -91,6 +100,9 @@ Tap **Music** from the bottom of the screen to add background music to the video
 
 ![Edit YouTube Shorts video - Add text and music](https://images.wondershare.com/filmora/article-images/edit-youtube-short-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 Likewise, you can tap **Text** to add captions as well. As for the text type, the app offers various formatting options such as alignment (left, center, and right), text highlighter, font changer, and even color selector. Further, the Speed and Timer icons at the top-right area allow you to manage the playback speed anywhere between 0.3x to 3x, and automatically stop the recording after the set time limit respectively. Once everything is set up, tap **NEXT** from the top-right corner to proceed to the next step.
 
 **Step 3: Pick Target Audience Type**
@@ -105,6 +117,18 @@ Enter a title for the video in the **Title** field. Make sure to include **#shor
 
 ![Upload YouTube Shorts video](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 3: How to Create a Vertical YouTube Shorts Video in Filmora?**
 
 The **YouTube Shorts app** is pretty convenient to access and use alright. However, it doesn’t allow you to fine edit the videos. The app doesn’t even have many filtering options such as Effects, Elements, etc. to make your videos more engaging.
@@ -125,6 +149,9 @@ For macOS 10.12 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The following step-by-step guide teaches you how to use Wondershare Filmora to create a vertical **YouTube Shorts** video:
 
 **Note:** Before proceeding to the instructions, make sure that you have already recorded a vertical video using your cellphone, and that it has been transferred to your PC.
@@ -135,6 +162,9 @@ Launch Wondershare Filmora on your Windows or Mac PC (a Windows 10 computer is u
 
 ![Upload YouTube Shorts video](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 Next, hover the mouse over the clip in the **Media** box, click the **+** button that appears at the bottom-right corner of the thumbnail, and in the resolution confirmation box that comes up next, click the button under the **Match to Media** section to add the video in the correct orientation to the Timeline at the bottom.
 
 **Step 2: Edit the Video**
@@ -147,12 +177,18 @@ You can even click the **Edit** button, and use the available editing features l
 
 ![Edit YouTube Shorts video in Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-filmora-advanced-editing.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 **Note:** To be able to remain compliant with the **YouTube Shorts** policies, make sure that the video length is no longer than 60 seconds.
 
 **Step 3: Beautify the Video**
 
 ![Add Title to YouTube Shorts video with Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-add-title.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 Click **Titles** from the standard toolbox at the top, choose your preferred text category from the list in the left, hover the mouse over a decent preset in the right window, and click the **+** button at the bottom-right corner of the thumbnail to add the preset on top of the media track in the Timeline. Next, you can double-click the preset track in the Timeline to modify the text and make granular modifications to it as needed. Click **OK** to save the changes.
 
 Similarly, you can select the **Effects** and **Elements** tools to add effects and elements to the video as needed. To add background music, you can go to the **Audio** tool, and pick your preferred preset from the available options. A custom music can be added by going to the **Media** tool, and importing an audio file from your PC using the method explained in **Step 1**.
@@ -179,6 +215,9 @@ Once everything is set up, click **EXPORT** from the top of the window, go to th
 
 ![Edit YouTube Shorts video in Filmora- export](https://images.wondershare.com/filmora/article-images/export-youtube-shorts-video-in-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### FAQs About YouTube Shorts
 
 1. **Where to download the YouTube Shorts app?**
@@ -232,3 +271,62 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-exploring-adsense-revenue-streams-on-youtube-for-every-1k-watcher/"><u>[New] 2024 Approved  Exploring AdSense Revenue Streams on YouTube for Every 1K Watcher</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-musical-masterclasses-in-15-short-video-formats-on-youtube/"><u>[New] 2024 Approved  Musical Masterclasses in 15 Short Video Formats on YouTube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-must-have-mac-frame-captures-handbook-limited-to-156-characters/"><u>[New] 2024 Approved  Must-Have Mac Frame Captures Handbook (Limited to 156 Characters)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-path-to-digital-fame-on-youtube-begins-here/"><u>[New] 2024 Approved  The Path to Digital Fame on YouTube Begins Here</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/xpert-smartphone-photo-and-film-capture-iphoneandroid-comparison/"><u>[New] Expert Smartphone Photo & Film Capture  IPhone/Android Comparison</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ain-ground-by-generating-earnings-on-your-youtube-channel-like-ajay/"><u>[New] Gain Ground by Generating Earnings on Your Youtube Channel Like Ajay</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-behind-the-scenes-recording-your-facebook-live-stream/"><u>[New] In 2024, Behind the Scenes  Recording Your Facebook Live Stream</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-streamlining-your-youtube-content-with-finalcut-pro-expertise/"><u>[New] In 2024, Streamlining Your YouTube Content with FinalCut Pro Expertise</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-unlocking-permanent-turn-off-for-youtube-shorts/"><u>[New] In 2024, Unlocking Permanent Turn-Off for YouTube Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aking-the-most-of-your-youtube-thumbnail-space/"><u>[New] Making the Most of Your YouTube Thumbnail Space</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-precious-playtimes-kids-fun-and-games-anthology-for-2024/"><u>[New] Precious Playtimes  Kids' Fun & Games Anthology for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ising-above-internet-naysayers-and-detractors-for-2024/"><u>[New] Rising Above Internet Naysayers and Detractors for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tep-by-step-guide-to-integrate-youtube-media-into-gslides/"><u>[New] Step-by-Step Guide to Integrate YouTube Media Into GSlides</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ltimate-sound-selection-for-social-media-stars/"><u>[New] Ultimate Sound Selection for Social Media Stars</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-storytellers-portal/"><u>[New] Ultimate Storytellers' Portal</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nleash-hd-vision-utilizing-youtube-for-clear-videos-for-2024/"><u>[New] Unleash HD Vision  Utilizing YouTube for Clear Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/our-step-by-step-pathway-to-youtube-video-enhancement/"><u>[New] Your Step-By-Step Pathway to YouTube Video Enhancement</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-beat-drops-in-seconds-a-beginners-guide-to-music-videos/"><u>[Updated] 2024 Approved  Beat Drops in Seconds  A Beginner’s Guide to Music Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-business-boosters-the-ultimate-highlight-enhancement-guide/"><u>[Updated] 2024 Approved  Business Boosters  The Ultimate Highlight Enhancement Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/66260159-updated-2024-approved-get-superior-visuals-from-youtube-downloading-thumbnails-free/"><u>[Updated] 2024 Approved  Get Superior Visuals From YouTube - Downloading Thumbnails Free</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-archivists-toolkit-techniques-for-capturing-social-events/"><u>[Updated] 2024 Approved  The Archivist's Toolkit  Techniques for Capturing Social Events</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-a-complete-overview-of-polarr-photo-editor/"><u>[Updated] A Complete Overview of Polarr Photo Editor</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-capitalizing-on-hairstyle-demonstrations/"><u>[Updated] Capitalizing on Hairstyle Demonstrations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-channel-expansion-techniques-for-30plus-online-platforms-for-2024/"><u>[Updated] Channel Expansion Techniques for 30+ Online Platforms for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-how-to-post-share-a-video-from-youtube-on-instagram/"><u>[Updated] How to Post /Share a Video From YouTube on Instagram</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-expert-strategies-for-choosing-valheim-crops/"><u>[Updated] In 2024, Expert Strategies for Choosing Valheim Crops</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-explore-10-premier-yoga-streams-for-wellness-boost/"><u>[Updated] In 2024, Explore 10 Premier Yoga Streams for Wellness Boost</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-to-upload-videos-to-youtube-a-step-by-step-guide/"><u>[Updated] In 2024, How To Upload Videos to YouTube [a Step-by-Step Guide]</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-lighting-the-way-enhancing-your-youtube-videos-with-pro-tips/"><u>[Updated] In 2024, Lighting the Way  Enhancing Your YouTube Videos with Pro Tips</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-smart-choices-the-ultimate-list-of-educator-friendly-recording-tools/"><u>[Updated] In 2024, Smart Choices  The Ultimate List of Educator-Friendly Recording Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mastery-in-removing-online-video-post-comments-for-2024/"><u>[Updated] Mastery in Removing Online Video Post-Comments for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-streaming-success-youtube-broadcasts-of-google-meet/"><u>[Updated] Streaming Success  YouTube Broadcasts of Google Meet</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtube-earnings-update-what-you-need-to-know/"><u>[Updated] YouTube Earnings Update - What You Need to Know</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-a-quick-look-at-grading-techniques-in-ps/"><u>2024 Approved  A Quick Look at Grading Techniques in PS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-addressing-missing-thumbnails-in-youtube-shorts/"><u>2024 Approved  Addressing Missing Thumbnails in YouTube Shorts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-skincare-and-sensational-looks/"><u>2024 Approved  Skincare and Sensational Looks</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-transform-your-videos-into-revenue-streams-with-smart-vimeo-tactics/"><u>2024 Approved  Transform Your Videos Into Revenue Streams with Smart Vimeo Tactics</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/budget-friendly-chinese-innovations-in-vr/"><u>Budget-Friendly Chinese Innovations in VR</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nient-viewing-setting-up-youtube-on-large-tv-panels/"><u>Convenient Viewing  Setting Up YouTube on Large TV Panels</u></a></li>
+<li><a href="https://games-able.techidaily.com/enter-the-battlefield-top-10-immersive-online-fps-browser-games/"><u>Enter the Battlefield: Top 10 Immersive Online FPS Browser Games</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-enhance-facebook-stream-volume-completely/"><u>How to Enhance Facebook Stream Volume Completely</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-advanced-chat-services-optimizing-teleconferences/"><u>In 2024, Advanced Chat Services Optimizing Teleconferences</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-craft-cinematic-magic-learn-green-screen-wonders-with-youtube/"><u>In 2024, Craft Cinematic Magic  Learn Green Screen Wonders with YouTube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Realme GT 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unraveling-the-magic-of-mixed-reality/"><u>In 2024, Unraveling the Magic of Mixed Reality</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-whats-youtube-creative-commons-and-how-to-use-it-to-make-video/"><u>In 2024, What's YouTube Creative Commons and How to Use It to Make Video</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-youtube-earnings-audit-the-monetization-process/"><u>In 2024, YouTube Earnings Audit  The Monetization Process</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tarting-your-digital-voice-the-complete-process-of-starting-a-youtube-chanel/"><u>Kickstarting Your Digital Voice  The Complete Process of Starting a YouTube Chanel</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/podcastpathfinder-charting-new-courses-for-2024/"><u>PodcastPathfinder  Charting New Courses for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/t-revelry-televised-looping-of-online-media-content-for-2024/"><u>Repeat Revelry  Televised Looping of Online Media Content for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ng-your-youtube-watchlist-with-instagram-feed-for-2024/"><u>Syncing Your YouTube Watchlist with Instagram Feed for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-oneplus-nord-n30-se-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 OnePlus Nord N30 SE Android SIM Unlock APK</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/turning-video-tutorials-into-virtual-income-for-2024/"><u>Turning Video Tutorials Into Virtual Income for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/upgrade-your-tech-move-to-the-latest-in-os-x-ventura/"><u>Upgrade Your Tech: Move to the Latest in OS X Ventura</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/vintage-game-collecting-and-diy-tech-assistance-tips/"><u>Vintage Game Collecting & DIY Tech Assistance Tips</u></a></li>
+</ul></div>

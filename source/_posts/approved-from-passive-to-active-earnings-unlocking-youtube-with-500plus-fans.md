@@ -1,0 +1,239 @@
+---
+title: "\"2024 Approved  From Passive to Active Earnings  Unlocking Youtube with 500+ Fans\""
+date: 2024-08-23T06:42:00.589Z
+updated: 2024-08-24T06:42:00.589Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes 2024 Approved: From Passive to Active Earnings: Unlocking Youtube with 500+ Fans\""
+excerpt: "\"This Article Describes 2024 Approved: From Passive to Active Earnings: Unlocking Youtube with 500+ Fans\""
+keywords: "\"Active Income YouTube,Engaging Video Content,Fan-Driven Monetization,Passive Earnings Shift,Youtube Fanbase Growth,Profitable Online Creator,Building 500+ Audience\""
+thumbnail: https://thmb.techidaily.com/c0fe8b6f81af5b05eb5adacea58a29fe6fd2f271b6a687457517f15534dc6b13.jpg
+---
+
+## From Passive to Active Earnings: Unlocking Youtube with 500+ Fans
+
+For small creators on YouTube, getting monetized seemed like an uphill task. You had to accumulate over 1,000 subscribers and over 4,000 public watch hours. This can be difficult to attain, especially on a platform where creators are publishing new content every day. However, the 2023 update on the YouTube Partner Program (YPP) provided an easier way to start making money on YouTube. In this article, we look at how the YPP is changing and the beauty of the YouTube monetization 500 subscribers’ policy update.
+
+**YouTube Shorts Monetization** A cross-platform for helping you present your content in the best way possible!
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
+
+## **Part 1.** **YouTube Monetization Revamp: 500 Subscribers Minimum Threshold Unveiled**
+
+The recent update in YouTube monetization requirements has made it easier than ever for small creators to make money on the platform. The YPP program changed and reduced the number of subscribers needed to be eligible. It has also reduced the amount of watch time needed. Let’s have a look at what the new eligibility criteria look like:
+
+![new eligibility criteria](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-1.JPG)
+
+The eligibility criteria for the YPP program are now easier and more achievable than before. To apply, you now need:
+
+* At least 500 subscribers
+* Three Shorts or Video uploads in the last 90 days
+* At least 3,000 public watch hours in the last 12 months or
+* At least 3 million public Short videos in the last 90 days
+
+The new requirements are lower than the old ones. Previously, you were required to have at least 1,000 subscribers with over 4,000 public watch hours. By lowering the threshold, YouTube makes it easier for all creators to monetize their content.
+
+## **Part 2\. YouTube Monetization with 500 Subscribers: A Brief Guide**
+
+YouTube announced in 2022 that they were evolving the YPP to continue rewarding more creators. Starting mid-June 2023, the program was expanded to allow more creators to access monetization benefits.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
+### **Know If You are Eligible**
+
+As a creator, you will want to know if you are eligible for the YouTube monetization 500 subscribers’ plan. Make sure that the notify feature on your channel is active to receive a notification. Go to the Earn area of the YouTube channel, and select Get Notified. Once selected, YouTube will send you an email when reach above the eligibility threshold.
+
+![notify me](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-2.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### **What You Need to Join Expanded YPP**
+
+Joining the expanded YouTube Partner Program has the same requirements as the earlier version. These include:
+
+* Being compliant with the YouTube channel monetization policies
+* Active 2-Step verification on the Google Account
+* Channel is based in any of the available regions or countries
+* An active AdSense account linked to the channel
+* No Community Guidelines strikes on your Channel
+* Have advanced features access on YouTube
+
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### **Where to Apply for Monetization**
+
+After meeting the eligibility criteria, you will need to apply to be enrolled in the YPP. Remember that being eligible does not automatically translate to instant income. You need to apply for the program and wait for the approval. Here are the steps to follow:
+
+#### **On Computer/Desktop**
+
+##### Step 1Sign in to YouTube Studio on your computer or desktop
+
+![youtube studio](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-3.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+##### Step 2Click Earn in the left menu
+
+![youtube earn](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-4.JPG)
+
+##### Step 3Click Apply Now to review and Accept the base terms
+
+![youtube base terms](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-5.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+##### Step 4Click Start to set up an AdSense account
+
+![Image alt: youtube adsense](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-6.JPG)
+
+#### **On Android, iPhone and iPad**
+
+Applying for YouTube monetization on your mobile devices follows the same process as the computer. Only in this case you will using the YouTube Studio app instead of the website. Follow these steps as outlined.
+
+* Open the YouTube Studio mobile app on your Android device.
+* Tap Earn from the bottom men
+* Tap Apply now to review and accept the base terms.
+* Set up an AdSense account as requested, or link an existing active one.
+
+Once you complete these steps on your computer or mobile, In Progress status will surface in the Get Reviewed step. This means that YouTube will review your channel and provide feedback within a month.
+
+### **What Monetization Review Entails**
+
+Once you submit your application, YouTube’s automated systems and human reviewers will look at your channel for a while. They will review it to make sure it follows all the platform’s policies and guidelines. As the reviews are in progress, creators are encouraged to back to the Earn section of YouTube Studio regularly. Typically, you will get the results within a month, but this may be affected by several factors:
+
+* Application Volumes
+* Resource Limitations
+* System Issues
+* Channel requiring several reviewers to determine suitability for YPP
+
+Sometimes the first application may not be successful for some reason. In this case, creators are encouraged to continue uploading original content and try again after 30 days. For second or other rejections, you are allowed to try again after 90 days. During this period, make sure that your channel follows YouTube policies and guidelines to increase your chances of being accepted.
+
+### **Choose How to Earn**
+
+The major way of earning money on YouTube is through ads that show in your videos. In the case of Shorts, the ad-sharing revenue involves YouTube sharing the revenue generated from the ads with creators. However, getting accepted to YPP also allows you to start earning with fan funding and Shopping features. This means that creators can earn money directly from their views using these unique features
+
+![youtube monetization features](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-7.JPG)
+
+YouTube monetization 500 subscribers update allows you to earn money through monetization features that were not there before. This allows creators to interact more with their viewer while generating income. The main fan funding features include:
+
+1. **Channel Membership**: Offer a membership plan to your viewer through monthly payments in exchange for perks like emojis and badges.
+2. **Super Thanks:** Earn revenue from viewers who show extra gratitude for your videos.
+3. **Super Stickers and Super Chat:** Allows your fans to buy Super Chats that highlight their messages or add fun animated images in the live chat.
+4. **Shopping:** Allows you to connect your official merchandise story to YouTube to showcase your products.
+
+## **Part 3\.** [**Edit Your Shorts for Monetization with WonderShare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/)
+
+The quality of your Shorts plays an essential role in determining whether your channel will be monetized. This is why you need good video editing software to help you present your content in the best way possible. Wondershare Filmora is a great choice when you want your YouTube Shorts to stand out. From cool green screen tricks to auto-reframing your videos for Shorts, Filmora gives you the whole editing package.
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+Filmora offers creators fantastic editing features to create better Shorts. Let’s have a look at some of the features you may find helpful:
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
+### **1\.** [**AI Copywriting**](https://tools.techidaily.com/wondershare/filmora/download/)
+
+YouTube Shorts require quick content that covers everything within 60 seconds. With the Filmora AI Copywriting feature, you can get inspiration and add text to your videos. Express your thoughts more clearly and generate text that makes the video more engaging.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
+### 2\. [**Split Screen Video Editor**](https://tools.techidaily.com/wondershare/filmora/download/)
+
+YouTube Shorts are limited to a length of 1 minute only. Since 60 seconds is quite a short time, you may want to showcase your content on multiple screens. The Split Screen Video Editor on Filmora allows you to make a split screen instantly. Choose from the readily available templates and show your audience what you want from multiple perspectives in the same video.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 3\. [**Motion Tracking**](https://tools.techidaily.com/wondershare/filmora/download/)
+
+With YouTube Shorts, you need to be more creative. Adding objects to your videos makes them fun and engaging. The motion tracking feature on Filmora allows you to track the movement of an object in the video. You can then pin graphics on the object, making the video more exciting. You can also add specific text and align it to an object, allowing your audience to follow through the story.
+
+### 4\. [**Speed Ramping**](https://tools.techidaily.com/wondershare/filmora/download/)
+
+The way you present your video means a lot to the audience. No one wants a boring or a really slow-moving video. With the Speed Ramping feature on Filmora, you can adjust the speed of your Shorts with better control of your keyframes. This allows you to create unique cinematic effects that keep the audience wanting more of the content.
+
+## **Conclusion**
+
+The introduction of the YouTube monetization 500 subscribers’ policy update was a special moment for small YouTubers. It meant that the platform was extending its YPP program to more creators, allowing them to earn money from their content. Lowering the monetization requirement gives more people a chance to make money faster. However, it is important to make sure that your videos are offering value to your audience. We recommend using Wondershare Filmora to edit your videos and make sure they stand out from the competition. The better your videos will be, the more views you will get, and the more money you will make.
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-escalate-your-tiktok-clout-top-30-unique-username-ideas/"><u>[New] 2024 Approved  Escalate Your TikTok Clout  Top 30 Unique Username Ideas</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-fixed-eclipsed-youtube-short-video/"><u>[New] 2024 Approved  Fixed  Eclipsed YouTube Short Video</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-professional-video-capture-techniques-mastering-movs-on-win10/"><u>[Updated] 2024 Approved  Professional Video Capture Techniques  Mastering MOVs on Win10</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-secrets-unveiled-expert-adobe-captive-screen-recording-tips/"><u>[Updated] 2024 Approved  Secrets Unveiled  Expert Adobe Captive Screen Recording Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-flv-conversion-for-content-creators-top-10-youtubes-alternatives-unveiled/"><u>[Updated] Flv Conversion for Content Creators  Top 10 YouTubes Alternatives Unveiled</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-ultimate-blueprint-creating-exceptional-podcast-content-on-idevices/"><u>[Updated] In 2024, The Ultimate Blueprint  Creating Exceptional Podcast Content on iDevices</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-unleash-potential-discovering-free-onlineoffline-animations/"><u>[Updated] Unleash Potential  Discovering Free Online/Offline Animations</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/decoding-the-fuzziness-in-facebook-videos/"><u>Decoding the Fuzziness in Facebook Videos</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-setup-insignia-vga-adapter-software-for-usb-connection/"><u>Download and Setup: Insignia VGA Adapter Software for USB Connection</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-best-camera-for-videos-mirrorless-vs-dslr-showdown/"><u>In 2024, Best Camera for Videos  Mirrorless Vs. DSLR Showdown</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-best-youtube-livestreaming-screen-recorders/"><u>In 2024, Best YouTube Livestreaming Screen Recorders</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-beware-the-allure-of-sham-youtube-audience/"><u>In 2024, Beware the Allure of Sham YouTube Audience</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-boost-engagement-with-quick-unique-coverage-options-on-shorts/"><u>In 2024, Boost Engagement with Quick, Unique Coverage Options on Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-boosting-your-channel-a-guide-to-gaining-viewers/"><u>In 2024, Boosting Your Channel  A Guide to Gaining Viewers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-brevity-in-action-shortening-youtube-video-content/"><u>In 2024, Brevity in Action  Shortening YouTube Video Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-crafting-personalized-instagram-story-sections/"><u>In 2024, Crafting Personalized Instagram Story Sections</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-defeat-bot-intruders-elevate-video-engagement/"><u>In 2024, Defeat Bot Intruders, Elevate Video Engagement</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-direct-from-google-meet-securely-live-stream-on-youtube/"><u>In 2024, Direct From Google Meet  Securely Live Stream on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-effortless-sound-sourcing-the-top-15-freebie-audiosites/"><u>In 2024, Effortless Sound Sourcing  The Top 15 Freebie Audiosites</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-elevate-your-content-with-these-top-keyword-discovery-tools/"><u>In 2024, Elevate Your Content with These Top Keyword Discovery Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-elevating-video-branding-the-art-and-science-of-youtube-image-designs/"><u>In 2024, Elevating Video Branding  The Art and Science of Youtube Image Designs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-elevating-your-youtube-presence-with-effective-tags/"><u>In 2024, Elevating Your YouTube Presence with Effective Tags</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-essential-asmr-channel-discoveries/"><u>In 2024, Essential ASMR Channel Discoveries</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-from-vision-to-execution-the-full-spectrum-of-personal-branding-on-youtube/"><u>In 2024, From Vision to Execution  The Full Spectrum of Personal Branding on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-fusing-genres-a-youtube-music-strategy/"><u>In 2024, Fusing Genres  A YouTube Music Strategy</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-how-to-make-profitable-youtube-ads-for-free/"><u>In 2024, How To Make Profitable YouTube Ads for Free?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-innovative-strategies-for-iphoneipad-screenshots-in-media/"><u>In 2024, Innovative Strategies for iPhone/iPad Screenshots in Media</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-invigorating-channel-content-best-video-concepts-to-inspire-viewers/"><u>In 2024, Invigorating Channel Content  Best Video Concepts to Inspire Viewers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-making-money-with-videos-strategies-for-the-aspiring-vlogger/"><u>In 2024, Making Money with Videos  Strategies for the Aspiring Vlogger</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-master-the-skill-of-trimming-youtube-videos-for-perfect-bites/"><u>In 2024, Master the Skill of Trimming YouTube Videos for Perfect Bites</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-monetary-milestones-steps-to-unlock-your-true-youtube-income-value/"><u>In 2024, Monetary Milestones  Steps to Unlock Your True YouTube Income Value</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-navigating-playlist-creation-on-youtube-easily/"><u>In 2024, Navigating Playlist Creation on YouTube Easily</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-navigating-your-net-gain-three-steps-to-quantify-your-youtube-earnings/"><u>In 2024, Navigating Your Net Gain  Three Steps to Quantify Your YouTube Earnings</u></a></li>
+<li><a href="https://network-issues.techidaily.com/quick-tips-to-solve-wide-text-line-phenomena-in-notebooks/"><u>Quick Tips to Solve Wide Text Line Phenomena in Notebooks</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-future-of-presentations-text-conversion-powered-by-speech-for-2024/"><u>The Future of Presentations  Text Conversion Powered by Speech for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-10-best-spy-watches-for-your-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>Top 10 Best Spy Watches For your Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/top-5-mac-alternatives-to-bandicam-for-video-capture-for-2024/"><u>Top 5 Mac Alternatives to Bandicam for Video Capture for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-error-malwarebytes-cant-properly-called-proc/"><u>Troubleshooting Error: Malwarebytes Can't Properly Called Proc</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/windows-11-troubleshoot-printer-hiccups/"><u>Windows 11 Troubleshoot Printer Hiccups</u></a></li>
+</ul></div>

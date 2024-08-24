@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Fixing the Problem  Hidden Thumbnails in YouTube Shorts\""
-date: 2024-07-13T03:29:09.426Z
-updated: 2024-07-14T03:29:09.426Z
+date: 2024-08-23T06:25:11.735Z
+updated: 2024-08-24T06:25:11.735Z
 tags:
   - ai video
   - ai youtube
@@ -81,6 +81,10 @@ Of course, ensuring that the video quality is high is key to getting more views.
 
 ![filmora mobile feature showcase](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-filmora.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
@@ -103,6 +107,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![shorts tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 * Pause the video.
 
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
@@ -111,16 +118,26 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
 
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 * Like the Shorts video.
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
@@ -133,10 +150,19 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -147,6 +173,9 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 ![filmora mobile feature showcase](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-filmora.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
@@ -159,10 +188,17 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### On a Desktop Computer
 
 * Open a Shorts video on YouTube.
@@ -173,6 +209,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * Click "Library" on the left panel.
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
@@ -187,10 +226,16 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 * Like the Shorts video.
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 * Tap "Library"
 
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
@@ -199,10 +244,16 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -233,3 +284,38 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-fast-forwards-and-flashbacks-in-creative-tiktoks/"><u>[New] 2024 Approved  Fast Forwards and Flashbacks in Creative TikToks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-monitoring-your-instagram-exit-strategy/"><u>[New] 2024 Approved  Monitoring Your Instagram Exit Strategy</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/onquer-common-youtube-short-setbacks-for-2024/"><u>[New] Conquer Common YouTube Short Setbacks for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ive-into-youtubes-best-practices-for-playlist-design-for-2024/"><u>[New] Dive Into Youtube's Best Practices for Playlist Design for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-capture-chuckles-quickly-efficient-methods-for-exciting-youtube-reaction-videos-3-tips/"><u>[New] In 2024, Capture Chuckles Quickly  Efficient Methods for Exciting YouTube Reaction Videos (3 Tips)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-optimizing-video-visibility-with-strategic-tag-selection/"><u>[New] In 2024, Optimizing Video Visibility with Strategic Tag Selection</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-reach-new-heights-in-youtube-seo-top-tips-and-tricks/"><u>[New] In 2024, Reach New Heights in YouTube SEO  Top Tips and Tricks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-subscribe-like-a-pro-true-or-false/"><u>[New] In 2024, Subscribe Like a Pro  True or False?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aximize-your-content-creation-top-rated-mac-mp4-slicers/"><u>[New] Maximize Your Content Creation  Top-Rated Mac MP4 Slicers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rime-top-10-free-transcript-harvesters-for-videos/"><u>[New] Prime Top 10 Free Transcript Harvesters for Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-bursting-laughter-crafting-engaging-reaction-videos-on-youtube-3-methods/"><u>[Updated] 2024 Approved  Bursting Laughter  Crafting Engaging Reaction Videos on YouTube (3 Methods)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-optimal-mobile-photography-and-videography-on-ios-and-android/"><u>[Updated] 2024 Approved  Optimal Mobile Photography and Videography on iOS & Android</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-yogic-path-top-10-pioneers-in-virtual-practice/"><u>[Updated] 2024 Approved  Yogic Path  Top 10 Pioneers in Virtual Practice</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-adjust-privacy-settings-for-secure-online-viewing/"><u>[Updated] Adjust Privacy Settings for Secure Online Viewing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-exploring-the-depths-of-asmr-audio-magic-for-2024/"><u>[Updated] Exploring the Depths of ASMR Audio Magic for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-12-best-sites-for-downloading-yt-template-videos/"><u>[Updated] In 2024, 12 Best Sites for Downloading YT Template Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-jumpstart-your-channel-with-these-top-10-video-editing-tips/"><u>[Updated] Jumpstart Your Channel with These Top 10 Video Editing Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtube-shorts-a-comprehensive-marketing-tool/"><u>[Updated] YouTube Shorts  A Comprehensive Marketing Tool</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-honor-90-lite-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Honor 90 Lite to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/te-your-metadata-management-unveiling-the-best-7-affordable-online-tags-extractors/"><u>Elevate Your Metadata Management  Unveiling the Best 7 Affordable Online Tags Extractors</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/essential-websites-for-digital-graffiti-fonts/"><u>Essential Websites for Digital Graffiti Fonts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-standard-to-spectacited-mobile-devices-vr-conversion-path/"><u>From Standard to Spectacited  Mobile Device's VR Conversion Path</u></a></li>
+<li><a href="https://fox-http.techidaily.com/giggle-guild-undead-humor-bots/"><u>Giggle Guild  Undead Humor Bots</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/o-balance-youtube-with-a-full-time-job/"><u>How to Balance YouTube with a Full-Time Job</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/o-make-a-creative-split-screen-video-for-youtube/"><u>How to Make a Creative Split-Screen Video for YouTube?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-repair-a-broken-home-button-on-your-iphone-with-these-5-quick-tips/"><u>How to Repair a Broken Home Button on Your IPhone with These 5 Quick Tips</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-g22-phone-without-password-by-drfone-android/"><u>How To Unlock Nokia G22 Phone Without Password?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/quick-start-to-mastering-io-screen-recording-for-2024/"><u>Quick Start to Mastering IO Screen Recording for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-activating-the-bing-ai-chat-feature-in-your-androids-onscreen-keyboard/"><u>Step-by-Step Guide: Activating the Bing AI Chat Feature in Your Android's Onscreen Keyboard</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-smart-eyewear-find-your-perfect-match/"><u>Top-Rated Smart Eyewear - Find Your Perfect Match!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/standing-the-fundamental-contrasts-in-video-streaming-for-2024/"><u>Understanding the Fundamental Contrasts in Video Streaming for 2024</u></a></li>
+</ul></div>

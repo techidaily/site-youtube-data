@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Selecting the Right Gear  A Filmmaker's Checklist\""
-date: 2024-07-13T03:27:22.462Z
-updated: 2024-07-14T03:27:22.462Z
+date: 2024-08-23T06:27:00.987Z
+updated: 2024-08-24T06:27:00.987Z
 tags:
   - ai video
   - ai youtube
@@ -68,6 +68,9 @@ thumbnail: https://thmb.techidaily.com/c522feb97d3790da90f4e047ee57c321868c402d1
 
  With a DSLR camera, you can also use it a webcam for recording your face and your desktop screen at the same time, check [how to use a DSLR camera as a webcam](https://filmora.wondershare.com/webcam-recording/use-dslr-camera-as-webcam.html).
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Equipment 2: Microphones
 
  Moving images are less effective without sound, which is the reason why you should pay close attention to this aspect of the video making process. All cameras have built-in microphones, but the audio quality they produce is often not good enough to actually use it in a YouTube video. That's why recording sound with an external microphone is a common practice among the most successful YouTubers.
@@ -78,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/c522feb97d3790da90f4e047ee57c321868c402d1
 
  Check: [best microphones for YouTube vloggers.](https://filmora.wondershare.com/vlogger/best-microphone-for-youtuber-videos.html)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### Equipment 3: Video Stabilization Equipment
 
  Holding a camera in your hand while shooting a video is often not the best idea, because even breathing may cause the camera to move and produce camera shakes. That's where [tripods](https://tools.techidaily.com/wondershare/filmora/download/), steadicams, [gimbals](https://tools.techidaily.com/wondershare/filmora/download/), rigs and other video stabilization equipment comes in. As a matter of fact, you should only shoot handheld videos when you want to achieve this effect, while all another camera movement should be avoided without the use of appropriate equipment.
@@ -86,6 +93,10 @@ thumbnail: https://thmb.techidaily.com/c522feb97d3790da90f4e047ee57c321868c402d1
 
  Check our list of [best camera stabilizer for YouTubers in 2018](https://filmora.wondershare.com/vlogger/best-camera-stabilizers-for-youtube.html).
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ### Equipment 4: Lighting Equipment
 
  Instead of struggling with natural light sources and having to deal with shadows, you can simply use the [lighting equipment](https://tools.techidaily.com/wondershare/filmora/download/) to equalize the light values in a shot. Of course, whether or not you will use artificial light in your video depends on a number of factors, including the location and the visual style you're trying to achieve.
@@ -100,6 +111,9 @@ thumbnail: https://thmb.techidaily.com/c522feb97d3790da90f4e047ee57c321868c402d1
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -125,3 +139,42 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://network-issues.techidaily.com/corrected-halo-tt-fail-to-launch-dx12-windows-error/"><u>[CORRECTED] Halo: TT Fail to Launch - DX12 Windows Error</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-9-elite-webmicrone-recording-systems-for-professional-use-23/"><u>[New] 2024 Approved  9 Elite Webmicrone Recording Systems for Professional Use ('23)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ive-into-filmoras-certified-creative-program/"><u>[New] Dive Into Filmora’s Certified Creative Program</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/du-favorites-best-learning-yt-channels-for-2024/"><u>[New] Edu-Favorites  Best Learning YT Channels for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-leading-edge-techniques-for-video-based-seminars/"><u>[New] In 2024, Leading Edge Techniques for Video-Based Seminars</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-surging-views-selecting-best-hashtags-for-yt/"><u>[New] In 2024, Surging Views  Selecting Best Hashtags for YT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/aximize-views-with-these-top-rated-keyword-analysis-tools-for-2024/"><u>[New] Maximize Views with These Top-Rated Keyword Analysis Tools for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/electing-the-right-gear-a-filmmakers-checklist/"><u>[New] Selecting the Right Gear  A Filmmaker's Checklist</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-art-of-crafting-video-trailers-to-elevate-sales-for-2024/"><u>[New] The Art of Crafting Video Trailers to Elevate Sales for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-expert-tips-for-memorable-youtube-names/"><u>[Updated] 2024 Approved  Expert Tips for Memorable YouTube Names</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-professional-3d-openers-a-comprehensive-guide/"><u>[Updated] 2024 Approved  Professional 3D Openers  A Comprehensive Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-rapid-methods-for-capturing-digital-conference-sessions/"><u>[Updated] 2024 Approved  Rapid Methods for Capturing Digital Conference Sessions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-tailoring-youtube-shorts-thumbnails-made-simple/"><u>[Updated] 2024 Approved  Tailoring Youtube Shorts Thumbnails Made Simple</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-novices-guide-to-building-a-youtube-studio-setup/"><u>[Updated] 2024 Approved  The Novice's Guide to Building a YouTube Studio Setup</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-top-8-youtube-imagery-techniques-for-higher-engagement/"><u>[Updated] 2024 Approved  Top 8 YouTube Imagery Techniques for Higher Engagement</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-youtube-tycoons-earning-the-most/"><u>[Updated] 2024 Approved  YouTube Tycoons  Earning the Most</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-discussing-the-merits-and-drawbacks-of-aurora-hdr-tech/"><u>[Updated] Discussing the Merits and Drawbacks of Aurora HDR Tech</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-how-to-edit-youtube-videos-in-sony-vegas/"><u>[Updated] How to Edit YouTube Videos in Sony Vegas</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-earning-strategies-with-youtubes-adsense-payout-per-k-viewers/"><u>[Updated] In 2024, Earning Strategies with Youtube's AdSense  Payout per K Viewers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-flavorful-frontier-groundbrenant-title-strategies-for-food-networks/"><u>[Updated] In 2024, Flavorful Frontier  Groundbrenant Title Strategies for Food Networks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-maximizing-profits-from-a-million-viewer-baseline/"><u>[Updated] In 2024, Maximizing Profits From a Million-Viewer Baseline</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-navigating-your-net-gain-three-steps-to-quantify-your-youtube-earnings/"><u>[Updated] In 2024, Navigating Your Net Gain  Three Steps to Quantify Your YouTube Earnings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-micromovie-magic/"><u>2024 Approved  MicroMovie Magic</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-essentials-everyone-needs-to-know-about-youtube-tv-services/"><u>2024 Approved  The Essentials Everyone Needs to Know About YouTube TV Services</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-premier-16-youtube-openings-elevating-viewer-count/"><u>2024 Approved  The Premier 16 YouTube Openings Elevating Viewer Count</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/r-lurking-online-spotting-the-falsehood-of-fake-viewers-on-youtube-for-2024/"><u>Danger Lurking Online  Spotting the Falsehood of Fake Viewers on YouTube for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-guide-to-unlock-your-xiaomi-14-by-drfone-android/"><u>Full Guide to Unlock Your Xiaomi 14</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-design-marvels-japanese-homescape-in-mc-landscape/"><u>In 2024, Design Marvels  Japanese Homescape in MC Landscape</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/69458453-in-2024-top-free-audio-samples-for-youtube-creators/"><u>In 2024, Top Free Audio Samples for YouTube Creators!</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-viewers-toolkit-assistant/"><u>In 2024, Viewer's Toolkit Assistant</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-youtube-insights-for-channel-expansion-for-2024/"><u>Mastering YouTube Insights for Channel Expansion for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ize-engagement-learn-from-tubebuddy-experts-for-2024/"><u>Maximize Engagement - Learn From TubeBuddy Experts for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-troubleshooting-clipboard-problems-on-windows-11-computers/"><u>Resolved! Troubleshooting Clipboard Problems on Windows 11 Computers</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/the-lofree-edge-reviewed-stylish-and-portable-with-a-costlier-price-than-apples-iconic-keyboard/"><u>The Lofree Edge Reviewed: Stylish & Portable with a Costlier Price than Apple's Iconic Keyboard</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-link-archer-c50-an-in-depth-look-at-performance-and-price/"><u>TP-Link Archer C50: An In-Depth Look at Performance and Price</u></a></li>
+</ul></div>
