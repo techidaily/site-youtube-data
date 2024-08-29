@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Efficiently Balancing Professional Commitments & Creativity\""
-date: 2024-07-13T03:22:52.361Z
-updated: 2024-07-14T03:22:52.361Z
+date: 2024-08-28T13:20:26.067Z
+updated: 2024-08-29T13:20:26.067Z
 tags:
   - ai video
   - ai youtube
@@ -50,20 +50,32 @@ I know what you’re thinking - “What?! That’s insane.” The first piece of
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## 5. Be creative! Create audios (audio-only videos)
 
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
 
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Make a YouTube Video with Wondershare Filmora
 
 Wondershare Filmora is one application that people prefer over any other video editing application due to its easy-to-use editing tools and social media aimed settings. This application can help any beginner with a desire to shoot a movie, achieve his dream even without the availability of high-tech cameras or equipment in his hand. The features like video stabilization feature and lens correction allow removing the major defects that occur while capturing a video. A large number of filters in the application can be used to give the cinematic effect whether it be a short video or a long movie.
@@ -72,8 +84,14 @@ Just try it and create your own YouTube video!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -99,3 +117,44 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/lluminate-your-videos-with-17-lighting-hacks/"><u>[New] Illuminate Your Videos with #17 Lighting Hacks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-beginners-bonanza-affordable-profitable-channel-options/"><u>[New] In 2024, Beginner's Bonanza  Affordable, Profitable Channel Options</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-8-best-no-cost-editing-software-for-social-media/"><u>[New] In 2024, The 8 Best No-Cost Editing Software for Social Media</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-stream-vs-record-deciding-on-obs-studio-or-bandicam/"><u>[New] Stream vs Record  Deciding on OBS Studio or Bandicam</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-artisans-approach-crafting-unique-shareable-youtube-shorts-for-2024/"><u>[New] The Artisan's Approach  Crafting Unique, Shareable YouTube Shorts for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-to-iphone-ringtone-alterations/"><u>[New] The Ultimate Guide to iPhone Ringtone Alterations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/op-6-youtube-shorts-downloaders-free-and-online/"><u>[New] Top 6 YouTube Shorts Downloaders [Free & Online]</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nified-vision-ventures-a-complete-cms-selection-journey-for-2024/"><u>[New] Unified Vision Ventures  A Complete CMS Selection Journey for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-charting-a-course-essential-equipment-for-youtube-enthusiasts/"><u>[Updated] 2024 Approved  Charting a Course  Essential Equipment for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-from-obscurity-to-stardom-trendsetting-tactics-for-videos/"><u>[Updated] 2024 Approved  From Obscurity to Stardom  Trendsetting Tactics for Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-perfect-panning-leading-stabilizers-unveiled/"><u>[Updated] 2024 Approved  Perfect Panning  Leading Stabilizers Unveiled</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-profit-potentials-in-producing-product-centric-youtube-clips/"><u>[Updated] 2024 Approved  Profit Potentials in Producing Product-Centric YouTube Clips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unending-suspension-how-to-erase-youtube-shorts/"><u>[Updated] 2024 Approved  Unending Suspension  How to Erase YouTube Shorts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-innovative-subtitle-edits-rank-the-top-10-programs/"><u>[Updated] In 2024, Innovative Subtitle Edits – Rank the Top 10 Programs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-innovation-in-action-youtube-split-screen-techniques-for-2024/"><u>[Updated] Innovation in Action  YouTube Split-Screen Techniques for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-precision-cuts-at-a-touch-select-the-best-short-form-editors/"><u>[Updated] Precision Cuts at a Touch  Select the Best Short Form Editors</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-quick-and-simple-instagram-plus-facebook-integration-tips-for-2024/"><u>[Updated] Quick & Simple  Instagram + Facebook Integration Tips for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-discovering-phantoms-temporal-expansion-capabilities/"><u>2024 Approved  Discovering Phantom's Temporal Expansion Capabilities</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-comprehensive-guide-for-converting-pinterest-video-content-to-mp3-format-for-2024/"><u>A Comprehensive Guide for Converting Pinterest Video Content to MP3 Format for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/o-impact-in-depth-youtube-video-editing-mastery/"><u>Cut to Impact  In-Depth Youtube Video Editing Mastery</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/e-with-these-top-10-student-oriented-history-channels/"><u>Engage with These Top 10 Student-Oriented History Channels</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-oppo-find-x6-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Oppo Find X6 Phones with/without a PC</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722861281490-host-the-ultimate-home-karaoke-party-tips-and-tricks-inside/"><u>Host the Ultimate Home Karaoke Party - Tips & Tricks Inside!</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-on-iphone-15-plus-by-drfone-ios/"><u>How To Remove the Two Factor Authentication On iPhone 15 Plus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/imac-and-the-m1-revolution-an-expert-insight-into-enhanced-visuals-and-improved-processing/"><u>IMac and the M1 Revolution: An Expert Insight Into Enhanced Visuals and Improved Processing</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-sony-xperia-10-v-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Sony Xperia 10 V Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-oppo-a56s-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Oppo A56s 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Vivo V30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ama-pro-network-partnership-guide/"><u>Panorama Pro Network Partnership Guide</u></a></li>
+<li><a href="https://driver-install.techidaily.com/rapid-enhancement-for-hd-4800-graphics-cards/"><u>Rapid Enhancement for HD 4800 Graphics Cards</u></a></li>
+<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-redmi-note-13-proplus-5g-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of Redmi Note 13 Pro+ 5G on Windows</u></a></li>
+<li><a href="https://win-dash.techidaily.com/seamless-driver-update-procedure-for-dell-xps-15z-g7-model/"><u>Seamless Driver Update Procedure for Dell XPS 15Z (G7 Model)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/youtube-shorts-forever-a-step-by-step-guide/"><u>Stop YouTube Shorts Forever  A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/mline-your-youtube-presence-using-premiere-pro-for-2024/"><u>Streamline Your YouTube Presence Using Premiere Pro for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/remier-7-apps-transforming-mobile-video-streaming-on-youtube/"><u>The Premier 7 Apps Transforming Mobile Video Streaming on YouTube</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlocking-windows-11s-printer-interface-max-48-chars/"><u>Unlocking Windows 11'S Printer Interface (Max 48 Chars)</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-top-rated-free-face-creation-tools-online/"><u>Updated In 2024, Top-Rated Free Face Creation Tools Online</u></a></li>
+</ul></div>
