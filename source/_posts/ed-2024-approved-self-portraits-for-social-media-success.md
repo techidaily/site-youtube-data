@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Self-Portraits for Social Media Success\""
-date: 2024-07-13T03:08:18.610Z
-updated: 2024-07-14T03:08:18.610Z
+date: 2024-09-06T14:59:57.230Z
+updated: 2024-09-07T14:59:57.230Z
 tags:
   - ai video
   - ai youtube
@@ -31,14 +31,50 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | Table of Contents [1\. Close Quarters Wide-Angle Vlog Set-Up](#Close-Quarters-Wide-Angle-Vlog-Set-Up)[2\. Medium Vlog Set-Up](#Medium-Vlog-Set-Up)[3\. Two Person Vlog Set-Up](#Two-Person-Vlog-Set-Up)[4\. Long Teleprompter Vlog Set-Up](#Long-Teleprompter-Vlog-Set-Up) |
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
 ![Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -67,6 +103,12 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -91,6 +133,12 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
@@ -124,3 +172,42 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/elving-into-youtubes-complex-calculation-of-viewer-stats-for-2024/"><u>[New] Delving Into YouTube's Complex Calculation of Viewer Stats for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/issecting-youtubes-user-commentary/"><u>[New] Dissecting YouTubes' User Commentary</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/xplore-the-globe-top-10-travelers-youtube-guide-for-2024/"><u>[New] Explore the Globe Top 10 Traveler's YouTube Guide for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-from-basics-to-bonus-elevate-your-cam-game/"><u>[New] From Basics to Bonus Elevate Your Cam Game</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ow-to-use-creative-commons-copyright-licenses-complete-guide-for-2024/"><u>[New] How to Use Creative Commons Copyright Licenses [Complete Guide] for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-frost-giants-clash-gods-of-war-ragnarok-unleashed/"><u>[New] In 2024, Frost Giants Clash Gods of War, Ragnarok Unleashed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-unveiling-the-numbers-comprehensive-guide-to-count-views-clicks-and-cash-in-youtube/"><u>[New] In 2024, Unveiling the Numbers Comprehensive Guide to Count Views, Clicks, and Cash in YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aximizing-stability-the-art-of-tripod-placement-in-vlogs-for-2024/"><u>[New] Maximizing Stability The Art of Tripod Placement in Vlogs for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/trategies-to-avoid-pitfalls-in-designing-youtube-thumbnails/"><u>[New] Strategies to Avoid Pitfalls in Designing YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-a-comprehensive-guide-to-use-youtube-movie-maker/"><u>[Updated] 2024 Approved A Comprehensive Guide to Use YouTube Movie Maker</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-discover-the-best-15-youtube-science-think-tanks/"><u>[Updated] 2024 Approved Discover the Best 15 YouTube Science Think Tanks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-invisible-observers-the-ultimate-list-of-apps/"><u>[Updated] 2024 Approved Invisible Observers The Ultimate List of Apps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-stepping-stones-from-youtube-ads-to-monetary-success/"><u>[Updated] 2024 Approved Stepping Stones From YouTube Ads to Monetary Success</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unlocking-creative-potential-in-asmr-content-advanced-techniques/"><u>[Updated] 2024 Approved Unlocking Creative Potential in ASMR Content – Advanced Techniques</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-video-editing-for-dummies-10-essential-youtube-insights/"><u>[Updated] 2024 Approved Video Editing for Dummies 10 Essential YouTube Insights</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-behind-the-scenes-youtubes-view-count-algorithm/"><u>[Updated] In 2024, Behind the Scenes YouTube's View Count Algorithm</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-dichotomy-of-youtube-rights-and-cc-licenses/"><u>[Updated] In 2024, The Dichotomy of YouTube Rights and CC Licenses</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mastering-mcn-your-comprehensive-youtube-creators-roadmap-for-2024/"><u>[Updated] Mastering MCN Your Comprehensive YouTube Creator's Roadmap for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-music-infused-video-tutorials-for-enhanced-social-media-presence-fb/"><u>[Updated] Music-Infused Video Tutorials for Enhanced Social Media Presence (FB)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-list-7-indispensable-devices-in-the-metaverse/"><u>[Updated] The Ultimate List 7 Indispensable Devices in the Metaverse</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-data-driven-decision-making-in-your-youtube-shorts-strategy/"><u>2024 Approved Data-Driven Decision Making in Your YouTube Shorts Strategy</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-direct-connectivity-ios-and-android-file-relay/"><u>2024 Approved Direct Connectivity IOS & Android File Relay</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-dynamic-content-presentation-via-fb-slideshows/"><u>2024 Approved Dynamic Content Presentation via FB Slideshows</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-social-media-magic-viral-trends-in-youtube-hashing/"><u>2024 Approved Social Media Magic Viral Trends in YouTube Hashing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-top-7-gratis-youtube-tags-extractor-tools/"><u>2024 Approved Top 7 Gratis Youtube Tags Extractor Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rve-space-not-time-youtube-video-length-adjustment/"><u>Conserve Space, Not Time YouTube Video Length Adjustment</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/essential-fixes-mastering-photo-recovery-on-windows-with-stellar-standard-edition/"><u>Essential Fixes: Mastering Photo Recovery on Windows with Stellar Standard Edition</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-samsung-galaxy-a24-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Samsung Galaxy A24 Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/hyperx-cloud-alpha-s-mic-problem-solved-step-by-step-fixes-for-gamers/"><u>HyperX Cloud Alpha S Mic Problem Solved – Step-by-Step Fixes for Gamers</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-apple-iphone-15-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change GPS Location on Apple iPhone 15 Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-revolutionize-your-branding-strategy-with-access-to-a-vast-library-of-free-youtube-banners/"><u>In 2024, Revolutionize Your Branding Strategy with Access to a Vast Library of Free YouTube Banners</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-top-10-strategies-for-youtube-musicians-make-the-perfect-reaction-video/"><u>In 2024, Top 10 Strategies for YouTube Musicians Make the Perfect Reaction Video</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/your-own-youtube-opening-and-closing-graphics-for-2024/"><u>Make Your Own YouTube Opening & Closing Graphics for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ize-your-watch-habits-the-ultimate-guide-for-constructing-youtube-saved-lists-for-2024/"><u>Optimize Your Watch Habits The Ultimate Guide for Constructing YouTube Saved Lists for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ering-youtubes-star-comment-for-2024/"><u>Uncovering YouTube's Star Comment for 2024</u></a></li>
+</ul></div>

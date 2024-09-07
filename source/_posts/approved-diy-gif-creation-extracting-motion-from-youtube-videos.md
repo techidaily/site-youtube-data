@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  DIY GIF Creation  Extracting Motion From YouTube Videos\""
-date: 2024-09-02T05:02:07.804Z
-updated: 2024-09-03T05:02:07.804Z
+date: 2024-09-06T15:01:40.243Z
+updated: 2024-09-07T15:01:40.243Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,18 @@ The article below will show you how to create GIFs from YouTube videos on the de
 
 ## Part 1: How to Create GIFs from a YouTube Video on the Computer?
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\.  FreeGifMAKER.me
 
 FreeGifMaker is a simple online tool that allows the creation of animated Gifs free of cost. A minimum of two pictures has to be uploaded out of ten. It’s super easy and takes a couple of minutes to make a GIF from a YouTube video.
@@ -42,7 +54,10 @@ Find out how to create GIFs using FreeGifMaker.me using these steps.
 2. After the YouTube video is loaded, finally enter the gif duration, start time and click on the “Make a GIF button” and it will redirect you to the result page.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\.  VEED.IO
 
@@ -55,21 +70,10 @@ How to use VEED only in 3 steps, know about it below:
 3. In the last step, you just have to download the GIF which you have made in VEED.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 3\.  Kapwing
 
@@ -84,6 +88,12 @@ To create unique GIFs with Kapwing, follow these easy steps.
 
 After processing the GIF, you need to save it by downloading it.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\.  File-converter-online.com
 
 This online free video editor can convert videos into GIF without any watermark and the maximum length of the GIF from the video clip can be 20 seconds, which can be set by you as needed. It provides a simple and free GIF maker that again offers special effects as well such as setting up the speed of the video.
@@ -95,9 +105,6 @@ You can create your desirable GIF from YouTube video in 3 easy steps.
 3. Next, you can choose the speed of the video which is optional, and then set the resolution from higher to lower as per your choice.
 4. The final step involves creating the GIF which you can do by clicking on the red button “Create GIF from the video” available below the resolution option and finally the downloading will start after a short waiting on the next page.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ### 5\.  Clideo
 
 Clideo is one of the most reliable video converters available online. It can create an animated GIF from YouTube videos without much complication.
@@ -108,10 +115,6 @@ You can make GIF on your own by following the 3 easy steps mentioned below.
 2. After pasting the URL, you have to choose the ‘infinity sign’ given on the right side which will create an endless GIF without sound. Click on the ‘loop’ button available just below the panel on the right side.
 3. After completing the steps, you can watch the preview of the GIF and go back to editing if you need to change anything. Else save the output on your PC or Mobile phone.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Part 2: How to Make a GIF from a YouTube Video on the Android and iPhone?
 
 ### 1\.  GIF Toaster – GIF Maker
@@ -120,10 +123,6 @@ Gif Toaster is one of the video editing apps which makes the work of creating Gi
 
 ![GIF Toaster - GIF Maker](https://images.wondershare.com/filmora/article-images/gif-toaster-gif-maker.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 You need to follow a few simple steps to create GIFs on your own.
 
 1. It is accessible on the [iOS App Store](https://apps.apple.com/us/app/gif-toaster-gif-maker/id948064297) and the [Google Play](https://play.google.com/store/apps/details?id=com.appmadang.giftoaster&hl=en&gl=US) for free so you need to install GIF Toaster on your device. Once done, tap the “Make GIF” option available below, you can also click “Combine GIFs” to combine more than one video. After completing, scroll down the dropdown menu beside “Video>GIF” and select the video which you want to convert into GIF.
@@ -131,12 +130,24 @@ You need to follow a few simple steps to create GIFs on your own.
 2. After selecting the options of your choice, you have to scroll back to the top again and press “Convert” to quickly convert the video into GIF.
 3. Once the GIF is ready, you will be able to see the final result and you just need to ‘Save’ the file.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Bonus: How to Create GIFS from YouTube video on iPhone without installing any app?
 
 It is now possible to convert YouTube videos into GIFs by using the 5SecondsApp available for iOS. To make this possible you just require few things in your iPhone – the device should be iOS 11 or more, YouTube in the browser or app, and the 5SecondsApp already available in the App store.
 
 First, you need to find a video that is not more than 10 seconds then begin the screen recording on the iOS recording feature and go back to YouTube to play the video and record the portion you need. To make the GIF you have to launch the app and tap the plus option there. Later, trim the video as you see fit. After you’re done, crop the video with the help of the crop tool and finally save it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: Why Should You Use GIFs?
 
 **1\. GIFs don’t prevent web pages from loading quickly**
@@ -154,7 +165,10 @@ There are many apps and video editors available today available free of cost. Yo
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Shanoon Cox
 
