@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Numbers in Focus! Yearly YT Trends & Trivia (2017)"
-date: 2024-09-06T15:13:22.063Z
-updated: 2024-09-07T15:13:22.063Z
+date: 2024-09-11T06:23:20.997Z
+updated: 2024-09-12T06:23:20.997Z
 tags:
   - ai video
   - ai youtube
@@ -14,30 +14,12 @@ keywords: "\"YouTube Trends Analysis,Yearly Youtube Insights,Social Media Metric
 thumbnail: https://thmb.techidaily.com/747b49f807ccf9f14c19b340ff456a78dd6771beaa7f3b2a1e86afcc1230369a.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Numbers in Focus! Yearly YT Trends & Trivia (2017)
 
 # Infographic - Mind Numbing YouTube Facts,Figures and Statistics
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -48,12 +30,6 @@ In 2017, more than 500 hours of video content are being uploaded to [YouTube](ht
 
 ![mind blowing youtube stats facts 2017](https://filmora.wondershare.com/youtube-video-editing/mind-blowing-youtube-stats-facts-2017.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 It’s hard to pick highlights from such an interesting and comprehensive read, but a couple of key stats shine out.
 
 * **YouTube has just 0,5 billion users less than Facebook**
@@ -80,12 +56,6 @@ Let us know what you think about these interesting facts about YouTube in the co
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -164,3 +134,17 @@ Follow @Richard Bennett
 <li><a href="https://video-ai-editor.techidaily.com/updated-transform-your-footage-mastering-the-ken-burns-effect-in-final-cut-pro-with-ease-for-2024/"><u>Updated Transform Your Footage Mastering the Ken Burns Effect in Final Cut Pro with Ease for 2024</u></a></li>
 <li><a href="https://youtube-data.techidaily.com/nary-filmmaker-blending-clips-and-chords/"><u>Visionary Filmmaker Blending Clips & Chords</u></a></li>
 </ul></div>
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+

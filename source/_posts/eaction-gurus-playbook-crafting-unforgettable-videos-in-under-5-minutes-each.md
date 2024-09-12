@@ -1,7 +1,7 @@
 ---
 title: "\"The Reaction Guru's Playbook  Crafting Unforgettable Videos in Under 5 Minutes Each\""
-date: 2024-09-06T15:13:52.786Z
-updated: 2024-09-07T15:13:52.786Z
+date: 2024-09-11T06:23:20.513Z
+updated: 2024-09-12T06:23:20.513Z
 tags:
   - ai video
   - ai youtube
@@ -20,12 +20,6 @@ thumbnail: https://thmb.techidaily.com/80c8f2832769bf50662b01ca1e988a4c71933b23e
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -38,17 +32,25 @@ The process of **making a YouTube reaction video** is not overly technical, alth
 * [Method 2: Create YouTube Reaction Video with Split Screen Templates](#split%5Fscreen%5Ffilmora)
 * [Method 3: Make A Reaction Video for YouTube with AI Portrait](#ai%5Fportrait%5Ffilmora)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Make a Reaction Video for Your YouTube Channel? \[3 Ways\]
 
 Using the footage without the consent of the copyright owner is punishable by the law, which means that you can only include the footage in a reaction video if you have the owner’s consent. Consequently, the selection of videos you can comment on is going to be limited, since it is entirely up to the creator of the video if they are going to give you permission to use their footage in your reaction video.
 
 You can use the following video editing techniques, once you have access to the video you would like to comment on.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Method 1: Making a reaction video with the Picture-in-Picture feature in Filmora
 
@@ -58,31 +60,47 @@ The first step is to create a new project in Filmora and then import the media a
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Place the video you’re reacting to on a video track on the timeline and then add the video of your reaction to the timeline that is directly above the one to which you added the first video clip. Click on the top video in the preview window and use the handles that are positioned around the edges of the video to adjust its size.
 
 If you would like to change the on-screen position of the overlay clip, you should simply click on it and drag it to the new location within the preview window.
 
 ![Create reaction video with Filmora Picture in Picture feature ](https://images.wondershare.com/filmora/article-images/adjust-reaction-video-size-position.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Filmora offers more than sixty motion effects, hundreds of transitions, and visual effects that can make your reaction video more visually appealing to the audience.
 
 ![Filmora  compositing with Blending modes ](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Moreover, Filmora video editing software offers a variety of blending modes, and it lets you control the opacity of the overlay video so that you can make it more transparent. Whether or not you are going to use these options depends on the footage you’re working with and the demands of a particular project.
 
 **Pros of using the Picture in Picture feature to make reaction videos in Filmora:** You can place and adjust the videos with more customizable options. Get more tips about [Making a PIP video in Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Method 2: Create several reaction windows with the Split Screen feature
 
@@ -90,12 +108,6 @@ Besides the Picture-in-Picture option, Filmora also enables you to [play two or 
 
 ![create reaction video with Filmora  Split Screen Templates](https://images.wondershare.com/filmora/article-images/add-split-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Afterward, you should drag the video clips from the Media tab and drop them onto the section of the preview window where you want them to be located. Keep in mind that you cannot add more than six videos to a split-screen template.
 
 ![Filmora  Edit Reaction Video with Split Screen Video](https://images.wondershare.com/filmora/article-images/reaction-video-advanced-split-screen-edit.jpg)
@@ -108,18 +120,40 @@ Check the details about [How to make a split-screen video](https://tools.techida
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Method 3: Create A YouTube Reaction Video with AI Portrait
 
 With the human segmentation effect in AI Portrait, you can now blend the reaction video in a more natural way. The human segmentation effect will isolate people from the background, you can use any background in the video.
@@ -128,16 +162,24 @@ Note: You can use this feature after version after V 10.5 for Windows, and V 10.
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **Step 1:** Import the videos to the media library, and then drag the background video to the first video track, and the reaction video to the track above.
 
 ![import reaction videos to Filmora](https://images.wondershare.com/filmora/article-images/import-reaction-videos-to-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 2**: Go to the Effects tab at the top, and click the AI Portrait category, and then you will see many effects such as Human Segmentation, Human Pixelate, Human Noise, and lighting flash. Here, drag and drop the Human segmentation effect to the reaction video.
 
 ![make reaction video: remove video background](https://images.wondershare.com/filmora/article-images/remove-video-background-reaction-video.jpg)
@@ -146,24 +188,40 @@ Note: You can use this feature after version after V 10.5 for Windows, and V 10.
 
 ![adjust reaction video size](https://images.wondershare.com/filmora/article-images/customize-reaction-video-size.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **Step 4:** That’s the basic editing of making a reaction video. You can also add the neon or flashing effect to the video. If everything goes well, click Export and save the video.
 
 ![add neon flash effects to reaction video](https://images.wondershare.com/filmora/article-images/add-neon-flash-effects-to-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-You can find out more details about using the [AI Portrait effect to make a reaction video](https://tools.techidaily.com/wondershare/filmora/download/).
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+You can find out more details about using the [AI Portrait effect to make a reaction video](https://tools.techidaily.com/wondershare/filmora/download/).
+
 ## How to Avoid Copyright Infringements While Making a YouTube Reaction Video
 
 All videos you can find on YouTube are protected by intellectual property regulations, and you can’t use them without the copyright owner’s permission. The only way to avoid being absolutely sure that your reaction video isn’t violating the law is to contact the video creator and ask for permission to use their intellectual property. However, most YouTubers are reluctant to let others download and edit their videos unless they already have a large fan base.
@@ -181,6 +239,26 @@ Anyone can master the technical aspects of making a reaction video, but the topi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Richard Bennett
 

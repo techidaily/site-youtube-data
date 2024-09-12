@@ -1,7 +1,7 @@
 ---
 title: "How to Create Animated Bouncing Text [2 Ways]"
-date: 2024-07-13T03:00:20.895Z
-updated: 2024-07-14T03:00:20.895Z
+date: 2024-09-11T06:22:07.054Z
+updated: 2024-09-12T06:22:07.054Z
 tags:
   - ai video
   - ai youtube
@@ -26,6 +26,20 @@ thumbnail: https://thmb.techidaily.com/c1b8f5eb5059b436ba72d1c75d15b589d4913c1c7
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -46,21 +60,89 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -108,6 +190,20 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
 **Step 3: Obtain the Text**
@@ -143,6 +239,48 @@ Follow @Liza Brown
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-enhancing-youtube-visibility-with-featured-channels-techniques/"><u>[New] In 2024, Enhancing YouTube Visibility with Featured Channels Techniques</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rime-opening-strategies-top-16-youtube-vids-that-thrive/"><u>[New] Prime Opening Strategies Top 16 YouTube Vids That Thrive</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-recording-rivalry-obs-versus/"><u>[New] Recording Rivalry OBS Versus</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/treaming-showdown-summary-fb-live-yt-live-and-twitter-spaces/"><u>[New] Streaming Showdown Summary FB LIVE, YT Live & Twitter Spaces</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-fastest-rising-youtube-stars-for-personal-growth-and-motivation/"><u>[New] The Fastest Rising YouTube Stars for Personal Growth and Motivation</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2023s-ultimate-guide-apeaksoft-screen-capture-tech-unveiled/"><u>[Updated] 2023'S Ultimate Guide Apeaksoft Screen Capture Tech Unveiled</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-expert-advice-incorporating-narrative-elements-into-youtube-videos/"><u>[Updated] 2024 Approved Expert Advice Incorporating Narrative Elements Into YouTube Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-vanishing-acts-how-to-blur-faces-and-objects-online/"><u>[Updated] 2024 Approved Vanishing Acts How to Blur Faces and Objects Online</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-bright-beginnings-quick-ways-to-brighten-iphone-clips-and-more/"><u>[Updated] Bright Beginnings Quick Ways to Brighten iPhone Clips and More</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-becoming-a-wealthy-beauty-channel-host/"><u>[Updated] In 2024, Becoming a Wealthy Beauty Channel Host</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-ultimate-guide-to-cost-effective-media-providers-online/"><u>[Updated] In 2024, The Ultimate Guide to Cost-Effective Media Providers Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-ultimate-guide-to-learning-top-15-sci-yt-channels/"><u>[Updated] In 2024, The Ultimate Guide to Learning Top 15 Sci-YT Channels</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-industry-insiders-reveal-their-favorite-gif-makers/"><u>[Updated] Industry Insiders Reveal Their Favorite GIF Makers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-join-the-fortune-changing-club-free-50-banners-await-for-2024/"><u>[Updated] Join The Fortune-Changing Club Free 50 Banners Await for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unwind-with-laughter-curating-15-hilarious-youtube-masterpieces/"><u>[Updated] Unwind with Laughter Curating 15 Hilarious YouTube Masterpieces</u></a></li>
+<li><a href="https://extra-information.techidaily.com/12-best-html5-video-players-you-should-know-for-2024/"><u>12 Best Html5 Video Players You Should Know for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-apple-iphone-13-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From Apple iPhone 13</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/el-identity-visualization-the-ultimate-toolkit-of-10/"><u>Channel Identity Visualization The Ultimate Toolkit of 10</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/el-transformation-through-strategic-use-of-youtube-outros/"><u>Channel Transformation Through Strategic Use of YouTube Outros</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-the-right-video-sharing-platform-tiktok-vs-youtubes-shorts-in-2024/"><u>Choosing the Right Video Sharing Platform TikTok vs YouTubes' Shorts, In 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-youtubes-best-video-editing-practices/"><u>Decoding YouTube's Best Video Editing Practices</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/expert-tips-to-fix-blue-screen-of-death-from-driver-overrun-errors/"><u>Expert Tips to Fix Blue Screen of Death From Driver Overrun Errors</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/hassle-free-download-and-update-guide-for-dell-monitor-drivers/"><u>Hassle-Free Download & Update Guide for Dell Monitor Drivers</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor Magic 6? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-swift-valorant-image-crafting-professionally-done-on-the-fly/"><u>In 2024, Swift Valorant Image Crafting Professionally Done on the Fly</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/pload-process-stream-convert-and-share-on-youtube-quickly-for-2024/"><u>MP3 Upload Process Stream, Convert & Share on YouTube Quickly for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ting-your-journey-channeling-authenticity-online/"><u>Narrating Your Journey Channeling Authenticity Online.</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-strategies-for-flawless-srt-file-creation-for-2024/"><u>Ultimate Strategies for Flawless SRT File Creation for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Oppo Find N3? | Dr.fone</u></a></li>
+</ul></div>
 
 
 

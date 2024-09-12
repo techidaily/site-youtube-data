@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Key Tactics for Identifying Potential YouTube Co-Stars for 2024\""
-date: 2024-07-13T02:59:29.560Z
-updated: 2024-07-14T02:59:29.560Z
+date: 2024-09-11T06:22:47.923Z
+updated: 2024-09-12T06:22:47.923Z
 tags:
   - ai video
   - ai youtube
@@ -63,6 +63,20 @@ People sub to Roberto for tech advice, for example, so it makes sense for him to
 
 If you approach somebody about collaborating and they see that you haven’t posted in over a month, or that you don’t have many videos, it might be harder to get them to agree to work with you. The same goes if they watch your videos and don’t think they are at the same quality level as their videos.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Tips From YouTube Guru Nich Nimmin
 
 This is a collab video about collab videos! **[Nick Nimmin’s](https://www.youtube.com/channel/UCei6wyubYC1I1FwZ54LZFiA)** channel is all about YouTube, and Brandon’s channel **[OnePercentBetter](https://www.youtube.com/channel/UCRI6t05DNVlV0XhdI7hx%5Fiw)** has tons of cool self-development animations. It’s Brandon giving the tips in this video, and 3 of his best are:
@@ -78,6 +92,20 @@ When you’re approaching someone for the first time, don’t overwhelm them wit
 #### **3\. Have ideas.**
 
 Don’t make your potential partner do the work of pitching ideas to you. Be open to their ideas, but come up with 1 or 2 ideas of your own you can mention when you approach the creator you want to work with. People will be more likely to say ‘yes’ to a specific idea than to the idea of collaborating in general, if they don’t already know you.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Tips From Freelancer / Lifestyle Vlogger Amy Schmittauer
 
@@ -97,6 +125,26 @@ If you appeared in someone else’s video, you would probably appreciate it if t
 
  _Collab advice starts at around 2:10._
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Tips From Lifestyle and Fashion YouTuber MyLifeAsEva
 
 **[Eva Gutowski](https://www.youtube.com/user/mylifeaseva/featured)** (MyLifeAsEva) is a lifestyle, fashion, and DIY YouTuber who has done numerous collaborations and believes in making real friends on YouTube. In the video above she shares some of her experiences and talks about how to come across as a real person when you approach other YouTubers about collaborating.
@@ -115,11 +163,59 @@ Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an
 
  Do you have any of your advice on YouTube collaborations?
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Excellent YouTube Video Editor Always Save Your Time
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Richard Bennett
 
@@ -142,6 +238,56 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-bebops-avian-evolution-strikes-again-with-parrot-2/"><u>[New] Bebop's Avian Evolution Strikes Again with Parrot 2</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-chat-commander-the-ultimate-guide-to-text-from-voice/"><u>[New] Chat Commander The Ultimate Guide to Text From Voice</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-gear-up-essential-asmr-microphones-to-consider/"><u>[New] In 2024, Gear Up Essential ASMR Microphones to Consider</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-inside-the-monetization-maze-dailymotion-vs-youtube/"><u>[New] In 2024, Inside the Monetization Maze Dailymotion vs YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-narratives-of-the-bravest-our-favorites-in-adventure-games/"><u>[New] In 2024, Narratives of the Bravest Our Favorites in Adventure Games</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-seamless-offline-experience-best-playlist-downloader-tools-reviewed/"><u>[New] In 2024, Seamless Offline Experience Best Playlist Downloader Tools Reviewed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/idied-missing-miniature-videos-on-youtube/"><u>[New] Tidied Missing Miniature Videos on YouTube</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unlocking-the-mystery-phantoms-temporal-expansion-capabilities/"><u>[New] Unlocking the Mystery Phantom’s Temporal Expansion Capabilities</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ideo-url-minification-the-best-tools-for-youtubers-convenience-for-2024/"><u>[New] Video URL Minification The Best Tools for Youtubers' Convenience for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-flip-order-3-easy-steps-to-rewind-youtube-listeners/"><u>[Updated] 2024 Approved Flip Order 3 Easy Steps to Rewind Youtube Listeners</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-8-youtube-thumbnail-grabbers-you-should-know-for-2024/"><u>[Updated] Best 8 YouTube Thumbnail Grabbers You Should Know for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-comparative-study-of-youtubes-and-dailymentions-for-2024/"><u>[Updated] Comparative Study of YouTubes and DailyMentions for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-crafting-a-legacy-youtubers-playbook-for-success/"><u>[Updated] Crafting a Legacy YouTuber’s Playbook for Success</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-economical-microphones-catered-to-vloggers-for-2024/"><u>[Updated] Economical Microphones Catered to Vloggers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-bringing-heartwarmth-to-the-winter-5-snug-cinematographic-tips/"><u>[Updated] In 2024, Bringing Heartwarmth to the Winter 5 Snug Cinematographic Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-your-go-to-list-of-international-adventure-vids/"><u>[Updated] In 2024, Your Go-To List of International Adventure Vids</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-youtube-video-links-made-better-with-desktop-and-mobile-timestamping/"><u>[Updated] In 2024, YouTube Video Links Made Better with Desktop & Mobile Timestamping</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-start-saving-smiles-on-youtube-a-beginners-mac-tutorial-for-2024/"><u>[Updated] Start Saving Smiles on YouTube A Beginner's Mac Tutorial for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-step-by-step-looping-iphones-videos-effortlessly/"><u>[Updated] Step-by-Step Looping iPhones Videos Effortlessly</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725290425062-dvd/"><u>「動画ソロ DVDコピー 安全性と使用感想レビュー集 | ウィルスやリスクに注意するべきポイント？」</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-immersion-station-youtubes-10-best-virtual-reality-films/"><u>2024 Approved Immersion Station YouTube's 10 Best Virtual Reality Films</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/craft-perfection-transforming-your-vhs-graphics-online/"><u>Craft Perfection Transforming Your VHS Graphics Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/into-the-dos-and-donts-of-youtube-beauty-channels/"><u>Dive Into the Do's and Don'ts of YouTube Beauty Channels</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-update-corsair-h80i-v2-controller-programs/"><u>Download and Update Corsair H80i v2 Controller Programs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/te-your-videography-with-top-seo-gadgets-for-2024/"><u>Elevate Your Videography with Top SEO Gadgets for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ensuring-uninterrupted-fun-with-the-mass-effect-trilogy-expert-fixes-to-prevent-game-crash-on-pc-and-xbox-devices/"><u>Ensuring Uninterrupted Fun with the Mass Effect Trilogy: Expert Fixes to Prevent Game Crash on PC & Xbox Devices</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tial-tips-for-incorporating-dynamic-cards-in-youtube-videos-for-2024/"><u>Essential Tips for Incorporating Dynamic Cards in YouTube Videos for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/hd5770rtkosdriverupgrade/"><u>HD5770RTKOSDriverUpgrade</u></a></li>
+<li><a href="https://os-tips.techidaily.com/how-to-effortlessly-uninstall-ebooks-from-your-ibooks-collection-the-three-superior-strategies/"><u>How to Effortlessly Uninstall eBooks From Your iBooks Collection: The Three Superior Strategies</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-6s-plus-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 6s Plus without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-secure-footage-leading-stabilizers-on-youtube/"><u>In 2024, Secure Footage Leading Stabilizers on YouTube</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-infinix-zero-5g-2023-turbo-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Infinix Zero 5G 2023 Turbo Phone Pattern Lock</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-vrs-immersive-visual-experience/"><u>In 2024, Unveiling VR's Immersive Visual Experience</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/melody-makers-best-places-for-free-skype-ringtones/"><u>Melody Makers Best Places for Free Skype Ringtones</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/movavi-plus-unveiled-the-latest-edition-for-2024/"><u>Movavi Plus Unveiled – The Latest Edition for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-vivo-x90s-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Vivo X90S? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/revive-your-laptops-audio-solutions-for-non-working-sound-systems/"><u>Revive Your Laptop's Audio: Solutions for Non-Working Sound Systems</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/smartest-titles-at-your-fingertips/"><u>Smartest Titles at Your Fingertips</u></a></li>
+</ul></div>
 
 
 
