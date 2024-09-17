@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Seamless Blend of Text & Video Without Payment\""
-date: 2024-09-11T06:39:31.297Z
-updated: 2024-09-12T06:39:31.297Z
+date: 2024-09-14T23:24:26.408Z
+updated: 2024-09-16T17:15:28.791Z
 tags:
   - ai video
   - ai youtube
@@ -28,13 +28,10 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
@@ -48,45 +45,11 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
@@ -98,37 +61,9 @@ Besides presentation software, you can also use video editing software products 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
@@ -139,20 +74,6 @@ Proceed to select a font and adjust the text size before deciding if you want to
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -166,34 +87,17 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -202,52 +106,35 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-building-blocks-of-a-well-structured-youtube-video/"><u>[New] 2024 Approved Building Blocks of a Well-Structured YouTube Video</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-expert-techniques-for-uploading-youtubes-on-dailymotion/"><u>[New] 2024 Approved Expert Techniques for Uploading YouTubes on Dailymotion</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/dding-visual-time-indicators-to-your-youtube-links-for-2024/"><u>[New] Adding Visual Time Indicators to Your YouTube Links for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/uilding-a-billion-view-empire-your-step-by-step-youtube-strategy/"><u>[New] Building a Billion-View Empire Your Step-by-Step Youtube Strategy</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-full-review-and-tutorial-s-video-show-app/"><u>[New] Full Review & Tutorial 'S Video Show App</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-budget-friendly-broadcaster-gear-for-video-voyeurs/"><u>[New] In 2024, Budget-Friendly Broadcaster Gear for Video Voyeurs</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-skyrocketing-subscribers-free-techniques-for-youtube-success/"><u>[New] In 2024, Skyrocketing Subscribers Free Techniques for YouTube Success</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-the-economics-of-youtube-ad-revenues-per-1000-views/"><u>[New] In 2024, The Economics of YouTube Ad Revenues per 1000 Views</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/atire-spectacle-youtubes-top-comedic-talent-list/"><u>[New] Satire Spectacle YouTube's Top Comedic Talent List</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-route-to-revenue-crafting-content-around-consumer-commodities/"><u>[New] The Route to Revenue Crafting Content Around Consumer Commodities</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nlimited-christmas-classics-9-films-available-for-no-charge/"><u>[New] Unlimited Christmas Classics 9 Films Available for No Charge</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-adding-emojis-in-youtube-discussions/"><u>[Updated] 2024 Approved Adding Emojis in YouTube Discussions</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-key-principles-to-uphold-youtube-civility/"><u>[Updated] 2024 Approved Key Principles to Uphold YouTube Civility</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-teen-riches-skyrocket-with-viral-video-empire/"><u>[Updated] 2024 Approved Teen Riches Skyrocket with Viral Video Empire</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-create-impactful-youtube-videos-top-20-font-picks/"><u>[Updated] Create Impactful YouTube Videos Top 20 Font Picks</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-outstanding-movies-overlooked-by-critics/"><u>[Updated] In 2024, Outstanding Movies Overlooked by Critics</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-step-by-step-guide-to-music-insertion-in-youtube-editing-tools/"><u>[Updated] In 2024, Step-by-Step Guide to Music Insertion in YouTube Editing Tools</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-mastering-mobile-asmr-must-have-apps/"><u>[Updated] Mastering Mobile ASMR Must-Have Apps</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-navigating-youtubes-maker-central-interface/"><u>[Updated] Navigating YouTube's Maker Central Interface</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-pantheon-of-youtubes-all-time-highest-views/"><u>[Updated] Pantheon of YouTube's All-Time Highest Views</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-youtube-video-ranking-breakdown-how-it-works/"><u>[Updated] YouTube Video Ranking Breakdown How It Works</u></a></li>
-<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Samsung Galaxy M34 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-elevate-your-content-the-secrets-to-increased-subscribers/"><u>2024 Approved Elevate Your Content The Secrets to Increased Subscribers</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-expert-reviews-best-multi-user-call-services/"><u>2024 Approved Expert Reviews Best Multi-User Call Services</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-quick-captivating-content-learn-with-our-youtube-shorts-guide/"><u>2024 Approved Quick, Captivating Content? Learn with Our YouTube Shorts Guide</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-iphone-14-plus-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From iPhone 14 Plus</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/tifying-creator-studio-a-practical-handbook-for-2024/"><u>Demystifying Creator Studio A Practical Handbook for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/ensure-seamless-graphics-with-newly-downloaded-radeon-hd-7850-driver-for-windows-10/"><u>Ensure Seamless Graphics with Newly Downloaded Radeon HD 7850 Driver for Windows 10</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ag-wisdom-jumpstart-your-6-figure-youtube-rank/"><u>Hashtag Wisdom Jumpstart Your 6-Figure Youtube Rank</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-vivo-y02t-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Vivo Y02T Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-a79-5g-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo A79 5G To Phone | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-guide-to-choosing-a-camera-gimbal-for-drone-photographers/"><u>In 2024, The Ultimate Guide To Choosing A Camera Gimbal For Drone Photographers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-twitter-sharing-guide-for-tiktok-content/"><u>In 2024, Twitter Sharing Guide for TikTok Content</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ating-the-shadows-an-overview-of-youtubes-unlisted-videos/"><u>Navigating the Shadows An Overview of YouTube's Unlisted Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ating-the-world-of-mp4-edits-on-apple-devices/"><u>Navigating the World of MP4 Edits on Apple Devices</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/e-your-sound-3-safe-methods-of-audio-from-youtube-for-2024/"><u>Secure Your Sound 3 Safe Methods of Audio From YouTube for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/tooninnovate-master-review-year-2024-edition/"><u>ToonInnovate Master Review - Year 2024 Edition</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/iewership-archive-youtube-visionaries/"><u>Top Viewership Archive YouTube Visionaries</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-digital-dynamics-pro-strategies-to-switch-shades/"><u>[New] Digital Dynamics Pro Strategies to Switch Shades</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-direct-hit-the-techno-friendly-way-to-upload-your-short-clips/"><u>[Updated] Direct Hit The Techno-Friendly Way to Upload Your Short Clips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-earning-in-the-e-commerce-arena-via-engaging-reviews/"><u>[Updated] Earning in the E-Commerce Arena via Engaging Reviews</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-strengthen-your-content-identity-inserting-watermarklogo-in-videos/"><u>[Updated] Strengthen Your Content Identity Inserting Watermark/Logo in Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-your-ultimate-checklist-for-channel-buying-success-for-2024/"><u>[Updated] Your Ultimate Checklist for Channel Buying Success for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/an-insightful-review-of-the-syma-x5-4-channel-rc-helicopter-ideal-for-first-time-flyers/"><u>An Insightful Review of the SYMA X5 4 Channel RC Helicopter - Ideal for First-Time Flyers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/3d-entrance-makers-for-youtube-creators-for-2024/"><u>Best 3D Entrance Makers for YouTube Creators for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1725290207964-blu-ray/"><u>Blu-Rayディスク用ガイド - 知識集結・再生手順・変換テクニック</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/effective-techniques-for-youtube-intro-creation-for-2024/"><u>Cost-Effective Techniques for YouTube Intro Creation for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-revealing-the-future-with-microsofts-hololens-analysis/"><u>In 2024, Revealing the Future with Microsoft's HoloLens Analysis</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-social-media-sovereigns-ranked-by-youtube-subscribers/"><u>In 2024, Social Media Sovereigns Ranked by YouTube Subscribers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-stutters-on-galaxy-s23-fe-and-stops-randomly-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV stutters on Galaxy S23 FE and stops randomly</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolving-wow-error-code-51900319/"><u>Resolving WoW Error Code: 51900319</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-instructions-snapping-photos-with-the-xbox-one-controller/"><u>Step-by-Step Instructions: Snapping Photos with the Xbox One Controller</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Expert Insights Into YouTube Thumbnail Design"
-date: 2024-09-11T06:40:46.551Z
-updated: 2024-09-12T06:40:46.551Z
+date: 2024-09-11T18:56:03.004Z
+updated: 2024-09-17T00:35:54.989Z
 tags:
   - ai video
   - ai youtube
@@ -36,13 +36,10 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 4. [How to Make Thumbnails that Get Clicks (Without Clickbait!)](#clicks)
 5. [Animated YouTube Thumbnails](#gif)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Part 1: How to Make a YouTube Thumbnail
 
@@ -51,26 +48,6 @@ In order to create a custom video thumbnail, you’ll need a program to put it t
 Here are some examples of popular thumbnail styles.
 
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
@@ -97,20 +74,6 @@ In some cases you might use text to make it clear what type of video you’ve ma
 You should also avoid fonts that are harder to read. Fonts with a lot of curves can be harder to read, and you want to make sure you choose a color that stands out from your background. Yellow might work against black, but it probably won’t work against the beige wall of your sunny bedroom. Sans serif fonts tend to be best.
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
@@ -142,25 +105,12 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 2: How to Upload a YouTube Thumbnail
 
@@ -179,25 +129,12 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 3: YouTube Thumbnail Makers
 
@@ -265,41 +202,14 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Richard Bennett
 
@@ -307,14 +217,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -323,60 +230,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-finalizing-account-deletion-on-instagram-method-and-tips/"><u>[New] 2024 Approved Finalizing Account Deletion on Instagram Method and Tips</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-premier-essentials-seamless-audio-switching/"><u>[New] 2024 Approved Premier Essentials Seamless Audio Switching</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/rafting-engaging-youtube-videos-using-finalcut-pro-expertise/"><u>[New] Crafting Engaging YouTube Videos Using FinalCut Pro Expertise</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-cutting-edge-chapter-tactics-to-complement-your-youtube-presentations/"><u>[New] In 2024, Cutting-Edge Chapter Tactics to Complement Your YouTube Presentations</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-football-inscriptions-premier-fifa-youtube-insights/"><u>[New] In 2024, Football Inscriptions Premier FIFA YouTube Insights</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-pro-streamers-compendium-essential-livestream-software-and-hardware-for-success/"><u>[New] In 2024, Pro Streamer's Compendium Essential Livestream Software and Hardware for Success</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/aunching-into-creation-equipment-essentials-for-youtubers-for-2024/"><u>[New] Launching Into Creation Equipment Essentials for YouTubers for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ics-and-more-discovering-the-audio-essential-that-matches-your-yt-vision-for-2024/"><u>[New] Mics & More Discovering the Audio Essential That Matches Your YT Vision for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-ppt-visualization-leveraging-webcam-tech-for-2024/"><u>[New] PPT Visualization Leveraging Webcam Tech for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/uick-info-on-short-form-media/"><u>[New] Quick Info on Short Form Media</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/epeat-revelry-twice-the-joy-with-televised-video-repetition-for-2024/"><u>[New] Repeat Revelry Twice the Joy with Televised Video Repetition for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-boosting-collaboration-mastering-real-time-photography-on-google-meet/"><u>[Updated] 2024 Approved Boosting Collaboration Mastering Real-Time Photography on Google Meet</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-essential-guide-to-aspect-ratios-for-effective-youtube-engagement/"><u>[Updated] 2024 Approved Essential Guide to Aspect Ratios for Effective YouTube Engagement</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-ultimate-guide-to-youtube-copyright/"><u>[Updated] 2024 Approved The Ultimate Guide to YouTube Copyright</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unveiling-the-secrets-how-to-clear-yt-background/"><u>[Updated] 2024 Approved Unveiling the Secrets How to Clear YT Background</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-access-royalty-free-beats-for-your-vlog-and-more-for-2024/"><u>[Updated] Access Royalty-Free Beats for Your Vlog & More for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-crafting-engaging-youtube-video-layouts-for-2024/"><u>[Updated] Crafting Engaging YouTube Video Layouts for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-elevating-your-facebook-presence-dji-drone-streaming-tips-for-2024/"><u>[Updated] Elevating Your Facebook Presence DJI Drone Streaming Tips for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-how-you-can-get-paid-for-videos/"><u>[Updated] How You Can Get Paid for Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-deciphering-youtube-conversations/"><u>[Updated] In 2024, Deciphering YouTube Conversations</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-practical-techniques-for-rapid-deletion-of-comments/"><u>[Updated] In 2024, Practical Techniques for Rapid Deletion of Comments</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-streamlining-video-dispatch-to-facebook-from-youtube/"><u>[Updated] In 2024, Streamlining Video Dispatch to Facebook From YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-leverage-audience-engagement-through-strategic-posting/"><u>[Updated] Leverage Audience Engagement Through Strategic Posting</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-mastering-the-art-of-youtube-brand-creation-best-names-for-vloggers-and-filmmakers-limit-to-156-characters/"><u>[Updated] Mastering the Art of YouTube Brand Creation Best Names for Vloggers & Filmmakers (Limit to 156 Characters)</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-perfect-360-videography-streaming-tips-for-youtube-for-2024/"><u>[Updated] Perfect 360 Videography Streaming Tips for YouTube for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-streamlining-video-production-green-screen-magic-unveiled/"><u>[Updated] Streamlining Video Production Green Screen Magic Unveiled</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-the-3-step-structure-for-successful-subscriber-profit-analysis-a-guide-from-google-for-2024/"><u>[Updated] The 3-Step Structure for Successful Subscriber Profit Analysis A Guide From Google for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-engaging-subjects-for-consistent-vlogging/"><u>2024 Approved Engaging Subjects for Consistent Vlogging</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-from-dull-to-delightful-how-to-craft-standout-youtube-thumbnails/"><u>2024 Approved From Dull to Delightful How To Craft Standout YouTube Thumbnails</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/e-a-youtube-live-expert-strategies-and-insights/"><u>Become a YouTube Live Expert Strategies and Insights</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/cant-access-recovered-photo-files/"><u>Can't Access Recovered Photo Files</u></a></li>
-<li><a href="https://win-answers.techidaily.com/complete-fixes-for-zoom-black-screen-problems-in-windows-ultimate-guide/"><u>Complete Fixes for Zoom Black Screen Problems in Windows: Ultimate Guide</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/content-medium-match-up-audiophiles-vs-youtube-viewers/"><u>Content Medium Match-Up Audiophiles Vs. YouTube Viewers</u></a></li>
-<li><a href="https://win-dash.techidaily.com/effortless-installation-of-intel-chip-drivers-for-your-pc/"><u>Effortless Installation of Intel Chip Drivers for Your PC</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-meizu-21-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Meizu 21 | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-6-plus-to-other-iphone-15-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 6 Plus to other iPhone 15 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-vimeo-vs-youtube-differences-between-vimeo-and-youtube/"><u>In 2024, Vimeo vs YouTube Differences Between Vimeo and YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ating-with-youtube-studio-editor-for-next-gen-videos-for-2024/"><u>Innovating with YouTube Studio Editor for Next-Gen Videos for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ring-youtube-stat-tracking-essentials/"><u>Mastering YouTube Stat Tracking Essentials</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ering-platforms-for-no-cost-media-downloads/"><u>Pioneering Platforms for No-Cost Media Downloads</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/solved-why-is-adobe-premiere-pro-crashing-on-your-windows-11-or-10-machine/"><u>Solved! Why Is Adobe Premiere Pro Crashing on Your Windows 11 or 10 Machine?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ring-your-youtube-audience-the-detailed-guide/"><u>Tailoring Your YouTube Audience - The Detailed Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uncover-the-secret-to-quick-latin-proficiency/"><u>Uncover the Secret to Quick Latin Proficiency</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ng-subscribers-through-shared-playlists-for-2024/"><u>Uniting Subscribers Through Shared Playlists for 2024</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-discovering-the-best-8-android-compatible-daws-for-musicians-and-producers-for-2024/"><u>Updated Discovering the Best 8 Android-Compatible DAWs for Musicians and Producers for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/l-producer-hub/"><u>Visual Producer Hub</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-understanding-permissions-the-key-to-saving-google-meets/"><u>[New] 2024 Approved Understanding Permissions The Key to Saving Google Meets</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-capturing-your-browsing-journey-top-2023-web-recorder-software/"><u>[New] Capturing Your Browsing Journey Top 2023 Web Recorder Software</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/valuating-dailymotion-vs-youtube-profitability/"><u>[New] Evaluating Dailymotion vs YouTube Profitability</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-key-to-earning-on-youtube-in-depth-ad-revenue-guidebook-for-2024/"><u>[New] The Key to Earning on YouTube In-Depth Ad Revenue Guidebook for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-srt-innovation-how-technology-shapes-industry-standards/"><u>[Updated] SRT Innovation How Technology Shapes Industry Standards</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/9-ultimate-free-online-editors-for-content-creators/"><u>9 Ultimate Free Online Editors for Content Creators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/practices-boosting-your-game-videos-with-tags/"><u>Best Practices Boosting Your Game Videos with Tags</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/check-manufacturer-websites-directly-as-they-may-offer-exclusive-rebates-or-incentives-not-available-through-third-party-sellers/"><u>Check Manufacturer Websites Directly as They May Offer Exclusive Rebates or Incentives Not Available Through Third-Party Sellers.</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-motorola-moto-g14-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Motorola Moto G14 in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-streaming-success-choose-the-right-stabilizer-brand/"><u>In 2024, Streaming Success Choose the Right Stabilizer Brand</u></a></li>
 </ul></div>
-
-
-
 

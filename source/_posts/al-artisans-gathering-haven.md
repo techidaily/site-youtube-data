@@ -1,7 +1,7 @@
 ---
 title: "Digital Artisans Gathering Haven"
-date: 2024-07-13T02:51:32.404Z
-updated: 2024-07-14T02:51:32.404Z
+date: 2024-09-14T20:56:44.608Z
+updated: 2024-09-16T23:40:30.043Z
 tags:
   - ai video
   - ai youtube
@@ -75,9 +75,29 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
@@ -95,20 +115,24 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,6 +141,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-professional-level-edits-made-simple-10-pixlr-strategies/"><u>[New] 2024 Approved Professional-Level Edits Made Simple 10 Pixlr Strategies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ce-your-edits-in-depth-guide-to-high-quality-youtube-videos-for-2024/"><u>[New] Ace Your Edits In-Depth Guide to High-Quality YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-professional-content-creators-guide-studio-vs-beta-platform/"><u>[New] In 2024, Professional Content Creator's Guide Studio Vs. Beta Platform</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/avigating-through-top-10-youtube-mp3-extractors/"><u>[New] Navigating Through Top 10 YouTube Mp3 Extractors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-how-to-avoid-the-biggest-slip-ups-for-new-youtube-enthusiasts-for-2024/"><u>[Updated] How to Avoid the Biggest Slip-Ups for New YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-obs-studio-vs-fraps-which-is-a-better-screen-capture-software/"><u>[Updated] In 2024, OBS Studio vs Fraps – Which Is A Better Screen Capture Software?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-maximizing-your-reach-with-snapchat-highlights/"><u>[Updated] Maximizing Your Reach with Snapchat Highlights</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-step-by-step-customizing-your-youtube-channel-url/"><u>2024 Approved Step-by-Step Customizing Your YouTube Channel URL</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-your-youtube-content-for-specific-crowds/"><u>Crafting Your YouTube Content for Specific Crowds</u></a></li>
+<li><a href="https://windows11.techidaily.com/enrich-your-windows-setup-with-personal-menus/"><u>Enrich Your Windows Setup with Personal Menus</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-latest-samsung-bd-j5900-updated-review-2023/"><u>In 2024, Latest Samsung BD-J5900 Updated Review 2023</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-the-epitome-of-hd-recording-curated-list-unveiled/"><u>In 2024, The Epitome of HD Recording Curated List Unveiled</u></a></li>
+<li><a href="https://fox-info.techidaily.com/streamlining-cd-manipulation-with-wmp-for-2024/"><u>Streamlining Cd Manipulation with WMP for 2024</u></a></li>
+</ul></div>
 

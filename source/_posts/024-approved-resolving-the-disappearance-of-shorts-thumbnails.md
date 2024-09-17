@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Resolving the Disappearance of Shorts Thumbnails\""
-date: 2024-07-13T02:55:43.127Z
-updated: 2024-07-14T02:55:43.127Z
+date: 2024-09-14T01:54:55.425Z
+updated: 2024-09-16T20:42:21.483Z
 tags:
   - ai video
   - ai youtube
@@ -107,6 +107,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Click "Library" on the left panel.
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
@@ -114,6 +121,20 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### On a Mobile Phone
 
@@ -181,6 +202,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
@@ -198,6 +226,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Scroll down to find "Liked Videos." Click on it.
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
@@ -221,8 +256,6 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -230,6 +263,17 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/he-easy-guide-to-youtube-to-avi-conversion-technology-for-2024/"><u>[New] The Easy Guide to YouTube-to-AVI Conversion Technology for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-pro-gamers-preferred-video-capture/"><u>[Updated] 2024 Approved Pro Gamers' Preferred Video Capture</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-swift-and-smooth-your-ultimate-guide-to-iphone-podcast-downloading/"><u>[Updated] Swift & Smooth Your Ultimate Guide to iPhone Podcast Downloading</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-add-multiple-waypoints-on-google-maps-with-ease-and-precision/"><u>How to Add Multiple Waypoints on Google Maps with Ease and Precision</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-high-performance-graphics-displayed-by-asus-proart/"><u>In 2024, High-Performance Graphics Displayed by ASUS ProArt</u></a></li>
+<li><a href="https://win-answers.techidaily.com/navigating-through-the-true-colours-game-bug-for-a-smoother-experience/"><u>Navigating Through the 'True Colours' Game Bug for a Smoother Experience</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1724313110432-optimized-with-the-help-of-cookiebot-enhancing-your-websites-performance/"><u>Optimized with the Help of Cookiebot: Enhancing Your Website's Performance</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/scape-sanctuary-free-high-resolution-dj-videos-available/"><u>Soundscape Sanctuary Free High-Resolution DJ Videos Available</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/understanding-and-repairing-windows-media-player-server-problem-on-your-pc-solved/"><u>Understanding and Repairing Windows Media Player Server Problem on Your PC [Solved]</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/shing-video-potential-the-imovie-blueprint-for-youtube-editors-for-2024/"><u>Unleashing Video Potential The iMovie Blueprint for YouTube Editors for 2024</u></a></li>
+</ul></div>
 

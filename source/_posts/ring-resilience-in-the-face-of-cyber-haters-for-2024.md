@@ -1,7 +1,7 @@
 ---
 title: "Fostering Resilience in the Face of Cyber Haters for 2024"
-date: 2024-09-11T06:36:37.160Z
-updated: 2024-09-12T06:36:37.160Z
+date: 2024-09-10T02:26:36.529Z
+updated: 2024-09-16T22:32:44.178Z
 tags:
   - ai video
   - ai youtube
@@ -25,20 +25,6 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -68,34 +54,17 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,53 +73,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-early-birds-youtube-strategies-for-channel-and-revenue/"><u>[New] 2024 Approved Early Bird's Youtube Strategies for Channel and Revenue</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-hands-on-tips-for-masterful-video-edits-with-youtube-studio/"><u>[New] 2024 Approved Hands-On Tips for Masterful Video Edits with YouTube Studio</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/mplifying-engagement-with-leading-youtube-ranks-top-8-apps-for-2024/"><u>[New] Amplifying Engagement with Leading YouTube Ranks Top 8 Apps for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-quick-cadence-chronicles-role-sound-narrative/"><u>[New] In 2024, Quick Cadence Chronicles Role-Sound Narrative</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-technique-for-anonymous-footage-via-image-smoothing/"><u>[New] In 2024, Technique for Anonymous Footage via Image Smoothing</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nnovative-daily-vlog-themes-for-2024/"><u>[New] Innovative Daily Vlog Themes for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ntegrating-annotations-for-enhanced-engagement-for-2024/"><u>[New] Integrating Annotations for Enhanced Engagement for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/anking-8-proven-online-promotion-techniques-for-videos-for-2024/"><u>[New] Ranking 8 Proven Online Promotion Techniques for Videos for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/treamlined-approach-upload-your-videos-from-youtube-to-dailymotion/"><u>[New] Streamlined Approach Upload Your Videos From YouTube to Dailymotion</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-ultimate-list-of-virtual-journeys-by-channel/"><u>[New] The Ultimate List of Virtual Journeys, By Channel</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-ultimate-guide-to-high-quality-cost-free-webm-viewers/"><u>[New] Ultimate Guide to High-Quality, Cost-Free WebM Viewers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/outube-shorts-success-error-free-techniques-for-2024/"><u>[New] YouTube Shorts Success Error-Free Techniques for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-engage-efficiently-strategies-for-surge-in-social-media-shares/"><u>[Updated] 2024 Approved Engage Efficiently Strategies for Surge in Social Media Shares</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-ultimate-guidebook-to-making-wealth-on-instagram/"><u>[Updated] 2024 Approved The Ultimate Guidebook to Making Wealth on Instagram</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-decreasing-decibels-a-lumafusion-approach/"><u>[Updated] In 2024, Decreasing Decibels A Lumafusion Approach</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-how-to-install-your-complete-guide-to-vrecord/"><u>[Updated] In 2024, How to Install Your Complete Guide to VRecord</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-navigating-through-youtubes-content-id-system-issues/"><u>[Updated] In 2024, Navigating Through YouTube's Content ID System Issues</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-top-10-histology-streams-for-academics/"><u>[Updated] In 2024, Top 10 Histology Streams for Academics</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-maximizing-your-youtube-click-through-rate-upload-schedule-insights/"><u>[Updated] Maximizing Your YouTube Click-Through Rate Upload Schedule Insights</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-revenue-rationale-calculating-your-average-earning-from-adsense-per-k-views-for-2024/"><u>[Updated] Revenue Rationale Calculating Your Average Earning From AdSense per K Views for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-go-global-quickly-optimal-tags-to-escalate-your-youtube-snippets/"><u>2024 Approved Go Global Quickly Optimal Tags to Escalate Your YouTube Snippets</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-step-by-step-guide-to-adjust-youtube-video-speeds-on-the-fly/"><u>2024 Approved Step-By-Step Guide to Adjust YouTube Video Speeds on the Fly</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/ace-your-gameplay-innovative-tvs-to-boost-your-xbox-series-x-adventure/"><u>Ace Your Gameplay Innovative TVs to Boost Your Xbox Series X Adventure</u></a></li>
-<li><a href="https://extra-information.techidaily.com/alives-low-residue-sound-technique/"><u>Alive's Low-Residue Sound Technique</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/beginners-pathway-to-livestreaming-on-facebook-and-mobile-devices/"><u>Beginner's Pathway to Livestreaming on Facebook and Mobile Devices</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/boost-your-game-presence-a-comprehensible-guide-to-freegame-hashtags-for-2024/"><u>Boost Your Game Presence A Comprehensible Guide to FreeGame Hashtags for 2024</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/free-and-fabulous-best-video-special-effects-apps-for-iphone-and-android/"><u>Free and Fabulous Best Video Special Effects Apps for iPhone and Android</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/guard-against-these-5-dangerous-chatgpt-manipulations/"><u>Guard Against These 5 Dangerous ChatGPT Manipulations</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-makeup-techniques-step-by-step-youtube-guide/"><u>Haute Makeup Techniques Step-by-Step YouTube Guide</u></a></li>
-<li><a href="https://review-topics.techidaily.com/identify-missing-or-malfunctioning-your-drivers-with-windows-device-manager-in-windows-7-by-drivereasy-guide/"><u>Identify missing or malfunctioning your drivers with Windows Device Manager in Windows 7</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-10-key-tactics-to-amplify-your-youtube-presence-and-engagement/"><u>In 2024, 10 Key Tactics to Amplify Your YouTube Presence and Engagement</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-audio-wizardry-in-action-techniques-for-professional-video-sound-recording/"><u>In 2024, Audio Wizardry in Action Techniques for Professional Video Sound-Recording</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-charting-the-future-essential-online-stock-yts/"><u>In 2024, Charting the Future Essential Online Stock YTs</u></a></li>
-<li><a href="https://network-issues.techidaily.com/lenovo-tap-failure-now-fully-operational/"><u>Lenovo Tap Failure, Now Fully Operational</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/overcoming-graphical-challenges-overwatch-updates/"><u>Overcoming Graphical Challenges, Overwatch Updates!</u></a></li>
-<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-nokia-c32-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Nokia C32 | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/transforming-xbox-experiences-through-effective-capture-techniques-for-2024/"><u>Transforming Xbox Experiences Through Effective Capture Techniques for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/k-potential-top-free-video-opener-hacks-for-2024/"><u>Unlock Potential Top Free Video Opener Hacks for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/bes-everlasting-titles-with-millions-of-viewers/"><u>YouTube's Everlasting Titles with Millions of Viewers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-how-to-remove-jello-effect-from-an-aerial-video/"><u>[New] How to Remove Jello Effect From an Aerial Video</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-skyrocketing-popularity-youtube-visibility-techniques/"><u>[Updated] 2024 Approved Skyrocketing Popularity YouTube Visibility Techniques</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-youtube-mastery-made-simple-the-top-20-must-know-strategies/"><u>[Updated] In 2024, YouTube Mastery Made Simple The Top 20 Must-Know Strategies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-lightning-fast-windowed-photo-reader-for-win11-for-2024/"><u>[Updated] Lightning-Fast Windowed Photo Reader for Win11 for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-insiders-tips-where-to-buy-a-profitable-youtubes/"><u>2024 Approved The Insider's Tips Where to Buy a Profitable Youtubes</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/best-ai-photo-editor-software/"><u>Best AI Photo Editor Software</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-from-iphone-6s-plus-by-drfone-ios/"><u>How to Fix when Apple Account Locked From iPhone 6s Plus?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aging-view-counts-for-financial-freedom-online-for-2024/"><u>Leveraging View Counts for Financial Freedom Online for 2024</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-update-drivers-in-windows-10-and-7-by-drivereasy-guide/"><u>Use Device Manager to update drivers in Windows 10 & 7</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

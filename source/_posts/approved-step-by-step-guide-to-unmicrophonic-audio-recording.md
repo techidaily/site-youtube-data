@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Step-by-Step Guide to Unmicrophonic Audio Recording\""
-date: 2024-07-13T02:53:15.273Z
-updated: 2024-07-14T02:53:15.273Z
+date: 2024-09-09T22:00:00.228Z
+updated: 2024-09-16T17:15:31.191Z
 tags:
   - ai video
   - ai youtube
@@ -61,6 +61,13 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -79,6 +86,13 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -86,6 +100,19 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
+
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -109,14 +136,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -125,6 +149,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-maximize-impact-with-customized-youtube-end-screen-templates/"><u>[New] In 2024, Maximize Impact with Customized YouTube End Screen Templates</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ext-gen-gamers-wealth-wave-predictions-for-2024/"><u>[New] Next-Gen Gamers' Wealth Wave Predictions for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-financial-flip-understanding-1-million-views-payoff-for-2024/"><u>[New] The Financial Flip Understanding 1 Million Views Payoff for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/arm-up-your-visuals-a-guide-to-top-cozy-winter-backgrounds-for-2024/"><u>[New] Warm Up Your Visuals A Guide to Top Cozy Winter Backgrounds for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-1-5-best-url-trimmer-tools-for-youtube-videos-for-2024/"><u>[Updated] 1-5 Best URL Trimmer Tools for YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-lead-the-pack-identifying-the-best-facebook-timetabling-software/"><u>[Updated] 2024 Approved Lead the Pack Identifying the Best Facebook Timetabling Software</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-optimizing-your-video-images-for-instagram-highlights/"><u>[Updated] 2024 Approved Optimizing Your Video Images for Instagram Highlights</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-android-screencasting-methods-unveiled/"><u>[Updated] Android Screencasting Methods Unveiled</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-nokia-c300-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/disabling-iphone-15-pro-parental-restrictions-withwithout-password-by-drfone-ios/"><u>Disabling iPhone 15 Pro Parental Restrictions With/Without Password</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/experience-the-ultimate-multipurpose-anker-maggo-magnetic-charger-station-featuring-qi-usb-c-and-6-additional-ports/"><u>Experience the Ultimate Multipurpose Anker MagGo Magnetic Charger Station: Featuring Qi, USB-C, and 6 Additional Ports</u></a></li>
+<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-realme-gt-3-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exploration-of-distinct-video-camera-kinds/"><u>In 2024, Exploration of Distinct Video Camera Kinds</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/isovob/"><u>ISOファイルからVOBへの優れた転送技術: 品質保持を実現</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/standing-income-dynamics-from-trending-youtube-shorts-for-2024/"><u>Understanding Income Dynamics From Trending YouTube Shorts for 2024</u></a></li>
+</ul></div>
 

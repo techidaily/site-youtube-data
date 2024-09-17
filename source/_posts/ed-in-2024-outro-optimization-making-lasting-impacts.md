@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Outro Optimization  Making Lasting Impacts\""
-date: 2024-07-13T02:56:05.524Z
-updated: 2024-07-14T02:56:05.524Z
+date: 2024-09-13T01:24:37.588Z
+updated: 2024-09-17T02:24:49.616Z
 tags:
   - ai video
   - ai youtube
@@ -114,11 +114,31 @@ Now highlight the shape layers again by shift. Right-click and add "Layer Styles
 
 ![effects added](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-6.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 7: Customize Background
 
 From the "Effects and Preset" panel, you can add different "Animation Presets" to your background. Choose one that you like and drag it on the layer.
 
 ![customize your background](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 8: Add Text and Icons
 
@@ -150,11 +170,25 @@ Step 3: Find the YouTube outro from the Filmora Titles folder. Then drag and app
 
 ![apply the youtube outro to your video](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-16.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: 5 Video Effects to Help You Create a Stunning YouTube Outro
 
 Still, looking for an easy way to create stunning outros for YouTube? [Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) has just the answer for you acting as a resource library. Filmstock offers splendid video tools, including transitions, templates, stock footage, and royalty-free music. You can create professional-quality videos using Filmstock's valuable assets.
 
 Below are some prestigious YouTube outro templates by Filmstock, which you incorporate in your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. YouTube Subscribe Reminders
 
@@ -173,6 +207,13 @@ The 4K YouTube Motion Graphics Packaging contains multiple title templates from 
 Looking for a clean and elegant design for your YouTube outro? Filmstock's Clean YouTube Subscribe Pack does that task for you. The pack contains 13 different title templates and elements that can be used on Filmora 9.6\. The simple and modest set includes subscribing reminders on red backgrounds to help your channel grow and flourish.
 
 ![clean youtube subscribe pack](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Social Media Icons Pack
 
@@ -200,14 +241,11 @@ Max Wales is a writer and a lover of all things video.
 
 Follow @Max Wales
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -216,6 +254,21 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/iscover-12-cutting-edge-flip-screen-cams-for-video-content/"><u>[New] Discover 12 Cutting-Edge Flip-Screen Cams for Video Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ync-your-device-pace-youtube-audio-control-guide/"><u>[New] Sync Your Device Pace YouTube Audio Control Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outubes-prime-stream-essential-tech-equipment-guide-for-creators/"><u>[New] YouTube's Prime Stream Essential Tech, Equipment Guide for Creators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-troubleshooting-made-easy-youtube-shorts-edition/"><u>[Updated] 2024 Approved Troubleshooting Made Easy YouTube Shorts Edition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-prime-iphone-photography-top-app-picks-x-7/"><u>[Updated] In 2024, Prime iPhone Photography Top App Picks (X, 7)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-digital-delights-top-15-comical-creations-on-youtube-bars/"><u>2024 Approved Digital Delights Top 15 Comical Creations on YouTube Bars</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-exploring-latest-wins-windows-10-enhancements/"><u>2024 Approved Exploring Latest Wins Windows 10 Enhancements</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-navigating-the-social-sphere-of-tiktok-lives/"><u>2024 Approved Navigating the Social Sphere of TikTok Lives</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-roadmap-to-youtube-stardom-with-1000plus-followers/"><u>2024 Approved The Roadmap to YouTube Stardom with 1000+ Followers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/evaluating-camstudios-latest-screen-recording-features/"><u>Evaluating CamStudio's Latest Screen Recording Features</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-itel-s23plus-drfone-by-drfone-android/"><u>How to Screen Mirroring Itel S23+? | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/unlock-the-power-of-slow-mo-with-these-android-hacks/"><u>Unlock the Power of Slow Mo with These Android Hacks</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/upgrade-your-logitech-g510-experience-free-driver-downloads-for-windows-operating-systems-7-8-and-10/"><u>Upgrade Your Logitech G510 Experience: Free Driver Downloads for Windows Operating Systems 7, 8 & 10</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/windowsdvd-seo/"><u>Windows上でDVDへの動画・ファイルバックアップ方法: ベストSEOツールとチュートリアル</u></a></li>
+</ul></div>
 

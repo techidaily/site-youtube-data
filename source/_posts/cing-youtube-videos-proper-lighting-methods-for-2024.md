@@ -1,7 +1,7 @@
 ---
 title: "\"Enhancing YouTube Videos  Proper Lighting Methods for 2024\""
-date: 2024-07-13T02:53:17.511Z
-updated: 2024-07-14T02:53:17.511Z
+date: 2024-09-10T01:41:26.788Z
+updated: 2024-09-16T19:12:44.525Z
 tags:
   - ai video
   - ai youtube
@@ -69,11 +69,25 @@ If you rather not deal with all the window and home lighting challenges, you can
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -95,6 +109,19 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -103,14 +130,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,6 +143,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-a-thorough-guide-to-thriving-in-stardews-hidden-landmark-ginger-isle-for-2024/"><u>[New] A Thorough Guide to Thriving in Stardew's Hidden Landmark Ginger Isle for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-reloading-the-dead-ranking-eminent-zombie-games/"><u>[New] In 2024, Reloading the Dead Ranking Eminent Zombie Games</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-from-clicks-to-cash-how-jake-paul-leveraged-youtube-for-2024/"><u>[Updated] From Clicks to Cash How Jake Paul Leveraged YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-complete-guide-what-does-unlisted-mean-on-youtube/"><u>[Updated] In 2024, Complete Guide What Does Unlisted Mean on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-pioneering-sustainability-transforming-metropolitan-environments-for-2024/"><u>[Updated] Pioneering Sustainability Transforming Metropolitan Environments for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-sony-xperia-10-v-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-master-the-art-of-vlogging-with-these-top-8-cameras/"><u>2024 Approved Master the Art of Vlogging with These Top 8 Cameras</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-youtubes-centralized-digital-media-command-center/"><u>2024 Approved YouTube's Centralized Digital Media Command Center</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-resilience-in-the-face-of-cyber-haters-for-2024/"><u>Fostering Resilience in the Face of Cyber Haters for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-realme-c33-2023-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Realme C33 2023 Quickly? | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/imagescope-critique-platform/"><u>ImageScope Critique Platform</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-essential-tips-downloading-and-installing-obs-for-mac-users/"><u>In 2024, Essential Tips Downloading & Installing OBS for Mac Users</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-wanderlust-chronicles-setting-up-for-success-as-a-travel-vlogger/"><u>In 2024, The Wanderlust Chronicles Setting Up for Success as a Travel Vlogger</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-top-5-best-4k-gaming-monitors/"><u>In 2024, Top 5 Best 4K Gaming Monitors</u></a></li>
+<li><a href="https://techidaily.com/will-htc-u23-pro-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Will HTC U23 Pro play AVCHD mts files?</u></a></li>
+</ul></div>
 

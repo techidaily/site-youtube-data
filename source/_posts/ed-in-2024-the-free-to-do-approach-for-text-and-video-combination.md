@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Free-to-Do Approach for Text & Video Combination\""
-date: 2024-09-11T06:38:11.786Z
-updated: 2024-09-12T06:38:11.786Z
+date: 2024-09-13T18:10:53.400Z
+updated: 2024-09-16T16:25:08.153Z
 tags:
   - ai video
   - ai youtube
@@ -28,27 +28,10 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
@@ -62,26 +45,6 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
@@ -92,75 +55,19 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
@@ -186,14 +93,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -202,58 +106,27 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-audiences-in-motion-analyzers/"><u>[New] 2024 Approved Audiences in Motion Analyzers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-best-youtube-thumbnail-size-how-to-make-a-thumbnail-for-youtube/"><u>[New] 2024 Approved Best YouTube Thumbnail Size How to Make a Thumbnail for YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-breaking-personal-barriers-in-yt-content-creation/"><u>[New] 2024 Approved Breaking Personal Barriers in YT Content Creation</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-curating-the-best-video-game-openers-on-yt-no-money-max-impact/"><u>[New] 2024 Approved Curating the Best Video Game Openers on YT No Money, Max Impact?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-elevate-video-exposure-mastering-the-art-of-appropriate-tags/"><u>[New] 2024 Approved Elevate Video Exposure Mastering the Art of Appropriate Tags</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-esports-news-and-analysis-from-top-vloggers/"><u>[New] 2024 Approved Esports News and Analysis From Top Vloggers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-essential-video-gear-the-ultimate-12-camera-guide/"><u>[New] 2024 Approved Essential Video Gear The Ultimate 12 Camera Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-free-and-paid-video-game-opening-mastery-rank-the-best-of-yt-makers/"><u>[New] 2024 Approved Free & Paid Video Game Opening Mastery Rank the Best of YT Makers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-free-yourself-from-video-edges-on-youtube/"><u>[New] 2024 Approved Free Yourself From Video Edges on YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-iosandroid-comparison-youtube-app-explored/"><u>[New] 2024 Approved IOS/Android Comparison YouTube App Explored</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-key-techniques-for-assessing-youtube-engagement-and-profitability/"><u>[New] 2024 Approved Key Techniques for Assessing YouTube Engagement and Profitability</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-leading-linux-editors-top-8-video-cutters/"><u>[New] 2024 Approved Leading Linux Editors Top 8 Video Cutters</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-low-cost-subscriber-strategy-on-youtube-platform/"><u>[New] 2024 Approved Low-Cost Subscriber Strategy on YouTube Platform</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-navigating-the-nuances-of-mukbang-filmmaking-techniques/"><u>[New] 2024 Approved Navigating the Nuances of Mukbang Filmmaking Techniques</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-secure-song-transfers-to-youtube-channel/"><u>[New] 2024 Approved Secure Song Transfers to Youtube Channel</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-starter-selection-affordable-site-purchases-for-beginners/"><u>[New] 2024 Approved Starter Selection Affordable Site Purchases for Beginners</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-strategies-to-avoid-pitfalls-in-designing-youtube-thumbnails/"><u>[New] 2024 Approved Strategies to Avoid Pitfalls in Designing YouTube Thumbnails</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-streamline-your-browsing-eliminate-youtube-ads-in-chrome-firefox-ios/"><u>[New] 2024 Approved Streamline Your Browsing Eliminate YouTube Ads in Chrome, Firefox, iOS</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-ultimate-guide-to-youtube-adsense-optimization/"><u>[New] 2024 Approved The Ultimate Guide to YouTube AdSense Optimization</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-visual-guide-to-aspect-ratios-on-platforms-like-youtube/"><u>[New] 2024 Approved The Visual Guide to ASPECT RATIOS on Platforms Like YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-unleash-your-creativity-anywhere-anyplace-these-6-best-free-online-platforms-for-youtube-short-video-downloading/"><u>[New] 2024 Approved Unleash Your Creativity Anywhere, Anyplace These 6 Best Free, Online Platforms for YouTube Short Video Downloading</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-unleash-your-inner-filmmaker-sports-videos-101/"><u>[New] 2024 Approved Unleash Your Inner Filmmaker Sports Videos 101</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/05327318-new-2024-approved-unlock-the-secret-of-youtube-to-gif-conversion-begin-here/"><u>[New] 2024 Approved Unlock the Secret of YouTube-to-GIF Conversion - Begin Here!</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-youtube-gaming-pros-choice-of-5-microphones/"><u>[New] 2024 Approved YouTube Gaming Pros' Choice of 5 Microphones</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-apex-list-of-10-unmatched-recorders-for-spotify-playbacks/"><u>[New] In 2024, Apex List of 10 Unmatched Recorders for Spotify Playbacks</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-guide-to-voice-editing-for-instagrams-media-for-2024/"><u>[New] The Ultimate Guide to Voice Editing for Instagram's Media for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-how-to-make-every-discord-livestree-a-timeless-treasure/"><u>[Updated] 2024 Approved How to Make Every Discord Livestree a Timeless Treasure</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-advancing-google-meet-sessions-implementing-effects-and-masks-for-2024/"><u>[Updated] Advancing Google Meet Sessions Implementing Effects & Masks for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-expert-guidelines-to-improve-zoom-on-chromeos/"><u>[Updated] Expert Guidelines to Improve Zoom on ChromeOS</u></a></li>
-<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Honor Magic V2 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-poco-m6-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-gems-2017s-statistical-youtube-surprises-for-2024/"><u>Graph Gems 2017'S Statistical YouTube Surprises for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-samsung-galaxy-z-fold-5-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Samsung Galaxy Z Fold 5 in 5 Easy Ways | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-accelerate-your-youtube-channels-growth-to-1kplus/"><u>In 2024, Accelerate Your YouTube Channel's Growth to 1K+</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-ace-your-video-masterful-use-of-hash-tags-in-games/"><u>In 2024, Ace Your Video Masterful Use of Hash Tags in Games</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-samsung-galaxy-s23-fe-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Samsung Galaxy S23 FE</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-facesave-quickly-grab-facebook-media/"><u>In 2024, FaceSave Quickly Grab Facebook Media</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-one-step-at-a-time-how-to-create-a-skype-group-on-both-platforms/"><u>In 2024, One Step at a Time How to Create a Skype Group on Both Platforms</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/inside-scoop-on-google-voice-communication-platform/"><u>Inside Scoop on Google Voice Communication Platform</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-refit-youtube-on-mac-perfect-scaling-for-2024/"><u>Rapid Refit Youtube on Mac Perfect Scaling for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/sierras-cloud-essentials-drives-full-access-guide-for-2024/"><u>Sierra's Cloud Essentials Drives Full Access Guide for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-up-your-videos-7-premium-royalty-free-audio-clips-for-2024/"><u>Spice Up Your Videos 7 Premium, Royalty-Free Audio Clips for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-unlinkage-from-youtube-shorts-complete-guide/"><u>Total Unlinkage From YouTube Shorts Complete Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/10208585-unlimited-christmas-classics-9-films-available-for-no-charge/"><u>Unlimited Christmas Classics 9 Films Available for No Charge</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/xpert-tips-for-memorable-youtube-names/"><u>[New] Expert Tips for Memorable YouTube Names</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-a-thorough-exploration-of-kinesthetic-controls/"><u>[New] In 2024, A Thorough Exploration of Kinesthetic Controls</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/imple-strategies-for-stellar-sports-highlights/"><u>[New] Simple Strategies for Stellar Sports Highlights</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-navigating-youtube-submission-with-imovie-files/"><u>[Updated] 2024 Approved Navigating YouTube Submission with iMovie Files</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-detailed-insights-into-youtubes-perfected-aspect-ratios/"><u>[Updated] In 2024, Detailed Insights Into YouTube's Perfected Aspect Ratios</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-troubleshooting-when-youtube-shorts-images-fail-to-display/"><u>[Updated] In 2024, Troubleshooting When YouTube Shorts Images Fail To Display</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-insightful-steps-to-identify-your-viewers/"><u>2024 Approved Insightful Steps to Identify Your Viewers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/zing-youtubes-process-for-selective-comment-showcasing-for-2024/"><u>Analyzing YouTube's Process for Selective Comment Showcasing for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/enhance-gameplay-gtx-1050-ti-driver-updates/"><u>Enhance Gameplay: GTX 1050 Ti Driver Updates</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-lava-yuva-2-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Lava Yuva 2 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/r-the-art-of-immutable-image-creation-for-2024/"><u>Master the Art of Immutable Image Creation for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ity-hacks-leveraging-key-hashtags-on-youtube-for-2024/"><u>Virality Hacks Leveraging Key Hashtags on YouTube for 2024</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

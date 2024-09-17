@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unpacking YouTube’s Financial Framework Shifts"
-date: 2024-07-13T02:55:24.216Z
-updated: 2024-07-14T02:55:24.216Z
+date: 2024-09-16T00:31:44.363Z
+updated: 2024-09-16T22:50:32.182Z
 tags:
   - ai video
   - ai youtube
@@ -56,11 +56,31 @@ With the new YouTube monetization policy 2023, creators enjoy the following bene
 * Fan funding through channel memberships, super chats, super thanks, and super stickers
 * Access to Creator Support
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Applicability of the Old Standards**
 
 While the new YouTube monetization criteria create more opportunities for smaller creators to earn fan funding, the [old standards](https://support.google.com/youtube/answer/72851?hl=en&ref%5Ftopic=9153642&sjid=15033404818844015570-EU) are still applicable. The YouTube policy for monetization through ad revenue will remain the same. Channels are still required to have at least 1,000 subscribers with more than 4,000 public watch hours for long videos in the past 365 days or 10M public views for Shorts videos in the past 90 days.
 
 ![updated old standards](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-3.JPG)
+
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 That said, the 2023 new YouTube monetization requirements are a great addition to creators’ journey. Creators who have applied for early access to fun funding are not required to reapply after qualifying for full monetization.
 
@@ -120,6 +140,26 @@ Quickly add relevant texts to your videos. You can include captions or subtitles
 
 ![add text to video](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-6.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **3\.** **AI Smart Cutout**
 
 The AI Smart Cutout features allow you to easily edit out any unwanted background or objects in your clips. The AI-powered features help you edit your clips faster and finish your projects quickly.
@@ -142,14 +182,18 @@ The new YouTube monetization policy 2023 has created more opportunities for crea
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,6 +202,20 @@ The new YouTube monetization policy 2023 has created more opportunities for crea
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/eciphering-youtube-shorts-a-comprehensive-overview/"><u>[New] Deciphering YouTube Shorts A Comprehensive Overview</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-asmr-enhances-your-daily-life-learn-here/"><u>[New] How ASMR Enhances Your Daily Life – Learn Here</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-revamping-reality-the-premier-11-instagram-edits-for-2024/"><u>[New] Revamping Reality The Premier 11 Instagram Edits for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-boost-mobile-stream-quality-on-android-and-ios-devices/"><u>[Updated] 2024 Approved Boost Mobile Stream Quality on Android and iOS Devices</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-leading-5-video-editors-outside-youtube-realm/"><u>[Updated] In 2024, Leading 5 Video Editors Outside YouTube Realm</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-no-caps-lock-required-android-and-ios-downloader-hacks/"><u>[Updated] No Caps Lock Required Android and iOS Downloader Hacks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-cutting-edge-editing-meets-online-video-sharing/"><u>2024 Approved Cutting-Edge Editing Meets Online Video Sharing</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/convert-your-movies-effortlessly-with-the-newest-version-of-winx-dvd-ripper-free-hd-to-mp4-on-windows-11/"><u>Convert Your Movies Effortlessly with the Newest Version of WinX DVD Ripper Free: HD to MP4 on Windows 11</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-samsung-galaxy-a14-5g-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Samsung Galaxy A14 5G in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-vivo-y02t-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Vivo Y02T Phones with/without a PC</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-the-art-of-using-high-dynamic-range-auto-hdr-in-windows-11/"><u>Mastering the Art of Using High Dynamic Range (Auto HDR) in Windows 11</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/pen-and-touch-input-active-again-digital-display-interactivity-fully-restored-after-update/"><u>Pen & Touch Input Active Again – Digital Display Interactivity Fully Restored After Update</u></a></li>
+</ul></div>
 

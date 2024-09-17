@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Insight Into Highlighted Video Discussion Threads\""
-date: 2024-07-13T02:55:07.226Z
-updated: 2024-07-14T02:55:07.226Z
+date: 2024-09-15T17:30:57.509Z
+updated: 2024-09-16T22:17:16.198Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 5: How to Reply to Highlighted Comments?
 
 Replying to "highlighted comments" on your YouTube channel is pretty easy since this feature was developed, keeping the user's convenience in mind. If you want to follow up or reply to such comments, you can do so from your email or YouTube Dashboard.
@@ -89,6 +96,19 @@ Replying to "highlighted comments" on your YouTube channel is pretty easy since 
 If you click the notification bell icon, whenever a viewer drops a new comment on one of your videos, YouTube will send you a notification via email. On opening the email, you will find a clickable "Reply" option. Or else, if you follow the comment section in the YouTube Dashboard, you can directly view or reply to highlighted comments from here as well.
 
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
 
@@ -113,6 +133,19 @@ Many frequently inquire on the internet about how they can improve the chances o
 * After you have framed your comment, make sure that it is grammatically correct. YouTube and Google hate grammatical errors.
 * Do not hit the post option already. Before publishing it, you must cross-check that your comment has all the above points in place.
 * Lastly, you have to wait after publishing on the video's comment section. YouTube will highlight your comment if it passes according to the YouTube policy and if the search engine finds it unique.
+
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 8: Are Highlighted Comments Beneficial?
 
@@ -140,14 +173,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -156,6 +186,20 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-role-of-authenticity-checks-in-social-media-posts/"><u>[New] 2024 Approved The Role of Authenticity Checks in Social Media Posts</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-audio-docking-systems-for-immersive-experience/"><u>[New] Audio Docking Systems for Immersive Experience</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-recording-made-simple-your-phone-cookbook-for-snapping-stories/"><u>[New] In 2024, Recording Made Simple Your Phone' Cookbook for Snapping Stories</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-strategic-thinking-keywords-that-lead-to-online-victory/"><u>[New] In 2024, Strategic Thinking Keywords that Lead to Online Victory</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/treamlining-creative-journey-uploading-imovie-videos-to-youtube-for-2024/"><u>[New] Streamlining Creative Journey Uploading iMovie Videos to YouTube for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-basics-of-engaging-narratives/"><u>[Updated] Basics of Engaging Narratives</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-gif-revolution-free-transformation-of-tweets-to-gifs/"><u>[Updated] Gif Revolution Free Transformation of Tweets to GIFs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-how-to-remove-black-bars-from-existing-youtube-videos/"><u>[Updated] In 2024, How to Remove Black Bars From Existing YouTube Videos?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-the-ultimate-guide-to-microphone-setup-in-audacity-for-mac-for-2024/"><u>[Updated] The Ultimate Guide to Microphone Setup in Audacity for Mac for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlocking-the-secret-strategies-of-instagram-influencers/"><u>[Updated] Unlocking the Secret Strategies of Instagram Influencers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-how-to-custom-your-youtube-channel-url-super-easy/"><u>2024 Approved How to Custom Your YouTube Channel URL – Super Easy</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/choosing-the-right-ai-buddy-claude-and-chatgpt-face-off-for-daily-uses/"><u>Choosing the Right AI Buddy: Claude and ChatGPT Face Off for Daily Uses</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-huawei-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Huawei FRP Bypass With Best Methods</u></a></li>
+</ul></div>
 
