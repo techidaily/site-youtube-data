@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Channel Up  The Essential Guide to Computer & Mobile Video Upload\""
-date: 2024-07-13T02:48:13.528Z
-updated: 2024-07-14T02:48:13.528Z
+date: 2024-09-19T02:08:50.673Z
+updated: 2024-09-21T22:45:17.379Z
 tags:
   - ai video
   - ai youtube
@@ -112,6 +112,13 @@ Please note you will not see the **Create a Short** option if you are outsides o
 
 ![Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
 Next, use the **Speed** and **Timer** icons to set the speed of the video and the countdown timer duration before the app starts recording the video when you press the **Record** button respectively.
@@ -128,6 +135,13 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -142,14 +156,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,6 +169,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/usting-the-top-10-vloggers-fears-strategies-for-success-for-2024/"><u>[New] Busting the Top 10 Vloggers' Fears Strategies for Success for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-a-list-guide-to-instagram-photo-mastery-for-2024/"><u>[New] The A-List Guide to Instagram Photo Mastery for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-capturing-moments-with-the-best-5-photo-and-video-apps-for-iphonesandroid/"><u>[Updated] Capturing Moments with the Best 5 Photo & Video Apps for iPhones/Android</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-choosing-the-right-youtube-tv-package-for-you/"><u>2024 Approved Choosing the Right YouTube TV Package for You</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-xiaomi-redmi-12-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Xiaomi Redmi 12 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-infinix-note-30-pro-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Infinix Note 30 Pro Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-6-premium-video-translation-tools/"><u>In 2024, Top 6 Premium Video Translation Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ideo-shooting-equipment-a-comprehensive-review/"><u>Top Video Shooting Equipment A Comprehensive Review</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-unveiling-the-essence-of-clubhouse-a-comprehensive-overview-for-newcomers/"><u>Updated 2024 Approved Unveiling the Essence of Clubhouse A Comprehensive Overview for Newcomers</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/wonderfox-magic-easily-convert-your-movies-into-a-series-of-captivating-still-photographs/"><u>WonderFox Magic: Easily Convert Your Movies Into a Series of Captivating Still Photographs</u></a></li>
+</ul></div>
 

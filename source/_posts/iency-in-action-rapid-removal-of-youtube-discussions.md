@@ -1,7 +1,7 @@
 ---
 title: "\"Efficiency in Action  Rapid Removal of YouTube Discussions\""
-date: 2024-07-13T02:47:14.322Z
-updated: 2024-07-14T02:47:14.322Z
+date: 2024-09-16T16:17:08.280Z
+updated: 2024-09-21T18:58:13.493Z
 tags:
   - ai video
   - ai youtube
@@ -69,6 +69,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -82,6 +89,13 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -102,6 +116,13 @@ To find your History from your desktop, you need to click on the three horizonta
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
 ![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -134,14 +155,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,6 +168,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-cash-growth-forecasts-at-no-cost/"><u>[New] 2024 Approved YouTube Cash Growth Forecasts at No Cost</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/emystifying-youtube-premium-membership-benefits-for-2024/"><u>[New] Demystifying YouTube Premium Membership Benefits for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/uick-turn-artistry-professionally-crafted-valorant-game-imagery/"><u>[New] Quick-Turn Artistry Professionally Crafted Valorant Game Imagery</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-copyright-claims-and-how-to-deal-with-a-strike/"><u>[New] YouTube Copyright Claims and How to Deal with a Strike?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-revenue-the-unfavorable-guidelines-for-2024/"><u>[New] YouTube Revenue The Unfavorable Guidelines for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ddpai-mini3-review/"><u>DDpai Mini3 Review</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-to-samsung-galaxy-z-fold-5-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Samsung Galaxy Z Fold 5 Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-vivo-v30-pro-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Vivo V30 Pro ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ry-in-mapping-out-your-youtube-audience/"><u>Mastery in Mapping Out Your YouTube Audience</u></a></li>
+<li><a href="https://video-capture.techidaily.com/step-up-your-gameplay-with-these-5-best-rated-ps2-android-emulators/"><u>Step Up Your Gameplay with These 5 Best-Rated PS2 Android Emulators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eat-drops-highlighting-this-years-best-music-vids/"><u>The Beat Drops Highlighting This Year's Best Music Vids</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/uniconverter-free-vs-paid-key-differences-and-solutions-for-issues/"><u>UniConverter Free vs Paid: Key Differences & Solutions for Issues</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-the-best-ai-presentation-enhancers/"><u>Unveiling the Best AI Presentation Enhancers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/xsplit-archive-in-depth-game-splits/"><u>XSplit Archive In-Depth Game Splits</u></a></li>
+</ul></div>
 

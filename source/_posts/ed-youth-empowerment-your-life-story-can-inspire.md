@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Youth Empowerment  Your Life Story Can Inspire\""
-date: 2024-09-12T20:28:02.179Z
-updated: 2024-09-16T22:15:03.410Z
+date: 2024-09-17T00:33:01.015Z
+updated: 2024-09-22T03:48:02.746Z
 tags:
   - ai video
   - ai youtube
@@ -58,13 +58,6 @@ On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebrat
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
@@ -73,30 +66,37 @@ Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\.  Get Ready With Me Q & A
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\.  25 Facts About Me Tag
@@ -111,14 +111,14 @@ YouTube live videos are probably the best ways to interact and share your story 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -141,15 +141,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-enhance-photo-clarity-with-snapchats-zoom-function-for-2024/"><u>[New] Enhance Photo Clarity with Snapchat's Zoom Function for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-strategic-thinking-keywords-that-lead-to-online-victory/"><u>[New] In 2024, Strategic Thinking Keywords that Lead to Online Victory</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/treamlining-creative-journey-uploading-imovie-videos-to-youtube-for-2024/"><u>[New] Streamlining Creative Journey Uploading iMovie Videos to YouTube for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-deciphering-how-tseries-benefits-from-youtube-for-2024/"><u>[Updated] Deciphering How TSeries Benefits From YouTube for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-how-to-remove-black-bars-from-existing-youtube-videos/"><u>[Updated] In 2024, How to Remove Black Bars From Existing YouTube Videos?</u></a></li>
-<li><a href="https://article-helps.techidaily.com/avoiding-common-drone-purchase-mistakes-a-checklist/"><u>Avoiding Common Drone Purchase Mistakes A Checklist</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Lava Blaze Curve 5G? | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/revamping-your-old-kindle-into-a-portable-ereading-device-how-to-by-devrepo/"><u>Revamping Your Old Kindle Into a Portable eReading Device - How To by DevRepo</u></a></li>
-<li><a href="https://driver-error.techidaily.com/safeguarded-against-hard-disk-mishaps/"><u>Safeguarded Against Hard Disk Mishaps</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/tailoring-ai-to-yourselves-a-how-to-for-unique-prose/"><u>Tailoring AI to Yourselves: A How-To for Unique Prose</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-review-the-ultimate-4k-action-recorder/"><u>[New] Review The Ultimate 4K Action Recorder</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-earn-extra-bucks-maximizing-youtubes-mobile-revenue-opportunities/"><u>[Updated] Earn Extra Bucks Maximizing YouTube's Mobile Revenue Opportunities</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-peeking-behind-the-scenes-deciphering-youtubes-unlisted-content/"><u>[Updated] In 2024, Peeking Behind the Scenes Deciphering YouTube's Unlisted Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-refine-your-beauty-videos-with-youtubes-palette-tweaking/"><u>[Updated] In 2024, Refine Your Beauty Videos with Youtube's Palette Tweaking</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-maximize-engagement-selective-rank-tracker-utilities-revealed-for-2024/"><u>[Updated] Maximize Engagement Selective Rank Tracker Utilities Revealed for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-sharpening-scenes-the-power-of-film-zoom-for-2024/"><u>[Updated] Sharpening Scenes The Power of Film Zoom for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtube-copyright-claims-and-how-to-deal-with-a-strike-in-2024/"><u>[Updated] YouTube Copyright Claims and How to Deal with a Strike, In 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-methods-to-enhance-performance-with-new-ati-driver-installation-for-windows-users/"><u>Easy Methods to Enhance Performance with New ATI Driver Installation for Windows Users</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-xiaomi-redmi-note-12r-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Xiaomi Redmi Note 12R Devices | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/microsoft-pioneers-new-assistance-pathways-without-cortana/"><u>Microsoft Pioneers New Assistance Pathways without Cortana</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/monetize-smart-a-creative-approach-to-earning-with-vimeo-for-2024/"><u>Monetize Smart A Creative Approach to Earning with Vimeo for 2024</u></a></li>
 </ul></div>
 

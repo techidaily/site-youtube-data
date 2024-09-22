@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mac Masterclass  Designing Eye-Catching YT Thumbnails\""
-date: 2024-07-13T02:48:29.887Z
-updated: 2024-07-14T02:48:29.887Z
+date: 2024-09-16T19:40:37.383Z
+updated: 2024-09-21T22:20:36.118Z
 tags:
   - ai video
   - ai youtube
@@ -64,11 +64,25 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -82,6 +96,19 @@ So, using this thumbnail maker you can easily create custom thumbnails for your 
 
 Hopefully, the above-mentioned steps have given you enough insight and clarity on making creative and good youtube thumbnails. Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) will further simplify the process for you with its amazing tools and features ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -90,14 +117,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -106,6 +130,19 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-tips-on-troubleshooting-frozen-obs-fullscreen-problem/"><u>[New] 2024 Approved Tips on Troubleshooting Frozen OBS Fullscreen Problem</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-complete-guide-to-creating-memorable-youtube-outros/"><u>[New] In 2024, The Complete Guide to Creating Memorable YouTube Outros</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-editors-toolkit-elevating-your-youtube-videos-via-windows-pc/"><u>[New] The Editor's Toolkit Elevating Your YouTube Videos via Windows PC</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-simple-guide-youtube-to-mp3-on-mac/"><u>[Updated] Simple Guide YouTube to MP3 on Mac,</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-step-by-step-guide-to-captivating-youtube-live-thumbnails-for-2024/"><u>[Updated] Step-By-Step Guide to Captivating YouTube Live Thumbnails for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-top-8-android-multi-user-video-chat-tools-for-2024/"><u>[Updated] Top 8 Android Multi-User Video Chat Tools for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-vivo-y36-easily-by-drfone-android/"><u>How To Unlock a Vivo Y36 Easily?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-best-footage-makers-the-top-10-cameras-with-anti-shake-tech/"><u>In 2024, Best Footage Makers The Top 10 Cameras With Anti-Shake Tech</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-the-ultimate-guide-to-drying-out-distorted-sounds-three-effective-methods/"><u>In 2024, The Ultimate Guide to Drying Out Distorted Sounds Three Effective Methods</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/pubg-buildings-not-loading-fixed/"><u>PUBG Buildings Not Loading [FIXED]</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-location-is-not-available-issue-in-windows-1110/"><u>Resolving 'Location Is Not Available' Issue in Windows 11/10</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/stop-discord-disruptions-resolve-your-streaming-app-crashes-now/"><u>Stop Discord Disruptions: Resolve Your Streaming App Crashes Now!</u></a></li>
+</ul></div>
 

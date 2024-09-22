@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Apex Creators  Video Giants in the Making\""
-date: 2024-07-13T02:50:46.645Z
-updated: 2024-07-14T02:50:46.645Z
+date: 2024-09-18T02:03:13.729Z
+updated: 2024-09-22T04:35:09.963Z
 tags:
   - ai video
   - ai youtube
@@ -74,9 +74,23 @@ More than 25 million subscribers who follow this gaming commentator. The El Rubi
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###  4\.  Smosh
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -100,6 +114,13 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -108,14 +129,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +142,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/hythmic-roadmap-your-guide-to-music-submission-for-2024/"><u>[New] Rhythmic Roadmap Your Guide to Music Submission for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-science-behind-time-warp-visuals/"><u>[New] The Science Behind Time Warp Visuals</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ltimate-gear-for-youtube-content-makers/"><u>[New] Ultimate Gear for YouTube Content Makers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-modify-youtube-video-visibility-with-ease/"><u>[Updated] 2024 Approved Modify YouTube Video Visibility with Ease</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-rising-stars-in-digital-domain/"><u>[Updated] 2024 Approved Rising Stars in Digital Domain</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-revisiting-the-golden-age-of-cinema-video-tutorials-for-2024/"><u>[Updated] Revisiting the Golden Age of Cinema Video Tutorials for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-maximizing-memory-retention-through-mac-based-audio-recordings/"><u>2024 Approved Maximizing Memory Retention Through Mac-Based Audio Recordings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/best-practices-choosing-exceptional-cloud-services/"><u>Best Practices Choosing Exceptional Cloud Services</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/essential-factors-to-assess-when-purchasing-a-video-recording-tool/"><u>Essential Factors to Assess When Purchasing a Video Recording Tool</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-xiaomi-redmi-note-12-5g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Xiaomi Redmi Note 12 5G? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-ultimate-stream-showcase-must-have-tech-for-successful-youtubers/"><u>In 2024, Ultimate Stream Showcase Must-Have Tech for Successful Youtubers</u></a></li>
+</ul></div>
 

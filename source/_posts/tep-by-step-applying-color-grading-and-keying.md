@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step  Applying Color Grading and Keying\""
-date: 2024-07-13T02:50:30.087Z
-updated: 2024-07-14T02:50:30.087Z
+date: 2024-09-17T21:17:41.195Z
+updated: 2024-09-22T05:45:08.069Z
 tags:
   - ai video
   - ai youtube
@@ -142,6 +142,13 @@ In this simple guide, we'll delve into the fundamentals of the **chroma key effe
 
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **How Does Chroma Key Work?**
 
 ![green screen shooting](https://images.wondershare.com/filmora/article-images/2024/a-quick-guide-to-chroma-key-background-2.jpg)
@@ -163,6 +170,13 @@ This involves filming the subject against the **live chroma key background**. Du
 * Post-Processing:
 
 In post-production processing, the editor takes the keyed-out color and replaces it with the new background of their choice. This step creates the illusion that the subject is in a different setting or environment. The transparent areas become filled with the chosen background which, if done right, results in a cohesive and visually appealing composition.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Green?
 
@@ -189,6 +203,19 @@ Digital Sensors
 Wardrobe and Set Design
 
 Bright green occurs less naturally in costumes and set designs than other colors, making green the optimal choice for reducing the likelihood of color spill and keying issues. However, if you know your scene will have lots of green, it is probably best to film with a blue screen, so there’s less risk of color spill and less post-production work.
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Setting up Your Own Chroma Key Studio
 
@@ -221,6 +248,13 @@ The optimal distance between the subject and the green screen minimizes color sp
 * Subjects and Clothing
 
 As mentioned before, the choice of costume for Selecting appropriate clothing that doesn't match the chroma key color prevents transparency issues. Subjects also have to be positioned in such a way that there is minimal light interference and reflection. These contribute to a flawless chroma key outcome.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3 Basic Troubleshooting Strategies
 
@@ -256,8 +290,6 @@ Green screen photography produces excellent results, and its ease of use makes i
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -265,6 +297,19 @@ Green screen photography produces excellent results, and its ease of use makes i
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/aster-class-in-live-streaming-your-pathway-to-successful-youtube-channels-via-wirecast/"><u>[New] Master Class in Live Streaming Your Pathway to Successful Youtube Channels via WireCast</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ips-for-clearing-blank-youtube-playback/"><u>[New] Tips for Clearing Blank YouTube Playback</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-top-15-hilarious-youtube-hubs-for-your-next-vacation/"><u>[Updated] 2024 Approved Top 15 Hilarious YouTube Hubs for Your Next Vacation</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-tackling-live-broadcasts-the-intersection-of-obs-and-zoom/"><u>[Updated] In 2024, Tackling Live Broadcasts The Intersection of OBS and Zoom</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-essence-of-time-stretching-detailed-review-of-slomo-2e1924/"><u>[Updated] The Essence of Time Stretching Detailed Review of SloMo, 2E1924</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-imovie-tricks-for-perfecting-your-video-introduction-craft/"><u>2024 Approved IMovie Tricks for Perfecting Your Video Introduction Craft</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-mr-beasts-monetary-milestones/"><u>2024 Approved Mr. Beast’s Monetary Milestones</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-transforming-your-photos-into-timeless-slow-mo-artistry/"><u>2024 Approved Transforming Your Photos Into Timeless Slow-Mo Artistry</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-poco-f5-5g-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Poco F5 5G.</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-nokia-c32-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Nokia C32 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-factory-unlock-your-telstra-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, How To Factory Unlock Your Telstra iPhone 15 Pro Max</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-ultimate-guide-to-unlocking-your-iphone-12-pro-max-on-metropcs-by-drfone-ios/"><u>The Ultimate Guide to Unlocking Your iPhone 12 Pro Max on MetroPCS</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Exploring YouTube Shorts  A Beginner's Guide to Video Crafting for 2024\""
-date: 2024-07-13T02:52:09.222Z
-updated: 2024-07-14T02:52:09.222Z
+date: 2024-09-15T18:25:37.269Z
+updated: 2024-09-22T04:33:26.102Z
 tags:
   - ai video
   - ai youtube
@@ -105,6 +105,13 @@ Enter a title for the video in the **Title** field. Make sure to include **#shor
 
 ![Upload YouTube Shorts video](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Part 3: How to Create a Vertical YouTube Shorts Video in Filmora?**
 
 The **YouTube Shorts app** is pretty convenient to access and use alright. However, it doesn’t allow you to fine edit the videos. The app doesn’t even have many filtering options such as Effects, Elements, etc. to make your videos more engaging.
@@ -135,6 +142,13 @@ Launch Wondershare Filmora on your Windows or Mac PC (a Windows 10 computer is u
 
 ![Upload YouTube Shorts video](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Next, hover the mouse over the clip in the **Media** box, click the **+** button that appears at the bottom-right corner of the thumbnail, and in the resolution confirmation box that comes up next, click the button under the **Match to Media** section to add the video in the correct orientation to the Timeline at the bottom.
 
 **Step 2: Edit the Video**
@@ -143,9 +157,23 @@ Select the clip in the Timeline, and use the **Split**, **Crop**, **Speed**, etc
 
 ![Edit YouTube Shorts video in Filmora - split/crop/change speed](https://images.wondershare.com/filmora/article-images/split-crop-youtube-shorts-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can even click the **Edit** button, and use the available editing features like **Motion Tracking** and **Stabilization** to add text or objects to a moving body in the video and stabilize the clip if the camera shook during the recording session respectively. Click **OK** to save the changes when done.
 
 ![Edit YouTube Shorts video in Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-filmora-advanced-editing.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Note:** To be able to remain compliant with the **YouTube Shorts** policies, make sure that the video length is no longer than 60 seconds.
 
@@ -158,6 +186,13 @@ Click **Titles** from the standard toolbox at the top, choose your preferred tex
 Similarly, you can select the **Effects** and **Elements** tools to add effects and elements to the video as needed. To add background music, you can go to the **Audio** tool, and pick your preferred preset from the available options. A custom music can be added by going to the **Media** tool, and importing an audio file from your PC using the method explained in **Step 1**.
 
 ![Add effects to YouTube Shorts video with Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-add-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 After this, optionally, you can go to **Split Screen** from the standard toolbar at the top, and use your preferred Split Screen preset to club multiple video clips into one screen. In Filmora, you can add as many as 6 screens in a video.
 
@@ -213,14 +248,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -229,6 +261,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-examining-benq-sw320-the-4k-visionary/"><u>[New] Examining BenQ SW320 The 4K Visionary</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-step-up-your-social-game-apply-tiktoks-best-to-instagram-reels/"><u>[Updated] 2024 Approved Step Up Your Social Game Apply TikTok's Best to Instagram Reels</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-earn-extra-bucks-maximizing-youtubes-mobile-revenue-opportunities/"><u>[Updated] Earn Extra Bucks Maximizing YouTube's Mobile Revenue Opportunities</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-peeking-behind-the-scenes-deciphering-youtubes-unlisted-content/"><u>[Updated] In 2024, Peeking Behind the Scenes Deciphering YouTube's Unlisted Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-refine-your-beauty-videos-with-youtubes-palette-tweaking/"><u>[Updated] In 2024, Refine Your Beauty Videos with Youtube's Palette Tweaking</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-switch-off-guide-instagrams-igtv/"><u>[Updated] Switch-Off Guide Instagram's IGTV</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-modern-content-curators-guide-to-branding-10-tools/"><u>2024 Approved The Modern Content Curator's Guide to Branding - 10 Tools</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On HTC U23 Pro? | Dr.fone</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/m4a/"><u>M4Aファイルのビットレート変換テクニック集紹介</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/minimizing-film-length-mac-solutions-for-instagram-posting-for-2024/"><u>Minimizing Film Length Mac Solutions for Instagram Posting for 2024</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>New In 2024, An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
+</ul></div>
 

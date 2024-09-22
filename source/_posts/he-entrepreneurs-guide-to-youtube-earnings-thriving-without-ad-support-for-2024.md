@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Entrepreneur’s Guide to YouTube Earnings  Thriving Without Ad Support for 2024\""
-date: 2024-09-13T20:47:41.213Z
-updated: 2024-09-16T20:28:23.341Z
+date: 2024-09-19T18:37:08.464Z
+updated: 2024-09-22T00:39:08.131Z
 tags:
   - ai video
   - ai youtube
@@ -107,6 +107,13 @@ _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/colle
 
  ![YouTuber Sunny Lenarduzzi](https://images.wondershare.com/filmora/article-images/sunny-lenarduzzi2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _YouTuber and entrepreneur, Sunny Lenarduzzi uses YouTube as a platform to get clients for her consulting business._
 
 #### **How to Sell a Product or Service on YouTube**
@@ -122,10 +129,16 @@ If you are selling a meditation eBook and guided meditation services, type in so
 ![meditation](https://images.wondershare.com/filmora/article-images/meditation3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 From there, take your possible keywords and put them into a tool such as [Ubersuggest](https://neilpatel.com/ubersuggest/)to find other related keywords. This will help you create discoverable content that will catch the interest of those who will buy what you are selling.
@@ -148,6 +161,19 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 
 ![youtube card tutorial](https://images.wondershare.com/filmora/article-images/youtube-card-tutorial5.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![youtube card details](https://images.wondershare.com/filmora/article-images/youtube-card-details6.jpg)
 
 You can add one or multiple cards to direct viewers to your website or to another related video.
@@ -169,10 +195,10 @@ Lilly Singh did not start a YouTube channel to sell her book, [_How to Be a Baws
 For example, [Remi Cruz](https://www.youtube.com/watch?v=Uke6eXzgjQQ), a YouTuber with over 2.2 million subscribers. Remi created a beauty brand and DIY face mask, [Honey Pop](https://shophoneypop.com/), which could only have happened after taking the time to understand her supportive audience.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Affiliate Marketing:**
@@ -235,6 +261,13 @@ In an ad for Beats by Dre’s #BuiltForBosses campaign, YouTuber [Liza Koshy out
 
 ![perform the likes](https://images.wondershare.com/filmora/article-images/perform-the-likes9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 While it does take significant effort on YouTube to acquire a following, it is possible for a YouTube channel with 1,000 subscribers to get a brand deal. Getting the buy-in from brands is a numbers game, and according to [Video Creators](https://videocreators.com/how-to-get-started-with-brand-deals-on-youtube/), the minimal number of views per video shouldn’t be lower than 2,000 if this is the path you want to head in.
 
 #### **How to Get Discovered By Brands**
@@ -244,13 +277,6 @@ The decision-makers behind brands might not be aware of influencers with a small
 If you want to get a brand deal and become an influencer on YouTube, then you will have to put yourself out there to be discovered and that is on an Influencer Marketing Network, such as [Famebit](https://famebit.com/).
 
 ![famebit brand](https://images.wondershare.com/filmora/article-images/famebit-brand10.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### **How Influencer Marketing Platforms Like Famebit Works**
 
@@ -266,13 +292,6 @@ Steps to getting a brand deal:
 6. Get Paid!
 
  Unlike celebrity marketing, YouTube creators have shown brands over the years that they are inventive and clever with how they can present the brand to the audience to drive the best results. This type of independence is what makes YouTube influencer marketing special.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##  
 
@@ -323,13 +342,6 @@ Got questions about making money on YouTube? Leave a comment below. We love to h
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -351,20 +363,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-strategic-thinking-keywords-that-lead-to-online-victory/"><u>[New] In 2024, Strategic Thinking Keywords that Lead to Online Victory</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/treamlining-creative-journey-uploading-imovie-videos-to-youtube-for-2024/"><u>[New] Streamlining Creative Journey Uploading iMovie Videos to YouTube for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-top-10-stabilizing-tech-for-youtube-creators-success/"><u>[New] Top 10 Stabilizing Tech for YouTube Creators' Success</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-enhancing-filmmaking-top-choices-in-camera-lenses/"><u>[Updated] 2024 Approved Enhancing Filmmaking Top Choices in Camera Lenses</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-quick-fix-annoyance-free-deletion-of-youtube-comments/"><u>[Updated] 2024 Approved Quick Fix Annoyance-Free Deletion of Youtube Comments</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unified-imagery-the-ultimate-blend-strategy/"><u>[Updated] 2024 Approved Unified Imagery The Ultimate Blend Strategy</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-engage-audiences-on-all-sides-live-360-degree-video-broadcasting-for-youtube/"><u>[Updated] Engage Audiences on All Sides Live 360-Degree Video Broadcasting for YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-how-to-remove-black-bars-from-existing-youtube-videos/"><u>[Updated] In 2024, How to Remove Black Bars From Existing YouTube Videos?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-how-to-custom-your-youtube-channel-url-super-easy/"><u>2024 Approved How to Custom Your YouTube Channel URL – Super Easy</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/o-add-featured-channels-on-youtube-a-complete-guide/"><u>How to Add Featured Channels on YouTube A Complete Guide</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-fix-shell32dll-is-missing-or-not-found-errors/"><u>How to Fix Shell32.dll Is Missing or Not Found Errors</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/pc-gaming-enjoyment-upgraded-resolving-fps-dips-in-the-latest-formula-one-video-game/"><u>PC Gaming Enjoyment Upgraded: Resolving FPS Dips in the Latest Formula One Video Game</u></a></li>
-<li><a href="https://howto.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-honor-v-purse-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Honor V Purse | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-directly-connect-youtube-tunes-to-imovie-seamlessly/"><u>[New] In 2024, Directly Connect YouTube Tunes to iMovie Seamlessly</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-scoping-out-the-12-most-popular-flip-screen-video-cameras/"><u>[New] In 2024, Scoping Out the 12 Most Popular Flip-Screen Video Cameras</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-411-on-navigating-youtube-shorts-for-2024/"><u>[New] The 411 on Navigating YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-warranty-and-lifespan-higher-quality-led-systems-may-come-with-a-higher-upfront-price-but-can-offer-longer-lifespans-and-better-performance-which-sh/"><u>[Updated] __Warranty and Lifespan Higher Quality LED Systems May Come with a Higher Upfront Price but Can Offer Longer Lifespans and Better Performance, Which Should Be Considered in the Overall Cost Evaluation</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-conveniently-remove-downloaded-youtube-media-for-lightweight-devices/"><u>[Updated] 2024 Approved Conveniently Remove Downloaded YouTube Media for Lightweight Devices</u></a></li>
+<li><a href="https://driver-download.techidaily.com/aircraft-engaged-in-flight-training-activities-for-pilot-license-upgrade-initial-licensing-and-aerobatic-rating-endorsements-with-a-maximum-passenger-limit-58/"><u>Aircraft Engaged in Flight Training Activities for Pilot License Upgrade, Initial Licensing and Aerobatic Rating Endorsements with a Maximum Passenger Limit of Three Passengers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/bypassing-blunders-effective-strategies-to-prevent-errors-while-utilizing-champtgpt/"><u>Bypassing Blunders: Effective Strategies to Prevent Errors While Utilizing ChamptGPT</u></a></li>
+<li><a href="https://win11.techidaily.com/demystifying-windows-security-patches/"><u>Demystifying Windows Security Patches</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/easytech-snapshot-quick-rundown-for-2024/"><u>EasyTech Snapshot Quick Rundown for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/enhance-lcd-precision-with-a-tweak/"><u>Enhance LCD Precision with a Tweak</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-smart-way-to-enhance-your-youtube-presence-legally/"><u>In 2024, The Smart Way to Enhance Your YouTube Presence Legally</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/optimizing-inner-spaces-with-sunshine-for-2024/"><u>Optimizing Inner Spaces with Sunshine for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/outdated-or-not-does-gpt-writeups-for-students/"><u>Outdated or Not: Does GPT Writeups for Students?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/premiere-mkv-player-suite-pcmobile/"><u>Premiere MKV Player Suite (PC/Mobile)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ronizing-social-media-channels-for-broad-distribution-for-2024/"><u>Synchronizing Social Media Channels for Broad Distribution for 2024</u></a></li>
 </ul></div>
 

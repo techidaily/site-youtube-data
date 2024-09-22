@@ -1,7 +1,7 @@
 ---
 title: "\"Starting Up YouTube - Your First Gear List\""
-date: 2024-07-13T02:51:02.248Z
-updated: 2024-07-14T02:51:02.248Z
+date: 2024-09-19T04:45:23.374Z
+updated: 2024-09-22T01:46:50.764Z
 tags:
   - ai video
   - ai youtube
@@ -86,6 +86,19 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
 **The long version:** Recording your videos with a mobile phone can be a good decision. It all depends on the phone you have and the range of add-ons and apps that you complement it with. Almost every high-end model released in the past five years can shoot videos in 1080p or higher. Some can even produce 4K footage. If you perfect your smartphone filming technique, your YouTube videos could look as if they were made with pro equipment.
@@ -93,6 +106,13 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 On the flip side, smartphone cameras typically perform poorly in low light. It is possible to download an app that lets you play around with settings to overcome this, but a phone-mounted LED light is probably a better solution. An external microphone might also be a necessity, but there are some good (inexpensive) options that can simply be plugged in through the headphone jack.
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Equipment with Easy-to-Use Video Editor
 
@@ -106,14 +126,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,6 +139,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-igtv-essentials-an-in-depth-look-at-content-strategies-for-2024/"><u>[New] IGTV Essentials An In-Depth Look at Content Strategies for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-25-top-free-tips-to-stream-online-learning-events-effectively/"><u>[Updated] 2024 Approved 25 Top Free Tips to Stream Online Learning Events Effectively</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-how-to-choose-the-right-thumbnail-size-for-impact/"><u>[Updated] 2024 Approved How to Choose the Right Thumbnail Size for Impact</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-capturing-moments-with-the-best-5-photo-and-video-apps-for-iphonesandroid/"><u>[Updated] Capturing Moments with the Best 5 Photo & Video Apps for iPhones/Android</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-choosing-the-right-youtube-tv-package-for-you/"><u>2024 Approved Choosing the Right YouTube TV Package for You</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-enhancing-video-appeal-20-premium-thumbnail-fonts/"><u>2024 Approved Enhancing Video Appeal 20 Premium Thumbnail Fonts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-motorola-moto-g-stylus-2023-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Motorola Moto G Stylus (2023) is off? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-benefits-of-the-microsoft-sculpt-keyboard-top-value-for-your-hands/"><u>Exploring the Benefits of the Microsoft Sculpt Keyboard: Top Value for Your Hands</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/rapid-viewer-for-10-windows-photos-for-2024/"><u>Rapid Viewer for 10 Windows Photos for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-futility-of-crushing-the-smartphone-industry-companies-cant-make-it-vanish/"><u>The Futility of Crushing the Smartphone Industry - Companies Can’t Make It Vanish.</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ideo-shooting-equipment-a-comprehensive-review/"><u>Top Video Shooting Equipment A Comprehensive Review</u></a></li>
+</ul></div>
 

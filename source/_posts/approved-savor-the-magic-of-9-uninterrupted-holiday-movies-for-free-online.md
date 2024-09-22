@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Savor the Magic of 9 Uninterrupted Holiday Movies for Free Online\""
-date: 2024-09-11T18:56:43.217Z
-updated: 2024-09-16T21:32:45.859Z
+date: 2024-09-20T02:42:03.739Z
+updated: 2024-09-22T06:31:41.231Z
 tags:
   - ai video
   - ai youtube
@@ -43,35 +43,54 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
+
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
@@ -82,13 +101,6 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -111,20 +123,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ssential-mp4-software-elevate-your-mac-productions/"><u>[New] Essential MP4 Software Elevate Your Mac Productions</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-attract-more-viewers-boosting-your-youtube-following/"><u>[New] In 2024, Attract More Viewers Boosting Your YouTube Following</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-finding-your-niche-making-money-with-video-content-for-2024/"><u>[Updated] Finding Your Niche Making Money with Video Content for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-proven-methods-for-boosting-video-watchers/"><u>[Updated] Proven Methods for Boosting Video Watchers</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/amds-latest-fire-range-zen-5-processors-uphold-tradition-with-fl1-packaging-indicating-next-gen-laptops-might-upgrade-to-rtx-series-gpus/"><u>AMD's Latest Fire Range: Zen 5 Processors Uphold Tradition with FL1 Packaging, Indicating Next-Gen Laptops Might Upgrade to RTX Series GPUs</u></a></li>
-<li><a href="https://win-blog.techidaily.com/dealing-with-nvidia-drivers-solutions-for-non-functioning-control-panels/"><u>Dealing with NVIDIA Drivers: Solutions for Non-Functioning Control Panels</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ver-top-6-short-video-download-sites-free-for-2024/"><u>Discover Top 6 Short Video Download Sites (FREE) for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-xiaomi-redmi-note-12r-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Xiaomi Redmi Note 12R Is Unlocked</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-step-by-step-to-craft-flawless-yt-thumbnails/"><u>In 2024, Step-by-Step to Craft Flawless YT Thumbnails</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/kensun-tire-inflator-assessment-durable-trustworthy-and-easy-to-carry/"><u>Kensun Tire Inflator Assessment: Durable, Trustworthy & Easy-to-Carry</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/mastering-auto-gpt-setup-in-ubuntu-the-ultimate-how-to-guide/"><u>Mastering Auto-GPT Setup in Ubuntu - The Ultimate How-To Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ring-iphone-video-playback-cycles/"><u>Mastering iPhone Video Playback Cycles</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/al-filming-equipment-advice-on-choosing-the-best-lenses/"><u>Optimal Filming Equipment Advice on Choosing the Best Lenses</u></a></li>
-<li><a href="https://techidaily.com/remove-google-frp-lock-on-tecno-phantom-v-flip-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Tecno Phantom V Flip</u></a></li>
-<li><a href="https://some-tips.techidaily.com/taco-bell-introduces-artificial-intelligence-for-drive-thru-orders/"><u>Taco Bell Introduces Artificial Intelligence for Drive-Thru Orders</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/lear-youtubes-obscured-visual-field/"><u>[New] Clear Youtube's Obscured Visual Field</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nterpreting-laws-around-youtube-content-capture-for-2024/"><u>[New] Interpreting Laws Around YouTube Content Capture for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/trategies-to-arrange-content-in-youtube-media/"><u>[New] Strategies to Arrange Content in YouTube Media</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-turning-viewers-into-cash-a-youtube-advertising-primer/"><u>[Updated] 2024 Approved Turning Viewers Into Cash A YouTube Advertising Primer</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-master-the-art-of-youtube-thumbnails-in-minutes-for-2024/"><u>[Updated] Master the Art of YouTube Thumbnails in Minutes for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-a-list-14-animation-illustration-cases/"><u>2024 Approved A-List 14 Animation Illustration Cases</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-mobile-shots-ios-11s-camera-innovations/"><u>2024 Approved Mastering Mobile Shots IOS 11'S Camera Innovations</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-navigating-the-past-accelerated-access-to-archived-content/"><u>2024 Approved Navigating the Past Accelerated Access to Archived Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-profit-power-up-innovative-ways-to-earning-with-youtube-mobile-views/"><u>2024 Approved Profit Power-Up Innovative Ways to Earning with YouTube Mobile Views</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-nokia-xr21-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Nokia XR21</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-infinix-hot-40-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Infinix Hot 40</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-turning-youtube-sounds-into-text-an-in-depth-no-cost-course/"><u>In 2024, Turning YouTube Sounds Into Text An In-Depth, No-Cost Course</u></a></li>
+<li><a href="https://apple-account.techidaily.com/unlock-apple-id-without-phone-number-on-iphone-xs-max-by-drfone-ios/"><u>Unlock Apple ID without Phone Number On iPhone XS Max</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlocking-apple-iphone-6-lock-screen-3-foolproof-methods-that-actually-work-by-drfone-ios/"><u>Unlocking Apple iPhone 6 Lock Screen 3 Foolproof Methods that Actually Work</u></a></li>
 </ul></div>
 
