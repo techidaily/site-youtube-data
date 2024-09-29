@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Fix YouTube Video Black Screen"
-date: 2024-09-18T05:48:01.392Z
-updated: 2024-09-22T03:58:36.212Z
+date: 2024-09-26T20:32:40.925Z
+updated: 2024-09-29T00:47:51.188Z
 tags:
   - ai video
   - ai youtube
@@ -93,16 +93,16 @@ After launching the web browser (Google Chrome is used here for example), go to 
 
 ![clear google chrome cache](https://images.wondershare.com/filmora/article-images/clear-google-chrome-cache.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Switch between the **Basic** and **Advanced** tabs on the **Clear browsing data** box to choose the records that you want to delete, and then choose your preferred duration of the records from the **Time range** drop-down list.
 
 ![clear google chrome browsing data](https://images.wondershare.com/filmora/article-images/clear-browsing-data-chrome.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Click **Clear data** from the bottom-right corner to clear browsing caches.
 
@@ -157,10 +157,10 @@ Click **Yes** on the **User Account Control** confirmation box, and in the **Com
 ![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Try opening the YouTube video again and see if the issue is fixed
@@ -176,10 +176,10 @@ Expand the **Display adapters** tree on the **Device Manager** snap-in, and righ
 ![upgrade graphic card to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/upgrade-graphic-card-to-fix-youtube-video-black-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Click **Search automatically for drivers** from the next screen that appears and follow the on-screen instructions from there to update the graphic card driver.
@@ -187,10 +187,10 @@ Click **Search automatically for drivers** from the next screen that appears and
 **Note:** If your PC has multiple graphic cards installed in it, you will have to follow this procedure for each of them individually.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Troubleshoot YouTube Black Screen on Mobile?
@@ -206,6 +206,13 @@ Go to **Settings** and then tap **Apps** from the **Settings** Go to YouTube and
 Tap it and then select **Clear data and Clear cache**. Relaunch YouTube and see if the issue is fixed.
 
 ![fix YouTube black screen on Android](https://images.wondershare.com/filmora/article-images/fix-youtube-video-black-screen-android.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Troubleshoot YouTube Black Screen On iOS
 
@@ -234,5 +241,26 @@ There could be several reasons for **YouTube black screen**, and depending on th
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ow-to-automate-iphones-video-repetition-for-2024/"><u>[New] How to Automate iPhone's Video Repetition for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-advanced-transitions-techniques-for-audios/"><u>[New] In 2024, Advanced Transitions Techniques for Audios</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-blueprint-strategies-for-authentic-life-enrichment-videos/"><u>[New] In 2024, Blueprint Strategies for Authentic Life Enrichment Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-snatch-free-media-treasures-from-top-4-online-creators/"><u>[New] In 2024, Snatch Free Media Treasures From Top 4 Online Creators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-transform-viewership-seo-for-the-newbie-on-youtube/"><u>[New] In 2024, Transform Viewership SEO for the Newbie on YouTube</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovative-mobile-multimedia-tools-to-transform-photos/"><u>[New] Innovative Mobile Multimedia Tools to Transform Photos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-studios-comprehensive-guide-to-video-post-production-for-2024/"><u>[New] YouTube Studio's Comprehensive Guide to Video Post Production for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mastering-idevice-screen-recording-techniques-for-youtube/"><u>[Updated] Mastering iDevice Screen Recording Techniques for YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/checking-credentials-on-youtube/"><u>Checking Credentials on YouTube</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/guide-to-setting-up-a-secure-online-flipbook-downloads-on-your-site-with-flipbuilder/"><u>Guide to Setting Up a Secure Online Flipbook Downloads on Your Site with FlipBuilder</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-discovering-your-curated-collection-of-tunes-in-youtubes-depths/"><u>In 2024, Discovering Your Curated Collection of Tunes in YouTube's Depths</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-mastering-background-replacement-on-instagrams-platform/"><u>In 2024, Mastering Background Replacement on Instagram's Platform</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/key-elements-in-constructing-a-podcast-rss-feed-for-2024/"><u>Key Elements in Constructing a Podcast RSS Feed for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-the-latest-addition-to-the-ring-home-security-lineup/"><u>The Ultimate Verdict on the Latest Addition to the Ring Home Security Lineup</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/form-your-online-presence-sharing-youtube-videos-on-fb-today-for-2024/"><u>Transform Your Online Presence Sharing YouTube Videos on FB Today for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/vloggers-paradise-top-14-video-editing-software-for-free-and-paid-use/"><u>Vloggers Paradise Top 14 Video Editing Software for Free and Paid Use</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/bes-shorts-thumbnail-dilemnas-and-quick-fixes-for-2024/"><u>YouTube's Shorts Thumbnail Dilemnas & Quick Fixes for 2024</u></a></li>
+</ul></div>
 

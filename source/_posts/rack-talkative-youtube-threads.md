@@ -1,7 +1,7 @@
 ---
 title: "[New] Track Talkative YouTube Threads"
-date: 2024-09-21T01:14:43.072Z
-updated: 2024-09-21T18:45:30.072Z
+date: 2024-09-21T23:29:09.164Z
+updated: 2024-09-29T01:36:49.480Z
 tags:
   - ai video
   - ai youtube
@@ -75,15 +75,22 @@ It is one of the most user-friendly and ad-free random comment pickers available
 
 ![Hadzy YouTube comment   search feature](https://images.wondershare.com/filmora/article-images/hadzy-youtube-comment-finder.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * In the next step, you will be redirected to another pop-up with two buttons- 'View Comments' and 'View Statistics.' Click on View Comments to check the first, second and all the other comments in ascending order.
 * **Unique feature 1:** By clicking the View Statistics button, you can get a track of the popular words used in the comment section and the top questions asked by your followers.
 * **Unique feature 2:** Along with the comment, details of the user, time of commenting, and many more things can be extracted from Hadzy.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Part 2:** **How to Find the First Comments You Have Posted on YouTube?**
@@ -129,6 +136,13 @@ Did you know you can also customize your comment section as per your need? On th
 
 ![  YouTube comment  and rating settings ](https://images.wondershare.com/filmora/article-images/set-up-comment-ratings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Under 'Comments and ratings,' select Sort by, and then choose between "Top" and "Newest."
 * Save the changes, and you are done!
 
@@ -143,10 +157,16 @@ YouTube Comments Finder helps you keep track of the good and bad comments in you
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -168,5 +188,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-how-to-prevent-and-mend-live-stream-glitches-fb/"><u>[New] 2024 Approved How to Prevent & Mend Live Stream Glitches (FB)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-maximizing-video-income-key-view-numbers-for-earning-on-youtube/"><u>[New] 2024 Approved Maximizing Video Income Key View Numbers for Earning on YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-expert-strategies-for-efficient-whatsapp-use-for-2024/"><u>[Updated] Expert Strategies for Efficient WhatsApp Use for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-software-less-method-to-save-youtube-videos/"><u>[Updated] Free Software-Less Method to Save YouTube Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-mic-selection-made-easy-optimal-picks-for-vloggers-educators-and-more/"><u>[Updated] In 2024, Mic Selection Made Easy Optimal Picks for Vloggers, Educators & More</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-best-7-multimedia-cameras-for-quality-live-streams-and-video-blogs/"><u>2024 Approved Best 7 Multimedia Cameras For Quality Live Streams & Video Blogs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-uncovering-basics-of-asmr-audio-experiences/"><u>2024 Approved Uncovering Basics of ASMR Audio Experiences</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-unboxing-the-zte-blade-a3y-top-notch-budget-phone/"><u>Affordable Excellence: Unboxing the ZTE Blade A3Y - Top-Notch Budget Phone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/struggling-youtuber-to-industry-leader-the-hub-of-creator-studios-wisdom/"><u>From Struggling Youtuber to Industry Leader The Hub of Creator Studio's Wisdom</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-free-easy-to-use-online-editors-for-quick-postings/"><u>In 2024, Free, Easy-to-Use Online Editors for Quick Postings</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-high-ranking-videos-youtubes-everlasting-classics/"><u>In 2024, High-Ranking Videos YouTube’s Everlasting Classics</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-leave-a-life360-group-on-google-pixel-8-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Google Pixel 8 Pro Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-netflix-picture-in-picture-how-to-use-the-netflix-floating-window-feature/"><u>In 2024, Netflix Picture-in-Picture - How to Use the Netflix Floating Window Feature</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-from-iphone-se-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock from iPhone SE</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-hr-chronicles-the-best-ten-vids-for-2024/"><u>Motivating HR Chronicles - The Best Ten Vids for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-convert-4k-videos-to-mp4-a-step-by-step-guide-to-easy-downloads-for-2024/"><u>New Convert 4K Videos to MP4 A Step-by-Step Guide to Easy Downloads for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/lueprint-composing-a-hit-mukbang-video-for-2024/"><u>The Blueprint Composing a Hit Mukbang Video for 2024</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-music-from-samsung-galaxy-a15-5g-by-fonelab-android-recover-music/"><u>Undelete lost music from Samsung Galaxy A15 5G</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/l-ventures-a-guide-to-social-video-growth/"><u>Visual Ventures A Guide to Social Video Growth</u></a></li>
+</ul></div>
 

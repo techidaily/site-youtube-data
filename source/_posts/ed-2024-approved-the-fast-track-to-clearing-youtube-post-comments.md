@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Fast Track to Clearing YouTube Post-Comments\""
-date: 2024-09-15T19:03:40.464Z
-updated: 2024-09-22T01:33:09.860Z
+date: 2024-09-24T19:20:45.208Z
+updated: 2024-09-28T19:41:48.899Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -89,10 +96,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
@@ -115,13 +122,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -132,15 +132,22 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
@@ -173,5 +180,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-profit-pinnacle-peak-your-income-by-monetizing-youtube-mobile-content/"><u>[New] 2024 Approved Profit Pinnacle Peak Your Income by Monetizing YouTube Mobile Content</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-advanced-strategies-for-quiet-capturing-for-2024/"><u>[New] Advanced Strategies for Quiet Capturing for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-boost-or-dial-down-youtube-audio-with-devices-for-2024/"><u>[New] Boost or Dial Down YouTube Audio with Devices for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-chronicle-samsung-games-with-precision-timing-for-2024/"><u>[Updated] Chronicle Samsung Games with Precision Timing for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-overcoming-shadows-in-indoor-vlogging-environments/"><u>[Updated] In 2024, Overcoming Shadows in Indoor Vlogging Environments</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-startup-steps-for-successful-youtubers-setting-up-channels-securing-sales/"><u>[Updated] Startup Steps for Successful Youtubers Setting Up Channels, Securing Sales</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-key-to-successful-multi-view-facebook-streaming/"><u>[Updated] The Key to Successful Multi-View Facebook Streaming</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-leading-edge-in-creating-stunning-facebook-cover-photos-top-11-sites-reviewed-for-2024/"><u>[Updated] The Leading Edge in Creating Stunning Facebook Cover Photos - Top 11 Sites Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-a-skin-deep-sage-setting-up-your-beauty-channel-for-2024/"><u>Becoming a Skin-Deep Sage Setting Up Your Beauty Channel for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/economical-and-superb-performance-comprehensive-guide-to-fossils-sports-watches/"><u>Economical & Superb Performance - Comprehensive Guide to Fossil's Sports Watches</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-decoding-youtubes-algorithm-behind-prominent-comments/"><u>In 2024, Decoding YouTube's Algorithm Behind Prominent Comments</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-top-10-hashtag-trackers-on-facebook-twitter-and-instagram-networks/"><u>In 2024, Top 10 Hashtag Trackers on Facebook, Twitter & Instagram Networks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/secrets-to-successful-twitpicingvideo-edition-for-2024/"><u>Secrets to Successful Twitpicing—Video Edition for 2024</u></a></li>
+</ul></div>
 

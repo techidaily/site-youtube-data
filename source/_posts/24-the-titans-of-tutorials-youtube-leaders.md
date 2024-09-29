@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Titans of Tutorials  YouTube Leaders\""
-date: 2024-09-19T00:11:23.884Z
-updated: 2024-09-21T18:40:25.697Z
+date: 2024-09-26T19:57:14.138Z
+updated: 2024-09-28T17:29:28.683Z
 tags:
   - ai video
   - ai youtube
@@ -71,6 +71,19 @@ At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second 
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###  3\.  ElrubiusOMG
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
@@ -83,6 +96,13 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
@@ -90,15 +110,22 @@ Most channels that have one viral video do not go on to have sustained success o
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -108,23 +135,9 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -147,5 +160,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-chasing-profit-on-platforms-youtube-partner-application-steps/"><u>[New] 2024 Approved Chasing Profit on Platforms YouTube Partner Application Steps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-launching-into-youtube-success-a-starter-guide-for-profit/"><u>[New] 2024 Approved Launching Into Youtube Success A Starter Guide for Profit</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-spike-youtube-engagement-through-strategic-timing/"><u>[New] 2024 Approved Spike YouTube Engagement Through Strategic Timing</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-masterpiece-models-best-of-the-computer-world/"><u>[New] Masterpiece Models Best of the Computer World</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-gain-an-edge-in-views-with-these-5-youtube-thumbnail-creators-for-2024/"><u>[Updated] Gain an Edge in Views with These 5 YouTube Thumbnail Creators for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-ignite-creativity-with-the-best-android-drawing-app-selection/"><u>[Updated] Ignite Creativity with the Best Android Drawing App Selection</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-elevated-engagement-awards-on-video-realms/"><u>[Updated] In 2024, Elevated Engagement Awards on Video Realms</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-reducing-loudness-gradually-techniques-for-logic-pro-users/"><u>[Updated] Reducing Loudness Gradually Techniques for Logic Pro Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/st-asmr-recorders-for-exceptional-audio-quality/"><u>10 Best ASMR Recorders for Exceptional Audio Quality</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-spotlight-play-how-to-stand-out-with-youtube-gaming/"><u>2024 Approved Spotlight Play How to Stand Out with YouTube Gaming</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unleash-your-full-potential-top-ideas-for-productive-podcast-sessions/"><u>2024 Approved Unleash Your Full Potential Top Ideas for Productive Podcast Sessions</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/analyzing-google-stadias-performance-potential-enhancements-identified/"><u>Analyzing Google Stadia's Performance: Potential Enhancements Identified</u></a></li>
+<li><a href="https://fox-http.techidaily.com/exploring-the-leading-10-macwindows-srt-enhancers-for-2024/"><u>Exploring the Leading 10 Mac/Windows SRT Enhancers for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-6-plus-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 6 Plus without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-does-quick-subscribe-strategy-boost-audience-growth/"><u>In 2024, Does Quick-Subscribe Strategy Boost Audience Growth?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tackling-error-0x80070570-restore-corrupted-files-directories/"><u>Tackling Error 0X80070570: Restore Corrupted Files, Directories</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-to-managing-chatgpt-interactions-using-folders/"><u>The Ultimate Guide to Managing ChatGPT Interactions Using Folders</u></a></li>
+</ul></div>
 

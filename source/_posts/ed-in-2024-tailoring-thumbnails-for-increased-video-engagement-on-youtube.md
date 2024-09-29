@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Tailoring Thumbnails for Increased Video Engagement on YouTube"
-date: 2024-09-16T19:03:06.381Z
-updated: 2024-09-21T18:55:51.357Z
+date: 2024-09-25T22:18:20.251Z
+updated: 2024-09-29T01:20:46.391Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -67,6 +74,13 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
@@ -74,10 +88,10 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -93,10 +107,10 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -118,5 +132,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-bandicam-screen-recorder-review/"><u>[New] Bandicam Screen Recorder Review</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-stream-success-linking-twitch-feeds-to-fb-networks/"><u>[New] In 2024, Stream Success Linking Twitch Feeds to FB Networks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ioneering-creativity-youtubes-playground-for-talent-for-2024/"><u>[New] Pioneering Creativity YouTube's Playground for Talent for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-deciphering-content-control-youtube-vs-creative-commons-license/"><u>[Updated] In 2024, Deciphering Content Control YouTube Vs. Creative Commons License</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-partner-vids-for-rapid-channelnode-growth/"><u>[Updated] In 2024, Partner Vids for Rapid Channelnode Growth</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-mastering-the-art-of-purchasing-drones-insider-advice/"><u>[Updated] Mastering the Art of Purchasing Drones Insider Advice</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-tailored-insights-setting-up-your-personalbusiness-yt-channel-mobilely/"><u>[Updated] Tailored Insights Setting Up Your Personal/Business YT Channel Mobilely</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-laugh-and-cry-on-instagram-best-meme-accounts-of-the-year/"><u>2024 Approved Laugh and Cry on Instagram Best Meme Accounts of the Year</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-channels-growth-strategies-for-effective-trailers/"><u>Boosting Channels' Growth Strategies for Effective Trailers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-realme-12-5g-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Realme 12 5G?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-apple-iphone-14-plus-asking-for-passcode-after-ios-1714-update-what-to-do-by-drfone-ios/"><u>In 2024, Apple iPhone 14 Plus Asking for Passcode after iOS 17/14 Update, What to Do?</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/navigating-to-facebooks-story-archives-quickly/"><u>Navigating to Facebook's Story Archives Quickly</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ize-your-viewing-experience-on-youtube-with-speed-settings-for-2024/"><u>Optimize Your Viewing Experience on YouTube with Speed Settings for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/punpixel-patterner-for-2024/"><u>PunPixel Patterner for 2024</u></a></li>
+</ul></div>
 

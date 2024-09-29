@@ -1,7 +1,7 @@
 ---
 title: "Unlock Your Video's Hidden Potential with These Top 20 Shortcuts"
-date: 2024-09-19T06:04:07.796Z
-updated: 2024-09-22T04:29:53.681Z
+date: 2024-09-28T02:04:00.800Z
+updated: 2024-09-28T16:26:45.092Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,13 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -66,10 +73,16 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 3: Manage Playback Speed
@@ -103,13 +116,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -124,6 +130,13 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -135,6 +148,13 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Numpad)   | Zoom out                                              |
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
@@ -155,13 +175,6 @@ Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorial
 As one of the most popular video editing software among YouTubers, Filmora provides lots of effects, title templates, transitions, and elements as well as powerful video editing tools such as instant cutter tool, [scene detection](https://tools.techidaily.com/wondershare/filmora/download/), [beat detection](https://tools.techidaily.com/wondershare/filmora/download/), [motion tracking](https://tools.techidaily.com/wondershare/filmora/download/), animation keyframe, and much more. All these editing features and effects makes Filmora as one of the best video editing software for all creators.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -184,5 +197,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-avoiding-the-crowd-stand-out-with-unique-youtube-persona/"><u>[New] In 2024, Avoiding the Crowd Stand Out with Unique YouTube Persona</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-logitech-4k-pro-webcam-complete-review-2024/"><u>[New] Logitech 4K Pro Webcam Complete Review 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-secrets-to-successful-live-broadcasts-from-iphonesandroids/"><u>[New] Secrets to Successful Live Broadcasts From iPhones/Androids</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-snap-with-a-single-purpose-remove-bg-using-affinity/"><u>[New] Snap with a Single Purpose - Remove Bg Using Affinity</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-achieve-pristine-sound-in-recordings-free-tutorial-paid-tools-for-2024/"><u>[Updated] Achieve Pristine Sound in Recordings (Free Tutorial, Paid Tools) for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-brevity-in-action-shortening-youtube-video-content/"><u>[Updated] Brevity in Action Shortening YouTube Video Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-directors-academy-youtube-channels-for-cinematic-innovation/"><u>[Updated] Directors Academy YouTube Channels for Cinematic Innovation</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/bokeh-magic-the-ultimate-list-of-ios-and-android-apps-for-2024/"><u>Bokeh Magic The Ultimate List of iOS and Android Apps for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-samsung-galaxy-s23plus-device-sim-by-drfone-android/"><u>Easily Unlock Your Samsung Galaxy S23+ Device SIM</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-many-youtube-courses-together-for-2024/"><u>Exploring Many YouTube Courses Together for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/zero-to-hero-your-first-time-streaming-to-youtube/"><u>From Zero to Hero Your First Time Streaming to Youtube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-pretending-playfulness-making-mocks-and-laughs/"><u>In 2024, Pretending Playfulness Making Mocks and Laughs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-youtube-channel-lockdowns-device-specific-tips-for-2024/"><u>Mastering YouTube Channel Lockdowns Device-Specific Tips for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-chatgpt-enterprise-features-benefits-and-distinctions/"><u>Unveiling ChatGPT Enterprise: Features, Benefits, and Distinctions</u></a></li>
+<li><a href="https://win-blog.techidaily.com/kleisto-sklhrokaptaba-live-video-se-mp3-perigwn-and-dynama/"><u>Κλειστό Σκληροκάπταβα Live Video Σε MP3 - [Περίγων & Δύναμα]</u></a></li>
+</ul></div>
 

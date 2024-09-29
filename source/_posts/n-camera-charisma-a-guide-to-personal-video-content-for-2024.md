@@ -1,7 +1,7 @@
 ---
 title: "\"[New] On-Camera Charisma  A Guide to Personal Video Content for 2024\""
-date: 2024-09-18T05:12:39.935Z
-updated: 2024-09-22T00:31:40.357Z
+date: 2024-09-24T16:07:25.900Z
+updated: 2024-09-29T00:07:51.221Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,13 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -58,6 +65,13 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -71,13 +85,6 @@ At the 39 second mark of the above video, electronic music producer deadmau5 is 
 You can see from how even the background and couch looks across the entire camera frame that there is no distortion or enhanced perspective.
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
 
@@ -103,6 +110,13 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
@@ -112,10 +126,10 @@ To make a talking-head video more interesting, you can add some background music
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -137,5 +151,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-assessing-the-riches-of-mr-beast/"><u>[New] In 2024, Assessing the Riches of Mr. Beast</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-gif-editor-how-to-make-animated-gif-images-online-from-youtube-video/"><u>[New] In 2024, GIF Editor How to Make Animated GIF Images Online From YouTube Video</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-maximizing-display-youtube-video-upgrades/"><u>[New] Maximizing Display YouTube Video Upgrades</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nraveling-youtubes-highest-peaks-post-vidcon/"><u>[New] Unraveling Youtube's Highest Peaks (Post-VidCon)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-cutting-edge-voice-altering-apps-for-vloggers/"><u>[Updated] 2024 Approved Cutting-Edge Voice Altering Apps for Vloggers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-discovering-the-secrets-to-targeted-youtubes-likes-and-views-for-2024/"><u>[Updated] Discovering the Secrets to Targeted YouTubes Likes and Views for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-grasping-social-media-success-basic-facebook-statistics-for-2024/"><u>[Updated] Grasping Social Media Success Basic Facebook Statistics for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-digital-detox-ignoring-negativity-on-youtube/"><u>[Updated] In 2024, Digital Detox Ignoring Negativity on YouTube</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-iphone-album-arrangement-masterclass-achieving-systematic-order-and-cloud-sync-for-2024/"><u>[Updated] IPhone Album Arrangement Masterclass Achieving Systematic Order & Cloud Sync for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-photo-refinement-mastering-the-psx-erase-feature-for-2024/"><u>[Updated] Photo Refinement Mastering the PSX Erase Feature for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unveiling-youtubes-complex-view-count-system/"><u>[Updated] Unveiling YouTube's Complex View Count System</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-stitch-together-photographs-the-montage-masterclass/"><u>In 2024, Stitch Together Photographs The Montage Masterclass</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-fundamentals-of-navigating-youtube-regulations/"><u>In 2024, The Fundamentals of Navigating YouTube Regulations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-the-art-of-creating-top-quality-edu-videos-for-learning-platforms-for-2024/"><u>Mastering the Art of Creating Top-Quality Edu-Videos for Learning Platforms for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/meilleurs-logiciels-libres-pour-capturer-lecran-de-votre-ordinateur/"><u>Meilleurs Logiciels Libres Pour Capturer L'Écran De Votre Ordinateur</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/norton-rose-llp-setzt-auf-fortschrittliche-dokumentenverarbeitung-mit-abbyy-recognition-server-zentralisierte-digitalisierung-fur-anwalte/"><u>Norton Rose LLP Setzt Auf Fortschrittliche Dokumentenverarbeitung Mit ABBYY Recognition Server – Zentralisierte Digitalisierung Für Anwälte</u></a></li>
+<li><a href="https://extra-support.techidaily.com/reviewing-the-action-realm-with-t5s-thievery-for-2024/"><u>Reviewing the Action Realm with T5's Thievery for 2024</u></a></li>
+</ul></div>
 

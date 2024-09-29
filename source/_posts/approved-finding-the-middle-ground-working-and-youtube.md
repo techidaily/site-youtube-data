@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Finding the Middle Ground  Working & YouTube\""
-date: 2024-09-14T18:38:11.126Z
-updated: 2024-09-22T03:01:58.741Z
+date: 2024-09-26T16:40:10.890Z
+updated: 2024-09-29T01:24:02.685Z
 tags:
   - ai video
   - ai youtube
@@ -55,16 +55,16 @@ I know what you’re thinking - “What?! That’s insane.” The first piece of
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4. Create 3-5 videos in advance
 
@@ -76,6 +76,19 @@ In the event that life gets too crazy, it’s perfectly fine to do just audio. M
 
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Make a YouTube Video with Wondershare Filmora
 
 Wondershare Filmora is one application that people prefer over any other video editing application due to its easy-to-use editing tools and social media aimed settings. This application can help any beginner with a desire to shoot a movie, achieve his dream even without the availability of high-tech cameras or equipment in his hand. The features like video stabilization feature and lens correction allow removing the major defects that occur while capturing a video. A large number of filters in the application can be used to give the cinematic effect whether it be a short video or a long movie.
@@ -85,13 +98,20 @@ Just try it and create your own YouTube video!
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -112,5 +132,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-the-essence-of-timelessness-instagrams-slow-motion-guide-for-2024/"><u>[New] The Essence of Timelessness Instagram's Slow-Motion Guide for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-deciphering-digital-dominance-youtube-content-strategy-comparison-for-2024/"><u>[Updated] Deciphering Digital Dominance YouTube Content Strategy Comparison for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-enlightenment-in-education-top-10-history-youtube-channels-for-2024/"><u>[Updated] Enlightenment in Education Top 10 History YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-structuring-videos-for-maximum-impact-on-youtube-for-2024/"><u>[Updated] Structuring Videos for Maximum Impact on YouTube for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-10-superior-video-text-enhancements/"><u>2024 Approved 10 Superior Video Text Enhancements</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-demystifying-the-powerhouse-behind-youtube-creator-hub/"><u>2024 Approved Demystifying the Powerhouse Behind YouTube Creator Hub</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-chromebook-c202sa-a-comprehensive-student-and-kid-friendly-device-guide/"><u>Asus Chromebook C202SA - A Comprehensive Student & Kid-Friendly Device Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ensuring-seamless-connectivity-how-to-update-usb-drivers-on-samsung-mobile-devices/"><u>Ensuring Seamless Connectivity: How to Update USB Drivers on Samsung Mobile Devices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-nokia-150-2023-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Nokia 150 (2023)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-tale-of-two-platforms-youtube-and-dailymention-for-2024/"><u>The Tale of Two Platforms YouTube and DailyMention for 2024</u></a></li>
+</ul></div>
 

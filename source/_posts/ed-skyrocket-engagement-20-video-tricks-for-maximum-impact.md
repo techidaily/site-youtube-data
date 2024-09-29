@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Skyrocket Engagement  20 Video Tricks for Maximum Impact\""
-date: 2024-09-19T01:30:51.394Z
-updated: 2024-09-22T03:42:19.553Z
+date: 2024-09-26T19:09:34.645Z
+updated: 2024-09-28T17:55:53.438Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,13 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -74,13 +81,6 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -103,6 +103,13 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -116,6 +123,13 @@ The shortcut keys given in this table enable you to switch between different scr
 Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 7: Viewing 360o/VR Videos
 
@@ -142,10 +156,10 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -157,13 +171,6 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -184,5 +191,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-streamlining-discovery-the-key-to-effective-video-titling/"><u>[New] 2024 Approved Streamlining Discovery The Key to Effective Video Titling</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-video-dimensions-the-key-to-youtube-presence/"><u>[New] Mastering Video Dimensions The Key to YouTube Presence</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-discover-youtubes-free-text-translations-and-downloads/"><u>[Updated] 2024 Approved Discover YouTube's Free Text Translations & Downloads</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-driven-communication-to-mitigate-social-isolation/"><u>AI-Driven Communication to Mitigate Social Isolation</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/cial-forecasting-in-the-world-of-youtube-snippet-creation/"><u>Financial Forecasting in the World of YouTube Snippet Creation</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Vivo Y78 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-maximizing-video-impact-a-comprehensive-guide-to-youtube-popularity/"><u>In 2024, Maximizing Video Impact A Comprehensive Guide to YouTube Popularity</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-for-oculus-go-with-full-access-through-facebook/"><u>New Era for Oculus Go with Full Access Through Facebook</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/the-filmmakers-handbook-for-uav-operations/"><u>The Filmmaker's Handbook for UAV Operations</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-reasons-behind-an-unresponsive-touchscreen-on-your-apple-watch/"><u>Top Reasons Behind an Unresponsive Touchscreen on Your Apple Watch</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/transform-avi-into-crystal-clear-mp3-for-zero-cost-ultimate-guide-to-lossless-conversion-methods/"><u>Transform AVI Into Crystal Clear MP3 for Zero Cost - Ultimate Guide to Lossless Conversion Methods</u></a></li>
+</ul></div>
 

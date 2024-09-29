@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Creative Geniuses  Selecting the Best YouTube Videos for Channels\""
-date: 2024-09-15T00:15:26.887Z
-updated: 2024-09-22T04:27:00.443Z
+date: 2024-09-23T19:16:56.982Z
+updated: 2024-09-28T17:49:53.371Z
 tags:
   - ai video
   - ai youtube
@@ -85,6 +85,13 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Speed Round:** You think you are good at something? Well, why not try to do it as quickly as possible? Complete a round of video games as quickly as you can. Do a MasterChef mystery box challenge in your kitchen. [Run from one subway station to the next](https://www.youtube.com/watch?v=PH%5FZ8Ghuq6E), beating the tube itself.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Show Your Talent**
 
 **Make Music:** An original song, a cover, or a remix, YouTube is a fantastic platform to showcase your musical talents. Don’t forget, some of the world’s top artists began their journey on YouTube. You might be next to join the [discovered on YouTube list](https://www.teenvogue.com/story/best-artists-discovered-on-youtube).
@@ -92,6 +99,13 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Creating:** Are you an artist? Show your process in making a piece. Depending on the speed in which your project takes, use a timelapse to present what you did in the most effective way.
 
  **Unusual skill:** Do you have a party trick that you would love to show everyone, but don’t have a party to go to? YouTube is the place for you. Juggle, do a magic trick, dance like Christopher Walkens, whatever unusual skill you have, share it on camera, and get the accolades you so deserve.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **5\. Explore Your Surroundings**
 
@@ -102,19 +116,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Travel:** Go on a trip and bring your camera with you. Create drama by documenting all the things that didn’t go as planned… and any memorable trip will have hiccups along the way. Discover things along the way and vocalize your thoughts through the trip.
 
 **Discuss Current Events:** As the environmental climate, there is also a social and political climate. Address the current state of events in your city. Are there plans to build new infrastructure? Is there a social injustice that the public should know about? You can discuss international affairs, national politics, or keep it local to start.
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **6\. Be An Educator**
 
@@ -129,13 +130,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
  **Guided Activities:** For beginners, some activities are better with a guide. If the audience is unable to join an in-person class, YouTube is a wonderful online alternative for guided activities such as yoga, meditation, and other exercise or relaxation activities.
 
 **Tutorial:** Is there software you use particularly well? Are you skilled in the kitchen or the garage? Can you install appliances without reading the instructions? Give a step-by-step tutorial in completing a project.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **7\. Share Your Beliefs and Lifestyle**
 
@@ -158,6 +152,13 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Haul:** If you have some money to spend, create a haul YouTube video. Haul video involves you going on a shopping spree and bringing home a big “haul.” In essence, it is an unboxing video on steroids. This type of video generally involves fashion or groceries, but it can be related to anything in large quantity. It’s all about showing off your new stuff to the audience.
 
 **Unboxing:** Got something new from Amazon? Before you open it, turn on your camera. Unboxing is an easy YouTube video idea that allows your viewers who are considering buying the item to better understand whether it is in fact the right purchase for them.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **8\. Nurture Your Curiosity**
 
@@ -189,10 +190,10 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Timeline of a Topic:** Pick any topic and trace the lineage and better understand how it has gotten to this point. Where did it begin, has it hit critical mass, and how has it evolved over the years?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **9\. Be a Fan and a Critic**
@@ -268,5 +269,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/nhance-video-magic-find-your-favorite-mobile-edit-apps/"><u>[New] Enhance Video Magic Find Your Favorite Mobile Edit Apps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ont-selection-wonders-enhancing-youtube-video-thumbnails/"><u>[New] Font Selection Wonders Enhancing YouTube Video Thumbnails</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eaderboards-unveiled-1-26-in-youtube-snacking-for-2024/"><u>[New] Leaderboards Unveiled #1, #2...#6 in YouTube Snacking for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-breaking-into-youtubes-top-100-with-effective-seo/"><u>[Updated] 2024 Approved Breaking Into YouTube's Top 100 With Effective SEO</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-amass-1000-visionary-supporters-fast-track-style/"><u>[Updated] Amass 1,000 Visionary Supporters Fast-Track Style</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-skyrocket-your-video-speed-expert-tips-for-faster-render-and-upload/"><u>[Updated] In 2024, Skyrocket Your Video Speed Expert Tips for Faster Render & Upload</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-journey-through-japan-best-video-games-akin-to-ghost-of-tsushima-for-2024/"><u>[Updated] Journey Through Japan Best Video Games Akin to Ghost of Tsushima for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-staying-within-the-limits-key-youtube-policies/"><u>[Updated] Staying Within the Limits Key YouTube Policies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-streamlining-your-youtube-presence-with-best-video-formats-for-2024/"><u>[Updated] Streamlining Your YouTube Presence with Best Video Formats for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-audio-experience-budget-friendly-asmr-mics-reviewed-for-2024/"><u>[Updated] Ultimate Audio Experience Budget-Friendly ASMR Mics Reviewed for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-budding-entrepreneurs-mastering-telegram-advertising-basics/"><u>2024 Approved Budding Entrepreneurs Mastering Telegram Advertising Basics</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/garmin-venu-review-a-smart-247-fitness-and-health-tracking-companion/"><u>Garmin Venu Review: A Smart 24/7 Fitness and Health-Tracking Companion</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-top-picks-affordable-apps-for-youtube-sbs-grabbing/"><u>In 2024, Top Picks Affordable Apps for YouTube SBS Grabbing</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-free-to-edit-top-video-editing-software-without-watermarks-or-fees-for-2024/"><u>New Free to Edit Top Video Editing Software without Watermarks or Fees for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Instructional Guide  Modify Comment Accessibility on YouTube\""
-date: 2024-09-17T17:59:32.176Z
-updated: 2024-09-22T03:41:01.229Z
+date: 2024-09-22T21:32:10.723Z
+updated: 2024-09-28T18:33:33.008Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -117,6 +124,13 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -133,6 +147,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +167,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +194,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-charting-the-course-of-creative-conquests-self-vs-competitors-on-youtube/"><u>[New] 2024 Approved Charting the Course of Creative Conquests Self Vs. Competitors on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nveiling-the-best-youtube-channel-titles-a-must-have-guide-for-vloggers-limit-to-156-characters-for-2024/"><u>[New] Unveiling the Best Youtube Channel Titles A Must-Have Guide for Vloggers (Limit to 156 Characters) for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-crafting-engaging-channels-using-tubebuddys-framework/"><u>[Updated] 2024 Approved Crafting Engaging Channels Using TubeBuddy's Framework</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-free-tips-embedding-moving-images-in-written-content/"><u>[Updated] 2024 Approved Free Tips Embedding Moving Images in Written Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-best-of-both-worlds-youtubes-vr-gems-for-2024/"><u>[Updated] Best of Both Worlds YouTube’s VR Gems for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-powerful-techniques-including-yt-videos-in-slides-for-2024/"><u>[Updated] Powerful Techniques Including YT Videos in Slides for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-epic-viewership-winners-youtubes-ultimate-list/"><u>2024 Approved Epic Viewership Winners YouTube's Ultimate List</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-unveiling-twitters-historical-content-reservoirs/"><u>2024 Approved Unveiling Twitter's Historical Content Reservoirs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ver-8-essential-sites-for-pristine-green-screen-images-for-2024/"><u>Discover 8 Essential Sites for Pristine Green Screen Images for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exclusive-analysis-full-potential-of-bublcams-360-degree-scope-for-2024/"><u>Exclusive Analysis Full Potential of Bublcam's 360-Degree Scope for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722983259698-experiencing-delays-improve-spotify-web-player-functionality-now/"><u>Experiencing Delays? Improve Spotify Web Player Functionality Now</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-perfecting-your-presentations-youtube-and-google-slides/"><u>In 2024, Perfecting Your Presentations YouTube and Google Slides</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-step-by-step-inserting-chapters-into-your-youtube-content/"><u>In 2024, Step-by-Step Inserting Chapters Into Your YouTube Content</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-method-for-uploading-pictures-from-an-aged-iphone-to-the-latest-iphone-x-using-a-mac-computer/"><u>Step-by-Step Method for Uploading Pictures From an Aged iPhone to the Latest iPhone X Using a Mac Computer</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/uture-of-makeup-predicted-titans-on-youtube/"><u>The Future of Makeup Predicted Titans on YouTube</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/the-ultimate-selection-of-10-premium-photo-repair-tools-for-both-pc-and-mac-enthusiasts/"><u>The Ultimate Selection of 10 Premium Photo Repair Tools for Both PC and Mac Enthusiasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/loggers-selection-premium-camera-lenses-compared-for-2024/"><u>The Vlogger's Selection Premium Camera Lenses Compared for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-solutions-resolving-issues-with-iphones-guided-access-feature/"><u>Top Solutions: Resolving Issues with iPhones' Guided Access Feature</u></a></li>
+<li><a href="https://win-dash.techidaily.com/ultimate-guide-to-upgrading-to-wacom-intuos-pro-drivers-for-your-windows-11-pc/"><u>Ultimate Guide to Upgrading to Wacom Intuos Pro Drivers for Your Windows 11 PC</u></a></li>
+</ul></div>
 

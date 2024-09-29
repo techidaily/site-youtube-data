@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Prevent These 8 Key Mishaps on Your YouTube Journey"
-date: 2024-09-14T16:50:35.339Z
-updated: 2024-09-22T00:00:50.667Z
+date: 2024-09-26T16:14:26.253Z
+updated: 2024-09-29T01:59:00.175Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,13 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ###  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
@@ -48,6 +55,13 @@ If you can think of the kind of content you’ll love to consistently create and
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -77,13 +91,6 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
@@ -91,10 +98,10 @@ YouTube isn’t the only social media platform that people are spending their ti
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. Spamming comments
@@ -108,16 +115,10 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -139,5 +140,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/oost-your-channels-following-by-a-thousand-for-2024/"><u>[New] Boost Your Channels' Following by a Thousand for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/levate-views-the-power-of-synergistic-youtube-content-partnerships/"><u>[New] Elevate Views The Power of Synergistic YouTube Content Partnerships</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-diy-filmmaking-for-youtube-personalities/"><u>[Updated] DIY Filmmaking for YouTube Personalities</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unsealing-the-secret-permanently-ditch-youtube-shorts/"><u>[Updated] Unsealing the Secret Permanently Ditch YouTube Shorts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-instantize-image-movement-with-photoshop/"><u>2024 Approved Instantize Image Movement with Photoshop</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-essence-of-podcast-marketing-creating-effective-feeds/"><u>2024 Approved The Essence of Podcast Marketing Creating Effective Feeds</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-xiaomi-13t-pro-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Xiaomi 13T Pro</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/crack-the-case-with-ai-indulge-in-4-intriguing-online-puzzles/"><u>Crack the Case with AI: Indulge in 4 Intriguing Online Puzzles</u></a></li>
+<li><a href="https://games-able.techidaily.com/fast-and-furious-boost-your-counter-strike-fps/"><u>Fast and Furious: Boost Your Counter-Strike FPS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ng-yt-comments-tips-for-desktop-iphone-android-users-for-2024/"><u>Finding YT Comments Tips for Desktop, iPhone, Android Users for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-editors-journey-creating-impactful-videos-for-youtube-with-pc/"><u>In 2024, The Editor's Journey Creating Impactful Videos for YouTube with PC</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-realme-11-proplus-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Realme 11 Pro+ Phone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/movavi-explains-unveiling-the-distinctions-between-wav-and-mp3-formats/"><u>Movavi Explains: Unveiling the Distinctions Between WAV and MP3 Formats</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/overcoming-the-top-4-barriers-in-your-gpt-account/"><u>Overcoming the Top 4 Barriers in Your GPT Account</u></a></li>
+</ul></div>
 

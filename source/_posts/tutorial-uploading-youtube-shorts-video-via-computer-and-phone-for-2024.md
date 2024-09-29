@@ -1,7 +1,7 @@
 ---
 title: "\"Easy Tutorial  Uploading YouTube Shorts Video via Computer & Phone for 2024\""
-date: 2024-09-16T17:58:00.971Z
-updated: 2024-09-21T22:44:07.067Z
+date: 2024-09-25T22:26:15.138Z
+updated: 2024-09-28T16:37:38.558Z
 tags:
   - ai video
   - ai youtube
@@ -81,11 +81,25 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 1: Upload an Existing Short Video
 
@@ -94,6 +108,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 #### Step 1: Select a Video to Upload
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
@@ -108,10 +129,10 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 2: Record a Short Video and Upload
@@ -123,19 +144,6 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -180,5 +188,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-unlocking-potential-metaverse-marketing-secrets/"><u>[New] 2024 Approved Unlocking Potential Metaverse Marketing Secrets</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-the-essential-lenovo-display-recording-hacks/"><u>[New] In 2024, The Essential Lenovo Display Recording Hacks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nline-capture-screen-to-youtube-posting-with-pcmac-for-2024/"><u>[New] Online Capture Screen-to-YouTube Posting with PC/Mac for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-the-most-engaging-tiktok-stars-for-your-drive-for-2024/"><u>[New] The Most Engaging TikTok Stars for Your Drive for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-tackling-frame-loss-best-practices-for-obs-users/"><u>[Updated] 2024 Approved Tackling Frame Loss Best Practices for OBS Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-dismantling-youtube-ranks-factors-and-their-effects-for-2024/"><u>[Updated] Dismantling YouTube Ranks Factors and Their Effects for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-taste-titans-top-culinary-bloggers-and-youtubers-for-2024/"><u>[Updated] Taste Titans Top Culinary Bloggers & YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-top-8-real-life-strategies-to-increase-youtube-reach/"><u>2024 Approved Top 8 Real-Life Strategies to Increase YouTube Reach</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/analyzing-the-yin-and-yang-of-ai-and-creativity/"><u>Analyzing the Yin & Yang of AI and Creativity</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/critical-alert-why-you-should-avoid-using-any-online-mkv-to-webm-converter-read-first/"><u>Critical Alert: Why You Should Avoid Using Any Online MKV to WebM Converter (Read First!)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-how-to-make-youtube-animated-subscribe-button-easily-in-filmora/"><u>In 2024, How to Make YouTube Animated Subscribe Button Easily in Filmora</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-your-yearly-list-prime-free-video-editing-software/"><u>In 2024, Your Yearly List Prime Free Video Editing Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/organizing-connected-tools-a-compreayers-guide-to-fb-integration/"><u>Organizing Connected Tools: A Compreayer's Guide to Fb Integration</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unleashing-potential-a-deep-dive-into-intova-x/"><u>Unleashing Potential A Deep Dive Into Intova X</u></a></li>
+</ul></div>
 
