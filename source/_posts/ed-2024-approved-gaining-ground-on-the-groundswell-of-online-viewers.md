@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Gaining Ground on the Groundswell of Online Viewers\""
-date: 2024-09-25T20:24:52.619Z
-updated: 2024-09-28T18:50:11.901Z
+date: 2024-10-02T02:09:44.808Z
+updated: 2024-10-03T20:45:13.816Z
 tags:
   - ai video
   - ai youtube
@@ -55,13 +55,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -70,6 +63,13 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -77,6 +77,13 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -91,10 +98,10 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -118,10 +125,10 @@ Consider your audience: they are coming home from school or work, where there we
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
@@ -148,13 +155,6 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -178,16 +178,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-visual-brand-integration-embedding-watermarks-and-logos-into-youtube-media/"><u>[New] 2024 Approved Visual Brand Integration Embedding Watermarks and Logos Into Youtube Media</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-football-inscriptions-premier-fifa-youtube-insights/"><u>[New] In 2024, Football Inscriptions Premier FIFA YouTube Insights</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-guide-to-ae-title-effect-wizardry-for-2024/"><u>[New] The Ultimate Guide to AE Title Effect Wizardry for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-essential-guide-to-aspect-ratios-for-effective-youtube-engagement/"><u>[Updated] 2024 Approved Essential Guide to Aspect Ratios for Effective YouTube Engagement</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-film-assembly-station/"><u>[Updated] Film Assembly Station</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-the-3-step-structure-for-successful-subscriber-profit-analysis-a-guide-from-google-for-2024/"><u>[Updated] The 3-Step Structure for Successful Subscriber Profit Analysis A Guide From Google for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-engaging-subjects-for-consistent-vlogging/"><u>2024 Approved Engaging Subjects for Consistent Vlogging</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-spawn-a-shared-chuckle/"><u>2024 Approved Spawn a Shared Chuckle</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/comprehensive-solutions-to-address-and-resolve-libgdk-win32-20-0dll-missing-file-problem/"><u>Comprehensive Solutions to Address and Resolve libgdk-win32-2.0-0.dll Missing File Problem</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-oppo-a1-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Oppo A1 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1726030567132-wavmp3/"><u>WAVからMP3への迅速なバッチ変換テクニックを学ぶ</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-strategic-thinking-keywords-that-lead-to-online-victory/"><u>[New] In 2024, Strategic Thinking Keywords that Lead to Online Victory</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/treamlining-creative-journey-uploading-imovie-videos-to-youtube-for-2024/"><u>[New] Streamlining Creative Journey Uploading iMovie Videos to YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nderstanding-what-makes-a-comment-noteworthy-on-youtube/"><u>[New] Understanding What Makes a Comment Noteworthy on YouTube</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-effortless-editing-in-obs-studio-with-top-5-hacks/"><u>[Updated] 2024 Approved Effortless Editing in OBS Studio with Top 5 Hacks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-football-film-breakdown-premier-insights-on-youtube/"><u>[Updated] 2024 Approved Football Film Breakdown Premier Insights on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-deciphering-how-tseries-benefits-from-youtube-for-2024/"><u>[Updated] Deciphering How TSeries Benefits From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-how-to-remove-black-bars-from-existing-youtube-videos/"><u>[Updated] In 2024, How to Remove Black Bars From Existing YouTube Videos?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-masterful-color-grading-explore-these-7-methods/"><u>[Updated] Masterful Color Grading Explore These 7 Methods</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-tunes-terms-and-copyrights-on-instagram/"><u>[Updated] Tunes, Terms, and Copyrights on Instagram</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-capture-mac-scenery-screen-and-microphone-feature/"><u>2024 Approved Capture Mac Scenery Screen and Microphone Feature</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-vivo-x100-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Vivo X100 Data? | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/resolve-flipped-display-issue-in-windows-10-os/"><u>Resolve Flipped Display Issue in Windows 10 OS</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-tips-to-stop-spotify-from-closing-automatically-on-iphone-lock/"><u>Troubleshooting Tips to Stop Spotify From Closing Automatically on iPhone Lock</u></a></li>
 </ul></div>
 

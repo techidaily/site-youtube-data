@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Expert Guide to Instantaneous Deletion of Youtube Posts"
-date: 2024-09-14T16:42:07.062Z
-updated: 2024-09-21T23:01:01.160Z
+date: 2024-09-30T19:12:13.066Z
+updated: 2024-10-03T20:10:27.613Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -74,13 +81,6 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -94,13 +94,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -122,6 +115,13 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -136,10 +136,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
@@ -147,6 +147,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -173,5 +180,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-achieving-economical-data-management-with-cloud-services/"><u>[New] Achieving Economical Data Management with Cloud Services</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-tactical-video-takedown-a-guide-to-judging-ownership-and-opposition/"><u>[New] In 2024, Tactical Video Takedown A Guide to Judging Ownership and Opposition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-thriving-in-thumbnails-creating-impressive-youtube-on-macos/"><u>[New] In 2024, Thriving in Thumbnails Creating Impressive Youtube on macOS</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-joke-juggernauts-20-memes-dominating-the-web/"><u>[New] Joke Juggernauts 20 Memes Dominating the Web</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-crafting-youtube-trailers-a-filmora-guide/"><u>[Updated] 2024 Approved Crafting YouTube Trailers A Filmora Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-effortless-single-frame-analysis-in-youtube-videos-5-ways/"><u>[Updated] 2024 Approved Effortless Single-Frame Analysis in YouTube Videos [5 Ways]</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-360-video-editors-how-to-upload-360-video-to-youtube/"><u>[Updated] 360 Video Editors How to Upload 360 Video to YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-ban-unwanted-youtube-recommended-titles/"><u>[Updated] Ban Unwanted YouTube Recommended Titles</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-asmr-production-101-essential-strategies-for-cutting-edge-video-making/"><u>[Updated] In 2024, ASMR Production 101 Essential Strategies for Cutting-Edge Video Making</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-perfecting-your-phones-capability-for-youtube-thumbnail-creation/"><u>[Updated] Perfecting Your Phone's Capability for YouTube Thumbnail Creation</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-tailoring-youtube-shorts-thumbnails-made-simple/"><u>2024 Approved Tailoring Youtube Shorts Thumbnails Made Simple</u></a></li>
+<li><a href="https://windows11.techidaily.com/embarking-on-a-journey-with-ai-copilot-in-windows-11/"><u>Embarking on a Journey with AI Copilot in Windows 11</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-addressing-fake-profile-imagery-in-fb-conversation/"><u>In 2024, Addressing Fake Profile Imagery in FB Conversation</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-nuggets-unveiling-this-years-prime-social-media-gems/"><u>Network Nuggets: Unveiling This Year's Prime Social Media Gems</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nalizing-who-can-see-your-youtube-content-for-2024/"><u>Personalizing Who Can See Your YouTube Content for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-motorola-moto-g-5g-2023-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Motorola Moto G 5G (2023)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/mlining-youtube-audio-pace-via-devices-for-2024/"><u>Streamlining YouTube Audio Pace via Devices for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-editors-treasure-trove-curated-list-of-iconic-80s-vhs-hacks-for-editing/"><u>The Editor's Treasure Trove Curated List of Iconic 80S VHS Hacks for Editing</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/top-8-best-video-grabbers-for-windows-10-for-2024/"><u>Top 8 Best Video Grabbers for Windows 10 for 2024</u></a></li>
+</ul></div>
 

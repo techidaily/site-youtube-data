@@ -1,7 +1,7 @@
 ---
 title: "\"Non-Tripod Techniques for Still Cameras\""
-date: 2024-09-16T17:19:28.300Z
-updated: 2024-09-22T01:35:14.527Z
+date: 2024-09-28T23:57:12.180Z
+updated: 2024-10-04T05:12:40.681Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
@@ -62,6 +69,13 @@ And here it is with hair clips:
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -80,13 +94,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -94,6 +101,13 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -118,16 +132,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -149,5 +157,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-becoming-a-pro-at-using-igtv-for-business-and-personal-growth/"><u>[New] Becoming a Pro at Using IGTV for Business and Personal Growth</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/iscovering-ideal-hashtags-for-your-youtube-videos/"><u>[New] Discovering Ideal Hashtags for Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-tempo-treasure-trove-compiling-the-best-dj-visuals-download/"><u>[New] In 2024, Tempo Treasure Trove Compiling the Best DJ Visuals Download</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eam-videography-methods-for-channel-expansion/"><u>[New] Team Videography Methods for Channel Expansion</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ransforming-live-youtube-broadcasts-into-recorded-soundtracks/"><u>[New] Transforming Live YouTube Broadcasts Into Recorded Soundtracks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-10-tips-for-shooting-profesional-youtube-videos/"><u>[Updated] 10 Tips For Shooting Profesional YouTube Videos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-compact-mp3-skype-archive-on-the-cheap/"><u>[Updated] 2024 Approved Compact MP3 Skype Archive on the Cheap</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/full-guide-to-apple-iphone-12-icloud-bypass-by-drfone-ios/"><u>Full guide to Apple iPhone 12 iCloud Bypass</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-locked-tecno-camon-20-premier-5g-phone-by-drfone-android/"><u>How to Reset a Locked Tecno Camon 20 Premier 5G Phone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-ultimate-guide-to-perfecting-your-yt-visual-footprint/"><u>In 2024, The Ultimate Guide to Perfecting Your YT Visual Footprint</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unraveling-top-6-your-guide-to-free-and-favored-shorts-downloaders/"><u>In 2024, Unraveling Top 6 Your Guide to Free & Favored Shorts Downloaders</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-ultimate-money-making-guide-on-social-media/"><u>The Ultimate Money-Making Guide on Social Media</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/king-the-secret-of-hashtags-for-six-figures-for-2024/"><u>Unlocking the Secret of #Hashtags for Six Figures for 2024</u></a></li>
+</ul></div>
 

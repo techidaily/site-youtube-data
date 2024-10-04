@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Grasp the Art of Steadiness in Photography\""
-date: 2024-09-18T01:26:51.162Z
-updated: 2024-09-22T01:34:12.491Z
+date: 2024-09-29T04:29:34.654Z
+updated: 2024-10-04T00:32:00.928Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
@@ -62,6 +69,13 @@ And here it is with hair clips:
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -80,6 +94,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -87,13 +108,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -118,10 +132,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -143,5 +157,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-saving-the-ephemeral-a-guide-to-online-audio-recording/"><u>[New] Saving the Ephemeral A Guide to Online Audio Recording</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/electing-the-perfect-online-source-15-best-royalty-free-music-urls-for-2024/"><u>[New] Selecting the Perfect Online Source 15 Best Royalty-Free Music URLs for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/trategies-for-deleting-watch-later-items-on-youtube/"><u>[New] Strategies for Deleting Watch Later Items on YouTube</u></a></li>
+<li><a href="https://network-issues.techidaily.com/solved-display-driver-igfx-stopped-responding-and-has-successfully-recovered/"><u>[SOLVED] Display Driver Igfx Stopped Responding and Has Successfully Recovered</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-average-payout-for-a-million-view-youtube-video/"><u>[Updated] Average Payout for a Million-View YouTube Video</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-chasing-profit-on-platforms-youtube-partner-application-steps/"><u>[Updated] Chasing Profit on Platforms YouTube Partner Application Steps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-harmonizing-youtube-content-a-guide-to-blending-files/"><u>[Updated] Harmonizing YouTube Content A Guide to Blending Files</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-high-definition-wonders-with-the-nikon-d500/"><u>[Updated] In 2024, High Definition Wonders with the Nikon D500</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-premium-7-dslr-picks-for-ultimate-visual-storytelling-online-for-2024/"><u>[Updated] Premium 7 DSLR Picks For Ultimate Visual Storytelling Online for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-editing-excellence-sports-videos-that-stand-out/"><u>2024 Approved Editing Excellence Sports Videos That Stand Out</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-efficient-laptop-recording-with-top-screenrec-tools/"><u>2024 Approved Efficient Laptop Recording with Top ScreenRec Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-smooth-soundscape-creation-with-audacity/"><u>2024 Approved Smooth Soundscape Creation with Audacity</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-cinematic-journey-crafting-youtube-trailers-in-filmora/"><u>2024 Approved The Cinematic Journey Crafting YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725285202441-windows-11mov/"><u>問題解決:Windows 11のMOVファイル再生に特化したソフトウェアガイド</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-y78t-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Vivo Y78t Phone with Broken Screen</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-beyondsharex-evaluating-the-best-options/"><u>In 2024, BeyondShareX - Evaluating the Best Options</u></a></li>
+<li><a href="https://extra-information.techidaily.com/laugh-loom-image-stitcher/"><u>Laugh Loom Image Stitcher</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/mline-your-music-library-6-free-ios-apps-for-youtube-conversion/"><u>Streamline Your Music Library 6 Free iOS Apps for YouTube Conversion</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-how-to-stop-your-call-of-duty-warzone-from-crashing/"><u>Troubleshooting Guide: How to Stop Your Call of Duty Warzone From Crashing</u></a></li>
+</ul></div>
 

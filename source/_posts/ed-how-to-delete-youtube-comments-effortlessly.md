@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Delete YouTube Comments Effortlessly?"
-date: 2024-09-27T01:00:58.825Z
-updated: 2024-09-28T20:03:47.758Z
+date: 2024-10-03T00:25:58.347Z
+updated: 2024-10-04T06:11:10.840Z
 tags:
   - ai video
   - ai youtube
@@ -52,13 +52,6 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -80,13 +73,6 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
 
@@ -123,16 +109,16 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -149,10 +135,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
@@ -161,11 +147,25 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -188,24 +188,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ttract-1000-viewers-quickly-on-youtube/"><u>[New] Attract 1,000 Viewers Quickly on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-the-art-of-gamers-intros-top-12-yt-videographers-lists/"><u>[New] In 2024, Mastering the Art of Gamers' Intros Top 12 YT Videographers' Lists</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-videocutters-comprehensive-scrutiny-final-verdict/"><u>[New] In 2024, VideoCutter's Comprehensive Scrutiny – Final Verdict</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-monetizing-success-a-guide-to-purchasing-youtube-content/"><u>[Updated] 2024 Approved Monetizing Success A Guide to Purchasing YouTube Content</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-simplify-stream-sideswapping-youtube-playlist-tips/"><u>[Updated] 2024 Approved Simplify Stream-Sideswapping Youtube Playlist Tips</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-expert-advice-5-proven-methods-to-document-minecraft-on-apple-devices/"><u>[Updated] In 2024, Expert Advice 5 Proven Methods to Document Minecraft on Apple Devices</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-strategic-trailer-planning-for-increased-channels-profitability/"><u>[Updated] In 2024, Strategic Trailer Planning for Increased Channels' Profitability</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-smudge-solution-blurring-visions-in-video-content/"><u>[Updated] In 2024, The Smudge Solution Blurring Visions in Video Content</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-kingdom-clashers-elite-battle-royale-games-for-2024/"><u>[Updated] Kingdom Clashers Elite Battle Royale Games for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-tone-and-pitch-control-on-chrome-os-select-the-best-online-speech-converters/"><u>[Updated] Tone and Pitch Control on Chrome OS Select the Best Online Speech Converters</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-cost-not-your-content-quality-try-these-top-8-free-tools-for-2024/"><u>Cut The Cost, Not Your Content Quality - Try These Top 8 Free Tools for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/effective-solutions-to-overcome-the-dreaded-steam-error-code-130/"><u>Effective Solutions To Overcome The Dreaded Steam Error Code 130</u></a></li>
-<li><a href="https://win-able.techidaily.com/fallout-3-wont-start-top-troubleshooting-techniques/"><u>Fallout 3 Won't Start? Top Troubleshooting Techniques</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-transforming-viewers-into-income-how-many-votes-yield-earnings/"><u>In 2024, Transforming Viewers Into Income How Many Votes Yield Earnings?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-unlock-potential-empowered-channel-expansion-via-youtube-insights/"><u>In 2024, Unlock Potential Empowered Channel Expansion via YouTube Insights</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-unlock-youtubes-potential-key-strategies-from-creator-studio-manual/"><u>In 2024, Unlock YouTube's Potential Key Strategies From Creator Studio Manual</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/reimagining-the-role-of-titles-in-after-effects-media-for-2024/"><u>Reimagining the Role of Titles in After Effects Media for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nto-thriving-youtube-threads-for-2024/"><u>Tap Into Thriving YouTube Threads for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/ultimate-youtube-to-video-converter-pro-seamless-transformation-of-youtuber-content-into-any-desired-format/"><u>Ultimate Youtube-to-Video Converter Pro: Seamless Transformation of YouTuber Content Into Any Desired Format</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-top-10-budget-friendly-video-alteration-journeys-explored/"><u>[New] 2024 Approved Top 10 Budget-Friendly Video Alteration Journeys Explored</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aptivating-content-the-basics-of-removing-background-from-videos-for-2024/"><u>[New] Captivating Content The Basics of Removing Background From Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ultivating-your-persona-in-the-world-of-gamers/"><u>[New] Cultivating Your Persona in the World of Gamers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-excellent-10-tech-choices-for-livestream-monitoring/"><u>[Updated] 2024 Approved Excellent 10 Tech Choices for Livestream Monitoring</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-elevate-video-clarity-with-expert-tips-for-youtube-editors/"><u>[Updated] Elevate Video Clarity with Expert Tips for YouTube Editors</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-illuminating-insights-for-iphone-night-photos/"><u>[Updated] Illuminating Insights for iPhone Night Photos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-video-content-transcriber/"><u>[Updated] In 2024, Video Content Transcriber</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-srt-to-sub-transforming-playback-sequences/"><u>2024 Approved From SRT to SUB Transforming Playback Sequences</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-video-enhanced-slideshow-mastery-with-youtube/"><u>2024 Approved Video-Enhanced Slideshow Mastery with YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ehensive-strategies-for-swiftly-clearing-feedback/"><u>Comprehensive Strategies for Swiftly Clearing Feedback</u></a></li>
+<li><a href="https://some-tips.techidaily.com/descargar-convertidor-online-libre-para-cambiar-de-gif-a-png/"><u>Descargar Convertidor Online Libre Para Cambiar De GIF a PNG</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-vivo-y100-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Vivo Y100 to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-youtubing-into-visual-wonders-learn-from-greenscreen-pros/"><u>In 2024, Youtubing Into Visual Wonders – Learn From Greenscreen Pros</u></a></li>
+<li><a href="https://games-able.techidaily.com/mobile-playtime-benefits-versus-negatives/"><u>Mobile Playtime Benefits Versus Negatives</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/title-in-depth-performance-analysis-of-the-asus-rog-strix-xg27acs-at-an-unmatched-180hz-for-gamers/"><u>Title: In-Depth Performance Analysis of the Asus ROG Strix XG27ACS at an Unmatched 180Hz for Gamers.</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/transform-your-social-media-experience-livestream-fb-flawlessly/"><u>Transform Your Social Media Experience Livestream FB Flawlessly</u></a></li>
 </ul></div>
 

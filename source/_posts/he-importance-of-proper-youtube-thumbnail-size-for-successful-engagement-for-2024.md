@@ -1,7 +1,7 @@
 ---
 title: "[New] The Importance of Proper YouTube Thumbnail Size for Successful Engagement for 2024"
-date: 2024-09-24T18:25:11.258Z
-updated: 2024-09-29T02:14:29.058Z
+date: 2024-10-02T02:06:14.207Z
+updated: 2024-10-03T17:07:04.592Z
 tags:
   - ai video
   - ai youtube
@@ -56,13 +56,6 @@ Being a content creator, you never know which device is being used by the viewer
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Important is a Custom Thumbnail?
 
 Custom Thumbnail is a tool through which the viewers can understand everything about a video. It tells the viewers what to expect from a video, what not to expect, and what the video is all about. no matter if you create amazing content, if the thumbnail is not good enough to covey that to the viewers, all your hard work will be of no use and will not bring any good to your channel and its growth. According to [Google](https://support.google.com/youtube/answer/72431),90% of best-performing videos have custom thumbnails. It shows the importance of custom thumbnails.
@@ -89,27 +82,20 @@ With your face, it is necessary to put some text on your Youtube thumbnail to le
 
 ![simple-fonts-recommended](https://images.wondershare.com/filmora/article-images/simple-fonts-recommended.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. #### Use Phrases, not sentence
 
 If you have ever noticed, Youtube thumbnails are very small in size, making it hard for viewers to notice any small elements. According to [YouTube](https://www.youtube.com/intl/en-GB/howyoutubeworks/), more than 70% of Youtube watch time comes from mobile devices. While adding text in a thumbnail, instead of using sentences, make sure to use only words and make them large in size that can easily be noticed on small screens. Summurise your video in no more than 5 words.
 
 ![piechart-youtube-watchtime-percentage](https://images.wondershare.com/filmora/article-images/piechart-youtube-watchtime-percentage.png)
 
-![use-phrases-not-sentences](https://images.wondershare.com/filmora/article-images/use-phrases-not-sentences.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![use-phrases-not-sentences](https://images.wondershare.com/filmora/article-images/use-phrases-not-sentences.jpg)
 
 1. #### Put every stuff on left side
 
@@ -123,6 +109,13 @@ Try to make all your thumbnails follow the same style. Following the same style 
 
 ![unique-and-consistent-style](https://images.wondershare.com/filmora/article-images/unique-and-consistent-style.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. #### Use elements to grab the attention
 
 To make your Youtube thumbnail more appealing to the viewers, add circles and arrows to grab viewers' attention to something very important in the video. It will increase the curiosity in the viewers and make them click your videos to learn more.
@@ -130,10 +123,10 @@ To make your Youtube thumbnail more appealing to the viewers, add circles and ar
 ![use-elements-to-grab-attention](https://images.wondershare.com/filmora/article-images/use-elements-to-grab-attention.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. #### Choose the right tool
@@ -164,6 +157,19 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. For our preferred angle, choose "Drone Free Camera" mode from the bottom right corner of the screen. It will allow us to use our preferred angle without any restriction. Choose an angle and take a screenshot.
 
 ![ make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
@@ -171,13 +177,6 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 1. Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot that you have taken from Fortnite.
 
 ![ make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. Place it into the timeline to start working on it.
 
@@ -191,20 +190,27 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. This effect will remove the background of your screenshot.
 
 ![ make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Now you can add a background of your choice. You can upload an image or choose a simple color from Filmora's Media tab and drag it below the screenshot in the timeline.
 
 ![ make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. To add text to the screenshot, go to Titles. Here you can find a wide range of different and unique titles to choose from for your Fortnite Thumbnail. Choose any of the titles and place them accordingly.
 
@@ -218,24 +224,18 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Right-click on the screenshot and navigate to "Reveal in Explorer". It will open the folder that contains all the screenshots taken from Filmora. Now you can use it as a Fortnite Thumbnail.
 
 ![ make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
  ---
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Add a Custom YouTube Thumbnail to Your Video in YouTube
 
@@ -250,10 +250,10 @@ Once you have successfully created a custom thumbnail, you can use it in your vi
 ![how-to-add-custom-youtube-thumbnail-to-video-step2](https://images.wondershare.com/filmora/article-images/how-to-add-custom-youtube-thumbnail-to-video-step2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. The thumbnail will be uploaded and attached to the video. Now you can process all the settings and publish the video.
@@ -289,18 +289,24 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/chieve-more-money-from-your-short-videos-on-youtube/"><u>[New] Achieve More Money From Your Short Videos on YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-outstanding-films-not-on-mainstream-lists/"><u>[New] In 2024, Outstanding Films Not on Mainstream Lists</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-essential-gear-for-video-blogging-top-rated-camera-lenses-revealed/"><u>[Updated] 2024 Approved Essential Gear for Video Blogging Top-Rated Camera Lenses Revealed</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-breaking-down-youtube-short-barriers/"><u>[Updated] In 2024, Breaking Down YouTube Short Barriers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-youtube-mastery-on-the-move-crafting-impactful-video-thumbnails-mobile/"><u>2024 Approved YouTube Mastery on the Move Crafting Impactful Video Thumbnails (Mobile)</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/cing-acts-in-youtube-music-mixes-for-2024/"><u>Balancing Acts in YouTube Music Mixes for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/become-an-in-demand-bug-hunter-join-openais-reward-scheme-today/"><u>Become an In-Demand Bug Hunter; Join OpenAI’s Reward Scheme Today!</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-roccat-mouse-drivers-for-optimal-compatibility-and-features/"><u>Download Roccat Mouse Drivers for Optimal Compatibility and Features</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/harmonize-with-inshots-music-load-functionality-for-2024/"><u>Harmonize with InShot's Music Load Functionality for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-s17e-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on S17e</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-budget-video-editing-software-top-picks/"><u>In 2024, Budget Video Editing Software Top Picks</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-vivo-s17e-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Vivo S17e | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unveiling-the-potential-of-gpt-3-at-openai-interface/"><u>Unveiling the Potential of GPT-3 at OpenAI Interface</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/remier-artist-blending-images-and-harmony-for-2024/"><u>[New] Premier Artist Blending Images & Harmony for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-art-of-concluding-your-videos-powerfully-for-2024/"><u>[New] The Art of Concluding Your Videos Powerfully for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unveiling-the-art-of-podcast-storytelling-expert-tips-plus-10plus-sample-scripts/"><u>[New] Unveiling the Art of Podcast Storytelling Expert Tips + 10+ Sample Scripts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-revolutionizing-vr-experiences-with-newest-game-engines/"><u>[Updated] 2024 Approved Revolutionizing VR Experiences with Newest Game Engines</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-crafting-cinematic-audio-in-inshot-videos/"><u>[Updated] Crafting Cinematic Audio in InShot Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unleash-potential-creating-a-youtube-channel-that-shines-in-games/"><u>[Updated] In 2024, Unleash Potential Creating a YouTube Channel that Shines in Games</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mastering-youtube-stat-tracking-essentials-for-2024/"><u>[Updated] Mastering YouTube Stat Tracking Essentials for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-navigating-the-legal-landscape-of-youtube-guidelines-for-2024/"><u>[Updated] Navigating the Legal Landscape of YouTube Guidelines for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-pioneering-patterns-screen-cast-with-loom-pro/"><u>[Updated] Pioneering Patterns Screen Cast with Loom Pro</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-swift-guide-to-chromakey-and-background-separation/"><u>[Updated] Swift Guide to Chromakey and Background Separation</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-tailoring-your-youtube-video-introduction-perfectly/"><u>[Updated] Tailoring Your YouTube Video Introduction Perfectly</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtubes-retro-playlist-trick-how-to-go-in-arrears-for-2024/"><u>[Updated] Youtube's Retro Playlist Trick How to Go in Arrears for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/crafting-the-ultimate-game-machine-must-have-parts/"><u>Crafting the Ultimate Game Machine - Must-Have Parts</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1721913675141-get-going-with-pre-configured-gpt-solutions-now/"><u>Get Going with Pre-Configured GPT Solutions Now</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-is-photoshops-image-smoothing-worth-the-hype/"><u>In 2024, Is Photoshop's Image Smoothing Worth the Hype?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-your-ifunny-meme-journey-for-2024/"><u>Mastering Your iFunny Meme Journey for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/utionize-your-room-strategies-to-record-clear-sound-for-2024/"><u>Revolutionize Your Room Strategies to Record Clear Sound for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/simple-steps-unlocking-your-pcs-clownfish-talk-switcher/"><u>Simple Steps Unlocking Your PC's Clownfish Talk Switcher</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-vivo-y78plus-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Vivo Y78+ Device</u></a></li>
 </ul></div>
 

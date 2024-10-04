@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to View YouTube Statistics?\""
-date: 2024-09-25T23:09:19.662Z
-updated: 2024-09-28T23:20:02.416Z
+date: 2024-09-27T18:20:47.183Z
+updated: 2024-10-03T16:14:31.124Z
 tags:
   - ai video
   - ai youtube
@@ -48,13 +48,6 @@ As one of the best video editing software for YouTube, [Filmora](https://tools.t
 
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to View Your YouTube Statistics
 
 In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
@@ -64,10 +57,10 @@ In order to check which of your videos are performing the best, click on **Watch
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1. Interpreting YouTube Watch Time Reports
@@ -83,6 +76,13 @@ Alongside watch time you can see the average duration individual viewers are wat
 In the watch time reports for individual videos, you will be able to see data on where your views are coming from and which demographics are watching the most. Where your viewers are watching, in terms of desktop or mobile, is also interesting data that is available in this section.
 
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. Interpreting YouTube Interaction Reports
 
@@ -109,10 +109,10 @@ Interaction reports can be broken down into several different reports that can h
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Other Peoples YouTube Statistics
@@ -124,10 +124,10 @@ Now that you know how to view YouTube statistics, what will you do with them?
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -151,24 +151,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-automatic-cycling-of-videos-on-iphone-ease/"><u>[New] 2024 Approved Automatic Cycling of Videos on iPhone Ease</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-channel-transformation-optimal-video-concepts-to-elevate-creativity/"><u>[New] 2024 Approved Channel Transformation Optimal Video Concepts to Elevate Creativity</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-efficient-editing-for-quick-youtube-content/"><u>[New] 2024 Approved Efficient Editing for Quick YouTube Content</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-elevate-engagement-top-video-release-slots/"><u>[New] 2024 Approved Elevate Engagement Top Video Release Slots</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-maximizing-your-footage-the-importance-of-correct-tripod-placement-in-vlogging/"><u>[New] 2024 Approved Maximizing Your Footage The Importance of Correct Tripod Placement in Vlogging</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-ultimate-step-by-step-youtube-editing-walkthrough/"><u>[New] 2024 Approved The Ultimate Step-by-Step YouTube Editing Walkthrough</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-transition-tactics-your-youtube-videos-on-instagram/"><u>[New] 2024 Approved Transition Tactics Your YouTube Videos on Instagram</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-ultimate-movie-watchlists-for-efficient-screen-time/"><u>[New] 2024 Approved Ultimate Movie Watchlists for Efficient Screen Time</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-unlocking-potential-how-to-gain-more-viewers-and-followers-on-youtube/"><u>[New] 2024 Approved Unlocking Potential How to Gain More Viewers and Followers on Youtube</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-determining-best-video-frames-per-second-fps-rate/"><u>[Updated] 2024 Approved Determining Best Video Frames Per Second (FPS) Rate</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-biggest-fifa-visuals-youtube-insights-graphed/"><u>[Updated] Biggest FIFA Visuals YouTube Insights Graphed</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-complete-guide-to-creating-impactful-snapshots/"><u>[Updated] The Complete Guide to Creating Impactful Snapshots</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-photo-frenzy-stories-of-popularity/"><u>2024 Approved Photo Frenzy Stories of Popularity</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/3-solutions-to-find-your-apple-iphone-13-pro-max-current-location-of-a-mobile-number-drfone-by-drfone-virtual-ios/"><u>3 Solutions to Find Your Apple iPhone 13 Pro Max Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-htc-u23-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On HTC U23 Pro | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/all-you-need-to-know-about-mega-greninja-for-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Vivo Y100 5G | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/brother-dcp-l254press-release-free-download-and-install-software-on-windows/"><u>Brother DCP-L254press Release - Free Download & Install Software on Windows</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-realme-narzo-60-pro-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Realme Narzo 60 Pro 5G Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-vivo-v30-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Vivo V30 Pro to iPad | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-comprehensive-picsart-insight-for-enhanced-creativity/"><u>[New] Comprehensive PicsArt Insight for Enhanced Creativity</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-social-media-savants-guide-to-stellar-instagram-posts/"><u>[New] The Social Media Savant's Guide to Stellar Instagram Posts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-top-10-most-immersive-youtube-vr-films/"><u>[Updated] 2024 Approved Top 10 Most Immersive YouTube VR Films</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-two-pronged-approach-to-perfecting-your-youtube-video-introduction/"><u>[Updated] 2024 Approved Two-Pronged Approach to Perfecting Your YouTube Video Introduction</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-uncompromised-quality-activate-av1-for-youtube-streams/"><u>[Updated] 2024 Approved Uncompromised Quality Activate AV1 for YouTube Streams</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-streammasters-obs-edition/"><u>[Updated] In 2024, StreamMasters OBS Edition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-reigning-supreme-top-techniques-for-innovative-youtube-end-screens/"><u>2024 Approved Reigning Supreme Top Techniques for Innovative YouTube End Screens</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/lent-video-and-picture-capture-for-iphones-and-androids-here/"><u>Excellent Video & Picture Capture for iPhones & Androids Here</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-xiaomi-civi-3-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Xiaomi Civi 3 to New Phone | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Tecno Spark Go (2023)? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-3d-luts-a-comprehensive-guide/"><u>Mastering 3D LUTs A Comprehensive Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/nativity-scene-delivering-apps-via-microsofts-hub/"><u>Nativity Scene: Delivering Apps via Microsoft's Hub</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723011384842-oculus-link-woes-here-are-six-swift-methods-to-get-you-back-online/"><u>Oculus Link Woes? Here Are Six Swift Methods to Get You Back Online!</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/reimagining-professional-life-a-stunning-perspective-uncovered-by-microsofts-survey-of-31000plus-individuals/"><u>Reimagining Professional Life: A Stunning Perspective Uncovered by Microsoft's Survey of 31,000+ Individuals</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ate-gear-for-youtube-content-makers-for-2024/"><u>Ultimate Gear for YouTube Content Makers for 2024</u></a></li>
 </ul></div>
 

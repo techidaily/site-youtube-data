@@ -1,7 +1,7 @@
 ---
 title: "Maximize Impact with Customized YouTube End Screen Templates for 2024"
-date: 2024-09-24T18:57:46.685Z
-updated: 2024-09-28T22:25:15.976Z
+date: 2024-09-28T01:25:02.590Z
+updated: 2024-10-04T08:54:16.376Z
 tags:
   - ai video
   - ai youtube
@@ -90,13 +90,6 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
@@ -114,10 +107,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
@@ -125,25 +118,32 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
@@ -177,16 +177,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/idden-pitfalls-investing-in-fraudulent-subscribers/"><u>[New] Hidden Pitfalls Investing in Fraudulent Subscribers</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-seamless-methodology-viewing-favorited-and-well-liked-youtube-remarks-for-2024/"><u>[New] Seamless Methodology Viewing Favorited and Well-Liked YouTube Remarks for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-your-guide-to-favorite-tiktok-backgrounds/"><u>[Updated] In 2024, Your Guide to Favorite TikTok Backgrounds</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-amazon-prime-hits-twitters-trendiest-watchers-and-lovers/"><u>2024 Approved Amazon Prime Hits Twitter's Trendiest Watchers & Lovers</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-premier-phone-editors-for-the-ultimate-gopro-experience/"><u>2024 Approved Premier Phone Editors for the Ultimate GoPro Experience</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ced-audio-experience-top-5-game-headsets-for-streaming/"><u>Enhanced Audio Experience Top 5 Game Headsets for Streaming</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-keeping-track-of-itunes-audio-visual-files/"><u>In 2024, Keeping Track of iTunes Audio-Visual Files</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-paving-the-way-to-youtube-stardom-through-effective-seo-keywords/"><u>In 2024, Paving the Way to YouTube Stardom Through Effective SEO Keywords</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-standing-out-in-a-crowd-the-finest-thumbnail-font-options/"><u>In 2024, Standing Out in a Crowd The Finest Thumbnail Font Options</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-complete-guide-to-edit-your-video-with-youtube-studio-editor-for-2024/"><u>The Complete Guide to Edit Your Video with YouTube Studio Editor for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/tips-and-tricks-for-apple-id-locked-issue-on-apple-iphone-se-2020-by-drfone-ios/"><u>Tips and Tricks for Apple ID Locked Issue On Apple iPhone SE (2020)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/inding-a-different-way-to-naming-your-channel-with-filmora-for-2024/"><u>[New] Finding a Different Way to Naming Your Channel with Filmora for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-designing-your-perfect-tiktok-end-screen/"><u>[New] In 2024, Designing Your Perfect TikTok End Screen</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-streamers-dilemma-is-vlc-superior-to-mpc/"><u>[New] In 2024, Streamer's Dilemma Is VLC Superior to MPC?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/yric-video-creation-secrets-unveiled-by-lyric-video-maker-for-2024/"><u>[New] Lyric Video Creation Secrets Unveiled by Lyric Video Maker for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-best-video-enhancement-apps-for-tiktok-mastery-on-w-indospc/"><u>[Updated] 2024 Approved Best Video Enhancement Apps for TikTok Mastery on W Indos/PC</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-historical-insights-at-your-fingertips-top-10-for-students/"><u>[Updated] 2024 Approved Historical Insights at Your Fingertips – Top 10 for Students</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-navigating-the-online-marketplace-for-profitable-yt-content/"><u>[Updated] 2024 Approved Navigating the Online Marketplace for Profitable YT Content</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-best-practices-selecting-among-top-9-free-logo-designers/"><u>[Updated] In 2024, Best Practices Selecting Among Top 9 Free Logo Designers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-top-10-timeless-family-adventures-on-screen-this-season/"><u>[Updated] In 2024, Top 10 Timeless Family Adventures on Screen This Season</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/youtube-mp3-downloader-compilation-top-10-for-2024/"><u>Best YouTube Mp3 Downloader Compilation (Top 10) for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/have-too-many-tiktok-drafts-learn-how-to-edit-them/"><u>Have Too Many TikTok Drafts? Learn How to Edit Them</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/leading-steadicams-for-professional-uav-filming-for-2024/"><u>Leading Steadicams for Professional UAV Filming for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-the-financial-seas-of-youtube-success-carryminati-for-2024/"><u>Navigating the Financial Seas of YouTube Success (CarryMinati) for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/secure-shopping-guide-ensuring-your-online-purchases-are-protected/"><u>Secure Shopping Guide: Ensuring Your Online Purchases Are Protected</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nto-endless-creativity-our-compilation-of-over-50-free-advertising-masterpieces-in-2024/"><u>Tap Into Endless Creativity – Our Compilation of over 50 FREE Advertising Masterpieces, In 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-8-android-apps-to-change-slow-motion-videos-to-regular-speed-vide/"><u>Top 8 Android Apps to Change Slow-Motion Videos to Regular-Speed Vide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/king-the-secrets-of-your-personalized-youtube-playlists/"><u>Unlocking the Secrets of Your Personalized Youtube Playlists</u></a></li>
 </ul></div>
 

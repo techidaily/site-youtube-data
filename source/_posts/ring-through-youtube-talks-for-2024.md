@@ -1,7 +1,7 @@
 ---
 title: "Filtering Through YouTube Talks for 2024"
-date: 2024-09-20T22:09:23.408Z
-updated: 2024-09-21T22:46:59.366Z
+date: 2024-09-27T07:06:25.407Z
+updated: 2024-10-03T17:17:10.233Z
 tags:
   - ai video
   - ai youtube
@@ -105,16 +105,10 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
@@ -124,10 +118,10 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
@@ -139,6 +133,19 @@ You can see all the comments you have posted in the Comment History in a few qui
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
@@ -165,6 +172,13 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -184,5 +198,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-freeze-entire-browser-display/"><u>[New] In 2024, Freeze Entire Browser Display</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-revealing-the-smarts-of-z2-play-mobile/"><u>[New] Revealing the Smarts of Z2 Play Mobile</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nleash-the-power-of-digital-advertising-with-our-comprehensive-set-of-50-free-youtube-banners-for-2024/"><u>[New] Unleash the Power of Digital Advertising with Our Comprehensive Set of 50 FREE YouTube Banners for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-digital-decibels-the-leading-youtube-voices/"><u>[Updated] 2024 Approved Digital Decibels The Leading YouTube Voices</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-essential-free-resources-for-youtube-intros/"><u>[Updated] 2024 Approved Essential Free Resources for YouTube Intros</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-taking-screenshots-on-mac-5-methods/"><u>[Updated] In 2024, Taking Screenshots on Mac [5 Methods]</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-top-grossing-youtube-titans/"><u>[Updated] In 2024, Top-Grossing YouTube Titans</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-a-comprehensive-guide-to-achieving-smooth-color-keying/"><u>2024 Approved A Comprehensive Guide to Achieving Smooth Color-Keying</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/t-ratios-decoded-youtube-edition-a-quick-reference-guide/"><u>Aspect Ratios Decoded YouTube Edition – A Quick Reference Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expert-insights-on-powerdirector-24-review-for-2024/"><u>Expert Insights on PowerDirector '24 Review for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guiding-through-windows-camera-saving-errors/"><u>Guiding Through Windows Camera Saving Errors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-essential-guide-to-verifying-your-youtube-profile/"><u>In 2024, The Essential Guide to Verifying Your YouTube Profile</u></a></li>
+</ul></div>
 

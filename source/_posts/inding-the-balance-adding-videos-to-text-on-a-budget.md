@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Finding the Balance  Adding Videos to Text on a Budget\""
-date: 2024-09-24T00:41:37.420Z
-updated: 2024-09-28T21:35:39.873Z
+date: 2024-09-28T21:10:03.989Z
+updated: 2024-10-03T19:30:32.558Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,10 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
@@ -73,16 +73,10 @@ You should start by creating a new project in Filmora and importing the video yo
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
@@ -90,10 +84,10 @@ Set the preferred duration of the title by dragging one of its ends to the left 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
@@ -103,16 +97,10 @@ Now it’s time to add the text video and the background video to the project me
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
@@ -148,24 +136,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-cutting-edge-home-entertainment-elite-3d-blu-ray-gear-for-2024/"><u>[New] Cutting-Edge Home Entertainment Elite 3D Blu-Ray Gear for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-achieving-affiliate-success-with-online-videos/"><u>[New] In 2024, Achieving Affiliate Success with Online Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-engage-enlighten-and-enthrall-with-immersive-facebook-sharing/"><u>[New] In 2024, Engage, Enlighten and Enthrall with Immersive Facebook Sharing</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ecrets-of-asmr-success-with-top-recorder-mics-for-2024/"><u>[New] Secrets of ASMR Success with Top Recorder Mics for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-complete-checklist-for-youtube-video-resolution-and-size/"><u>[New] The Complete Checklist for YouTube Video Resolution and Size</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-banner-bliss-get-a-peek-at-our-library-of-50-free-youtube-banners-for-2024/"><u>[Updated] Banner Bliss Get a Peek at Our Library of 50 Free YouTube Banners for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-compile-of-free-high-quality-sound-clips-for-videos/"><u>[Updated] Compile of Free, High-Quality Sound Clips for Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-easily-alter-video-velocity-youtubes-playback-speed-mastery-for-2024/"><u>[Updated] Easily Alter Video Velocity YouTube's Playback Speed Mastery for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-crafting-an-apple-powered-athletic-broadcast-platform/"><u>[Updated] In 2024, Crafting an Apple-Powered Athletic Broadcast Platform</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-youtubes-top-marketing-moves-for-business-growth-unveiled/"><u>[Updated] YouTube's Top Marketing Moves for Business Growth Unveiled</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/constructing-an-intriguing-trailer-blueprint-for-2024/"><u>Constructing an Intriguing Trailer Blueprint for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/developers-anticipate-ai-impact-on-workflow-and-productivity-in-tech-industries/"><u>Developers Anticipate AI Impact on Workflow and Productivity in Tech Industries</u></a></li>
-<li><a href="https://driver-error.techidaily.com/full-disk-alert-in-windows-10-task-manager/"><u>Full Disk Alert in Windows 10 Task Manager</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ng-exposure-cost-effective-promotion-hacks-for-youtubers-for-2024/"><u>Gaining Exposure Cost-Effective Promotion Hacks for YouTubers for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-samsung-galaxy-s23plus-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Samsung Galaxy S23+ | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-6-plus-passcode-without-computer-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 6 Plus Passcode without Computer? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-streamlined-conversion-of-youtube-content/"><u>In 2024, Streamlined Conversion of YouTube Content</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/join-the-meme-revolution-expert-tips-for-the-metaverse/"><u>Join the Meme Revolution Expert Tips for the Metaverse</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ltimate-guide-to-cost-effective-media-providers-online/"><u>The Ultimate Guide to Cost-Effective Media Providers Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/est-practices-for-producing-encouragement-driven-vlogs/"><u>[New] Best Practices for Producing Encouragement-Driven Vlogs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-hilarityhub-design-memes-with-ease-and-speed/"><u>[New] HilarityHub Design Memes with Ease and Speed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-editors-dream-machine-top-portable-video-edits-tools/"><u>[New] In 2024, Editor's Dream Machine Top Portable Video Edits Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eamlessly-download-youtube-thumbnails-online/"><u>[New] Seamlessly Download YouTube Thumbnails Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nlock-your-content-potential-best-ideas-for-youtube-themes/"><u>[New] Unlock Your Content Potential Best Ideas for YouTube Themes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-dancefloor-dynamics-top-rated-dj-video-selections/"><u>[Updated] 2024 Approved Dancefloor Dynamics Top-Rated DJ Video Selections</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-finest-10-youtube-personalities-revolutionizing-cosmetics/"><u>[Updated] 2024 Approved The Finest 10 YouTube Personalities Revolutionizing Cosmetics</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-from-dull-scenes-to-dynamic-sports-highlights/"><u>[Updated] In 2024, From Dull Scenes to Dynamic Sports Highlights</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-art-of-photo-to-video-with-accompaniment-sounds/"><u>[Updated] In 2024, The Art of Photo-to-Video with Accompaniment Sounds</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-oppo-find-x6-pro-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixes-implemented-how-battlefield-2042-overcame-fps-dips-and-stuttering-problems-on-pc/"><u>Fixes Implemented: How Battlefield 2042 Overcame FPS Dips & Stuttering Problems on PC</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-a-guide-to-prolonging-gopro-power-source-lifespan/"><u>In 2024, A Guide to Prolonging GoPro Power Source Lifespan</u></a></li>
+<li><a href="https://extra-information.techidaily.com/prime-top-5-weightless-action-recording-units/"><u>Prime Top 5 Weightless Action Recording Units</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ownload-free-youtube-file-acquisition/"><u>PureDownload Free YouTube File Acquisition</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-zte-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost ZTE Device</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ling-the-mechanisms-that-govern-youtube-after-a-video-is-live/"><u>Unveiling the Mechanisms That Govern YouTube After a Video Is Live</u></a></li>
 </ul></div>
 

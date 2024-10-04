@@ -1,7 +1,7 @@
 ---
 title: "The Beginner's Guide to Camera Lenses in Filmmaking & Vlogging for 2024"
-date: 2024-09-27T01:12:49.648Z
-updated: 2024-09-29T00:44:17.675Z
+date: 2024-09-28T23:23:54.643Z
+updated: 2024-10-03T17:49:32.339Z
 tags:
   - ai video
   - ai youtube
@@ -62,10 +62,10 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
@@ -96,7 +96,21 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -117,29 +131,9 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -176,10 +170,10 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -203,18 +197,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-does-m1-make-a-difference-for-film-and-media-editors/"><u>[New] Does M1 Make a Difference for Film and Media Editors?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/xpert-tips-for-embedding-time-stamp-data-on-youtube-videos-desktopmobile-for-2024/"><u>[New] Expert Tips for Embedding Time Stamp Data on YouTube Videos (Desktop/Mobile) for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-pushing-the-limits-with-gopro-film-techniques/"><u>[New] Pushing the Limits with GoPro Film Techniques</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-swift-channels-growth-optimizing-viewership-with-collaborative-videos/"><u>[Updated] 2024 Approved Swift Channels Growth Optimizing Viewership with Collaborative Videos</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-advanced-tips-for-effective-google-podcast-sharing/"><u>[Updated] Advanced Tips for Effective Google Podcast Sharing</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-capture-share-enjoy/"><u>[Updated] Capture, Share, Enjoy</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-crafting-youtube-channel-trailers-the-ultimate-guide-to-profitability-for-2024/"><u>[Updated] Crafting YouTube Channel Trailers The Ultimate Guide to Profitability for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-erase-youtubes-short-snippet-playback-option-for-2024/"><u>[Updated] Erase YouTube's Short Snippet Playback Option for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-mastering-mobile-easy-steps-for-launching-personalbusiness-youtube-channels/"><u>[Updated] Mastering Mobile Easy Steps for Launching Personal/Business YouTube Channels</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-avoiding-simulated-reality-ills-strategies-and-tips/"><u>2024 Approved Avoiding Simulated Reality Ills Strategies and Tips</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-reimagining-cityscapes-the-integration-of-ecosystem-services/"><u>2024 Approved Reimagining Cityscapes The Integration of Ecosystem Services</u></a></li>
-<li><a href="https://win-forum.techidaily.com/social-engagement-showdown-twitter-instagram-facebook-against-youtube-giant/"><u>Social Engagement Showdown: Twitter, Instagram, Facebook Against YouTube Giant</u></a></li>
-<li><a href="https://video-capture.techidaily.com/ultimate-configuration-ticking-clocks-setup-guide-for-broadcasting-platforms/"><u>Ultimate Configuration Ticking Clocks Setup Guide for Broadcasting Platforms</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-crucial-top-5-compact-action-recorder-recommendations/"><u>[New] Crucial Top 5 Compact Action Recorder Recommendations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-budget-friendly-webinar-strategies-for-youtube/"><u>[New] In 2024, Budget-Friendly Webinar Strategies for YouTube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-ultimate-iphone-playlist-podcast-tips/"><u>[New] In 2024, The Ultimate iPhone Playlist Podcast Tips</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-tackling-background-noise-in-virtual-presentations/"><u>[New] Tackling Background Noise in Virtual Presentations</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-upload-guide-twitter-video-aspect-ratio-mandated/"><u>[New] Upload Guide Twitter Video Aspect Ratio Mandated</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-channel-creation-chronicles-the-ultimate-beauty-blogging-start-up-for-2024/"><u>[Updated] Channel Creation Chronicles The Ultimate Beauty Blogging Start-Up for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-exploring-per-view-money-flow-among-youtubers-for-2024/"><u>[Updated] Exploring Per-View Money Flow Among YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-fine-tuning-focus-on-youtube-threads/"><u>[Updated] Fine-Tuning Focus on YouTube Threads</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-safeguarding-your-digital-footprint-on-youtube/"><u>[Updated] In 2024, Safeguarding Your Digital Footprint on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-top-earners-in-youtube-enterprises/"><u>[Updated] In 2024, Top Earners in YouTube Enterprises</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-leverage-tubebuddy-for-top-tier-youtube-management/"><u>[Updated] Leverage TubeBuddy for Top-Tier YouTube Management</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-premier-10-battle-royale-challenges/"><u>2024 Approved Premier 10 Battle Royale Challenges</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-oppo-reno-11f-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Oppo Reno 11F 5G System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/easy-steps-to-change-voc-audio-into-mp3-format-across-pcs-and-macs/"><u>Easy Steps to Change VOC Audio Into MP3 Format Across PCs & Macs</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-itel-p55-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Itel P55 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-unveiling-youtubes-cc-policy-for-aspiring-creators/"><u>In 2024, Unveiling YouTube's CC Policy for Aspiring Creators</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/what-does-generative-ai-mean-comprehensive-explainer/"><u>What Does Generative AI Mean? Comprehensive Explainer</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Shedding Light  Techniques for Improving YouTube Video Quality for 2024\""
-date: 2024-09-17T18:49:20.142Z
-updated: 2024-09-22T02:17:15.389Z
+date: 2024-09-30T19:10:05.517Z
+updated: 2024-10-03T16:01:57.380Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,21 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. Home Lighting
 
@@ -70,22 +84,15 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
@@ -99,13 +106,6 @@ Out of the three lights, the key light should be the brightest. When it is posit
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -122,6 +122,13 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -142,5 +149,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-become-a-vr-pro-ios-devices-guide-to-vr-viewing/"><u>[New] Become a VR Pro IOS Device's Guide to VR Viewing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eading-the-way-in-video-production-comprerant-free-youtube-intro-makers-for-2024/"><u>[New] Leading the Way in Video Production Compreran't Free YouTube Intro Makers for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-legitimate-tiktok-growth-where-to-find-trustworthy-leads/"><u>[New] Legitimate TikTok Growth Where to Find Trustworthy Leads</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-picking-the-right-software-bandicam-versus-camtasia/"><u>[Updated] Picking the Right Software Bandicam Versus Camtasia</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-top-6-free-audio-apps-convert-youtube-hits-to-your-android-device/"><u>2024 Approved Top 6 Free Audio Apps - Convert YouTube Hits to Your Android Device</u></a></li>
+<li><a href="https://win-news.techidaily.com/advanced-pro-soft-ui-toolkit-with-premium-bootstrap-v5-features-by-creative-tim/"><u>Advanced Pro Soft UI Toolkit with Premium Bootstrap v5 Features by Creative Tim</u></a></li>
+<li><a href="https://extra-information.techidaily.com/auditory-aesthetics-incorporating-youtube-music-into-videos-for-2024/"><u>Auditory Aesthetics Incorporating YouTube Music Into Videos for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/champion-toolkit-10-budget-friendly-caption-extractors-for-2024/"><u>Champion Toolkit 10 Budget-Friendly Caption Extractors for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/create-captivate-independent-animation-innovations/"><u>Create, Captivate Independent Animation Innovations</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-exclusive-list-of-leading-free-video-editing-programs/"><u>In 2024, Exclusive List of Leading Free Video Editing Programs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/cketing-channels-essential-narrative-methods-for-2024/"><u>Skyrocketing Channels Essential Narrative Methods for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rships-value-to-creators-understanding-revenue-per-stream-for-2024/"><u>Viewership's Value to Creators Understanding Revenue per Stream for 2024</u></a></li>
+</ul></div>
 

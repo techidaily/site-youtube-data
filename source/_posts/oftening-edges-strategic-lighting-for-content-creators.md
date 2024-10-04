@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Softening Edges  Strategic Lighting for Content Creators\""
-date: 2024-09-26T18:28:44.825Z
-updated: 2024-09-28T20:08:47.026Z
+date: 2024-10-01T02:46:09.058Z
+updated: 2024-10-03T22:34:04.569Z
 tags:
   - ai video
   - ai youtube
@@ -50,25 +50,19 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -104,10 +98,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -117,10 +111,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -144,22 +138,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-enhancing-drones-techniques-in-video-post-production/"><u>[New] 2024 Approved Enhancing Drones Techniques in Video Post-Production</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-profit-power-up-maximize-youtube-studio-dollars-across-platforms/"><u>[Updated] 2024 Approved Profit Power-Up Maximize YouTube Studio Dollars Across Platforms</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-emoji-mastery-for-engaging-youtube-discussions/"><u>[Updated] Emoji Mastery for Engaging YouTube Discussions</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-enhance-your-presence-best-free-tools-for-intriguing-openings/"><u>[Updated] In 2024, Enhance Your Presence Best Free Tools for Intriguing Openings</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-perfect-audio-gear-for-streamers/"><u>2024 Approved Perfect Audio Gear for Streamers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-preserving-youtube-music-3-secure-complimentary-techniques/"><u>2024 Approved Preserving YouTube Music 3 Secure, Complimentary Techniques</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/best-free-windows-software-top-3-dvd-ripping-tools-for-win10win11-fully-updated-and-free/"><u>Best Free Windows Software: TOP 3 DVD Ripping Tools for Win10/Win11, Fully Updated & Free</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-owner-uncovering-your-subscribers-for-2024/"><u>Channel Owner Uncovering Your Subscribers for 2024</u></a></li>
-<li><a href="https://media-tips.techidaily.com/discover-the-latest-features-of-kodi-version-205-rollout-and-enhancements-unveiled/"><u>Discover the Latest Features of Kodi Version 20.5: Rollout and Enhancements Unveiled!</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/illuminating-seamless-transitions-in-song-production-crossfade-for-2024/"><u>Illuminating Seamless Transitions in Song Production (Crossfade) for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-samsung-galaxy-a15-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Samsung Galaxy A15 5G to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-news-endings-as-a-narrative-tool/"><u>In 2024, News Endings as a Narrative Tool</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-streaming-success-gamers-software/"><u>In 2024, Streaming Success Gamers' Software</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-the-dos-and-donts-of-youtube-promo-video-making/"><u>In 2024, The Do's and Don’ts of YouTube Promo Video Making</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/outube-earning-rules-unveiled-for-2024/"><u>New YouTube Earning Rules Unveiled for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/ridiculousrender-hub-for-2024/"><u>RidiculousRender Hub for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/bian-beginnings-unveiled-building-a-business-and-bringing-big-bucks/"><u>Youtubian Beginnings Unveiled Building a Business and Bringing Big Bucks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-freeing-up-youtube-footage-borderless-exploration/"><u>[New] 2024 Approved Freeing Up YouTube Footage Borderless Exploration</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-how-to-play-youtube-in-background-on-iphone-and-android/"><u>[New] In 2024, How to Play YouTube in Background on iPhone and Android</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ext-level-cinema-selection-youtube-edition/"><u>[New] Next-Level Cinema Selection - YouTube Edition</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-screencapture-pro-tips-record-your-television-easily-for-2024/"><u>[New] ScreenCapture Pro-Tips Record Your Television Easily for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-vlog-confidently-like-popular-youtubers-in-2024/"><u>[Updated] How to Vlog Confidently Like Popular YouTubers, In 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-mastering-video-lighting-techniques/"><u>[Updated] In 2024, Mastering Video Lighting Techniques</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-mastering-your-videos-top-youtube-friendly-cameras/"><u>[Updated] In 2024, Mastering Your Videos Top YouTube-Friendly Cameras</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-tips-for-safeguarding-your-youtube-presence/"><u>[Updated] In 2024, Tips for Safeguarding Your YouTube Presence</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-internet-idolaters-top-ten-youtube-sensations-for-2024/"><u>[Updated] Internet Idolaters Top Ten YouTube Sensations for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtubes-revenue-per-million-views-an-insight-for-2024/"><u>[Updated] YouTube's Revenue Per Million Views An Insight for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-turn-your-youtube-tracks-into-mp3-with-macos/"><u>2024 Approved Turn Your YouTube Tracks Into MP3 with MacOS</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/decoding-ai-black-boxes-insights-into-their-inner-workings-and-purpose/"><u>Decoding AI Black Boxes: Insights Into Their Inner Workings and Purpose</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-tecno-spark-10-4g-by-fonelab-android-recover-data/"><u>How to recover lost data from Tecno Spark 10 4G?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/linkedin-plus-a-guide-to-its-prestige-benefits/"><u>LinkedIn Plus - A Guide to Its Prestige Benefits</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/mastering-your-media-a-guide-to-using-the-advanced-features-of-iphone-video-converter-factory-pro/"><u>Mastering Your Media: A Guide to Using the Advanced Features of iPhone Video Converter Factory Pro</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-youtube-triumphs-an-in-depth-guide-to-creator-studio/"><u>Navigating YouTube Triumphs An In-Depth Guide to Creator Studio</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-commanding-attention-techniques-for-higher-pitched-voice-in-digital-storytelling/"><u>New Commanding Attention Techniques for Higher Pitched Voice in Digital Storytelling</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolving-the-issue-when-team-fortress-2-refuses-to-open/"><u>Resolving the Issue When 'Team Fortress 2 Refuses to Open</u></a></li>
+<li><a href="https://games-able.techidaily.com/transform-your-gaming-experience-through-steam-modding/"><u>Transform Your Gaming Experience Through Steam Modding</u></a></li>
 </ul></div>
 
