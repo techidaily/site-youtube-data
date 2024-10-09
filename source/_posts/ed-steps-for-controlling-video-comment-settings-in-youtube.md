@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Steps for Controlling Video Comment Settings in YouTube"
-date: 2024-09-18T01:34:57.848Z
-updated: 2024-09-22T06:35:37.956Z
+date: 2024-10-07T16:04:59.547Z
+updated: 2024-10-09T16:02:42.737Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -117,6 +124,13 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -133,6 +147,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +167,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +194,21 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-insider-guide-recording-full-desktop-scenes-in-w8/"><u>[New] 2024 Approved Insider Guide Recording Full Desktop Scenes in W8</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-essential-handheld-guide-to-youtube-production-for-2024/"><u>[New] The Essential Handheld Guide to YouTube Production for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outubers-playbook-advanced-techniques-for-engaging-editing/"><u>[New] Youtuber's Playbook Advanced Techniques for Engaging Editing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-essential-guide-to-editing-youtube-videos-seamlessly-in-imovie/"><u>[Updated] 2024 Approved The Essential Guide to Editing YouTube Videos Seamlessly in iMovie</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-a-practical-guide-to-using-vsco-for-professionals-for-2024/"><u>[Updated] A Practical Guide to Using VSCO for Professionals for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-avoid-commonplace-channel-titles-finding-uniqueness-with-filmora-for-2024/"><u>[Updated] Avoid Commonplace Channel Titles Finding Uniqueness with Filmora for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-crafting-a-distinctive-sphere-of-influence-for-2024/"><u>[Updated] Crafting a Distinctive Sphere of Influence for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unlock-mastery-the-beginners-guide-to-editing-excellence/"><u>[Updated] Unlock Mastery The Beginner's Guide to Editing Excellence</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-exemplars-crafting-multimedia-narratives-with-images-and-melody/"><u>2024 Approved Exemplars Crafting Multimedia Narratives with Images & Melody</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-professional-grade-handguns-for-ultimate-video-stability/"><u>2024 Approved Professional Grade Handguns for Ultimate Video Stability</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-virtual-classrooms-future-learning-unleashed/"><u>2024 Approved Virtual Classrooms Future Learning Unleashed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nt-creation-conundrums-understanding-the-differences-between-igtv-and-youtube/"><u>Content Creation Conundrums Understanding the Differences Between IGTV and YouTube</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-record-a-podcast-on-iphone-or-ipad-best-for-interviews-and-travel/"><u>How To Record a Podcast on iPhone or iPad (Best for Interviews & Travel)</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-honor-x50iplus-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Honor X50i+ to iPhone Easily | Dr.fone</u></a></li>
+</ul></div>
 

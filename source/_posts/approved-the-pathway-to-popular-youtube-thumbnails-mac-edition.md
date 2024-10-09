@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Pathway to Popular Youtube Thumbnails  Mac Edition\""
-date: 2024-09-21T03:49:35.236Z
-updated: 2024-09-22T04:52:23.969Z
+date: 2024-10-04T16:05:12.687Z
+updated: 2024-10-09T16:15:46.295Z
 tags:
   - ai video
   - ai youtube
@@ -63,13 +63,6 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
@@ -77,17 +70,10 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -95,6 +81,26 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -111,6 +117,13 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -131,5 +144,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-classic-rogelikes-vs-roguelites-dynamics/"><u>[Updated] Classic Rogelikes Vs. Roguelites' Dynamics</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-removing-inaudible-voices-from-obs-recording/"><u>[Updated] In 2024, Removing Inaudible Voices From OBS Recording</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-tailored-transmission-terminal-podcasters-hub/"><u>[Updated] Tailored Transmission Terminal Podcaster's Hub</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-ultimate-playstation-4-guide-to-perfect-gameplay-recording-for-2024/"><u>[Updated] The Ultimate PlayStation 4 Guide to Perfect Gameplay Recording for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-transforming-photos-with-simple-bg-removal-in-picsart/"><u>[Updated] Transforming Photos with Simple Bg Removal in Picsart</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-conquer-the-crowd-initiating-your-top-ranked-gaming-channel/"><u>In 2024, Conquer the Crowd Initiating Your Top-Ranked Gaming Channel</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-creative-commons-legalities-explained-simply/"><u>In 2024, Creative Commons Legalities Explained Simply</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-leading-5-video-editors-outside-youtube-realm/"><u>In 2024, Leading 5 Video Editors Outside YouTube Realm</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-learn-to-create-stunning-thumbnails-in-minutes/"><u>In 2024, Learn to Create Stunning Thumbnails in Minutes</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-password-cracking-tools-for-oppo-reno-11-5g-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Oppo Reno 11 5G</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-windows-10-game-recording-5-methods/"><u>In 2024, Windows 10 Game Recording [5 Methods]</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unlocking-docs-transcription-feature-a-beginners-guide/"><u>Unlocking Docs' Transcription Feature A Beginner’s Guide</u></a></li>
+</ul></div>
 

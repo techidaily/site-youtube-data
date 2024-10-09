@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Mastering Video Lighting Techniques"
-date: 2024-09-21T05:30:13.696Z
-updated: 2024-09-21T23:11:33.202Z
+date: 2024-10-04T16:09:44.405Z
+updated: 2024-10-09T16:09:10.382Z
 tags:
   - ai video
   - ai youtube
@@ -49,7 +49,27 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -77,6 +97,13 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -88,6 +115,13 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -108,12 +142,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-creating-illusionary-settings-with-instagrams-chroma-key/"><u>[New] 2024 Approved Creating Illusionary Settings with Instagram’s Chroma Key</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-maximize-video-impact-via-creator-studio-utilization/"><u>[New] 2024 Approved Maximize Video Impact via Creator Studio Utilization</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-journey-from-ad-revenue-to-bank-account-balance/"><u>[New] 2024 Approved The Journey From Ad Revenue to Bank Account Balance</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-unlocking-video-potential-the-art-of-youtube-live-360-streaming/"><u>[New] 2024 Approved Unlocking Video Potential The Art of YouTube Live 360 Streaming</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-youtube-thumbnail-design-on-macos-unveiled/"><u>[New] 2024 Approved YouTube Thumbnail Design on macOS Unveiled</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-youtube-tvs-not-to-miss-factors-in-signing-up/"><u>[New] 2024 Approved YouTube TV's Not-to-Miss Factors in Signing Up</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-new-take-on-favorite-movies-7-alternatives-for-2024/"><u>[New] A New Take on Favorite Movies - #7 Alternatives for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exploring-biggest-fifa-footage-trends-in-graphics/"><u>[Updated] Exploring Biggest FIFA Footage Trends in Graphics</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-from-studio-to-stage-stream-your-mp3-tunes-on-youtube/"><u>2024 Approved From Studio to Stage Stream Your MP3 Tunes on YouTube</u></a></li>
+<li><a href="https://video-capture.techidaily.com/hearnow-podcast-and-speaker-assessment-for-2024/"><u>HearNow Podcast and Speaker Assessment for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-i-fixed-the-persistent-lag-in-outriders-a-comprehensive-guide/"><u>How I Fixed the Persistent Lag in Outriders: A Comprehensive Guide</u></a></li>
+<li><a href="https://driver-download.techidaily.com/improve-your-game-update-acer-predator-helios-300-graphics-driver/"><u>Improve Your Game: Update Acer Predator Helios 300 Graphics Driver</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-journey-to-high-definition-mastering-sdr-to-hdr-conversion/"><u>In 2024, Journey to High Definition Mastering SDR to HDR Conversion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-aesthetic-conundrum-of-the-sony-ws623-model/"><u>The Aesthetic Conundrum of the Sony WS623 Model</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-empowerment-your-life-story-can-inspire/"><u>Youth Empowerment Your Life Story Can Inspire</u></a></li>
+</ul></div>
 

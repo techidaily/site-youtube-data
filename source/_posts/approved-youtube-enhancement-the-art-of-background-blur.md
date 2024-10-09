@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  YouTube Enhancement  The Art of Background Blur\""
-date: 2024-10-03T08:18:23.318Z
-updated: 2024-10-04T05:02:59.212Z
+date: 2024-10-02T16:11:26.778Z
+updated: 2024-10-09T16:11:20.378Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,19 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -79,6 +92,13 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
@@ -90,47 +110,27 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -154,18 +154,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/isrupt-unbidden-youtube-content-feeds/"><u>[New] Disrupt Unbidden YouTube Content Feeds</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-downloadable-instagram-footage-tech-tips-for-computers-and-macs-for-2024/"><u>[New] Downloadable Instagram Footage Tech Tips for Computers & Macs for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-navigating-the-starscape-a-guide-to-influencers-for-your-needs-for-2024/"><u>[New] Navigating the Starscape A Guide to Influencers for Your Needs for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/he-foundation-for-success-equipping-new-channels/"><u>[New] The Foundation for Success Equipping New Channels</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-your-journey-to-glamorous-guruship-launching-an-aesthetic-channel/"><u>[Updated] 2024 Approved Your Journey to Glamorous Guruship Launching an Aesthetic Channel</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-short-form-spectrum-youtube-meets-tiktok/"><u>[Updated] In 2024, Short-Form Spectrum YouTube Meets TikTok</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unleashing-video-potential-effective-seo-strategies-for-youtube/"><u>[Updated] In 2024, Unleashing Video Potential Effective SEO Strategies for YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-transformative-tips-making-an-indelible-mark-in-the-digital-world/"><u>[Updated] Transformative Tips Making an Indelible Mark in the Digital World</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ructing-inquiry-curtain-closers-for-2024/"><u>Constructing Inquiry Curtain Closers for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1723004710947-doom-eternal-installation-woes-heres-your-ultimate-fix-guide/"><u>DOOM Eternal Installation Woes? Here's Your Ultimate Fix Guide</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-to-turn-on-system-protection-in-windows-10/"><u>How to Turn On System Protection in Windows 10</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-expert-tips-for-adding-youtube-images-in-slide-decks/"><u>In 2024, Expert Tips for Adding YouTube Images in Slide Decks</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/key-methods-to-capture-and-document-live-youtube-broadcasts-for-2024/"><u>Key Methods to Capture and Document Live Youtube Broadcasts for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/an-instant-subscription-lead-to-higher-watch-time/"><u>[New] Can Instant Subscription Lead to Higher Watch Time?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/reeing-up-youtube-footage-borderless-exploration/"><u>[New] Freeing Up YouTube Footage Borderless Exploration</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-ideal-mac-tools-to-record-your-workscreen/"><u>[New] In 2024, Ideal Mac Tools to Record Your Workscreen</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ideo-alchemy-on-a-pc-transforming-footage-into-youtube-gold-for-2024/"><u>[New] Video Alchemy on a PC Transforming Footage Into YouTube Gold for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-using-snapchat-for-past-photos-from-memory/"><u>[Updated] 2024 Approved Using Snapchat for Past Photos From Memory</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-creating-captivating-life-enriching-video-content-for-2024/"><u>[Updated] Creating Captivating Life-Enriching Video Content for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-mastering-the-art-of-logging-digital-sound-from-computers/"><u>[Updated] Mastering the Art of Logging Digital Sound From Computers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-movie-substitutes-that-shook-up-my-world-7-choices/"><u>[Updated] Movie Substitutes That Shook Up My World - #7 Choices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-crafting-content-masterpieces-with-these-essential-youtube-tips/"><u>2024 Approved Crafting Content Masterpieces with These Essential YouTube Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-transforming-viewership-engaging-end-screens-tutorials/"><u>2024 Approved Transforming Viewership Engaging End Screens Tutorials</u></a></li>
+<li><a href="https://driver-download.techidaily.com/fixing-synaptic-mouse-and-touchpad-driver-issues-in-windows-11-a-complete-guide/"><u>Fixing Synaptic Mouse & Touchpad Driver Issues in Windows 11: A Complete Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-motorola-razr-40-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Motorola Razr 40 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-smart-8-pro-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Smart 8 Pro</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-tele-loop-techniques-easy-endless-watching-on-television/"><u>In 2024, Tele-Loop Techniques Easy, Endless Watching on Television</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/infuse-audiovisual-experience-in-ppt-for-2024/"><u>Infuse Audiovisual Experience in PPT for 2024</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-free-tv-streaming-9-sites-you-need-to-know/"><u>New Free TV Streaming 9 Sites You Need To Know</u></a></li>
 </ul></div>
 

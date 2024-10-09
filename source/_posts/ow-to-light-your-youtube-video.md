@@ -1,7 +1,7 @@
 ---
 title: "[New] How To Light Your YouTube Video"
-date: 2024-09-26T18:49:48.462Z
-updated: 2024-10-04T00:47:51.062Z
+date: 2024-10-02T16:12:03.580Z
+updated: 2024-10-09T16:11:51.181Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,10 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.  Window Lighting
@@ -59,13 +59,20 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Home Lighting
@@ -79,13 +86,6 @@ Notice how the color of Daniel's skin looks much more orange here (above) than t
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Home Studio Lighting
 
@@ -115,18 +115,18 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -151,22 +151,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-binge-watching-to-billions-jake-pauls-video-venture/"><u>[New] 2024 Approved Binge-Watching to Billions Jake Paul's Video Venture</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-easycapture-pro-free-for-windows-10-for-2024/"><u>[New] EasyCapture Pro - Free for Windows 10 for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-premium-gaming-intro-ideas-for-youtube-free-vs-paid-models/"><u>[New] In 2024, Premium Gaming Intro Ideas for YouTube Free vs Paid Models</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-steps-to-resolve-unusual-self-viewer-mistakes-in-chats-for-2024/"><u>[New] Steps to Resolve Unusual Self-Viewer Mistakes in Chats for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/41491011-updated-2024-approved-flawless-free-download-of-youtube-video-covers-no-hurdles/"><u>[Updated] 2024 Approved Flawless Free Download of YouTube Video Covers - No Hurdles!</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-essential-tips-for-editing-your-videos-in-youtube-studio-for-2024/"><u>[Updated] Essential Tips for Editing Your Videos in YouTube Studio for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-snap-in-hours-stars-quick-hit-video-winners-for-2024/"><u>[Updated] Snap-in-Hours Stars Quick Hit Video Winners for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-gt-neo-5-se-by-drfone-android-unlock-android-unlock/"><u>How to unlock GT Neo 5 SE</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-3-ways-to-unlock-your-apple-iphone-se-for-free-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Your Apple iPhone SE for Free</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-x-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From Apple iPhone X Online</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Itel P55? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-secrets-of-hosting-no-cost-seminars-on-the-worlds-largest-video-platform/"><u>In 2024, Secrets of Hosting No-Cost Seminars on the World’s Largest Video Platform</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-transforming-web-popularity-into-video-concepts-using-google-trends/"><u>In 2024, Transforming Web Popularity Into Video Concepts Using Google Trends</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-secrets-top-strategies-for-advanced-srt-tweaks-on-apple/"><u>In 2024, Unveiling Secrets Top Strategies for Advanced SRT Tweaks on Apple</u></a></li>
-<li><a href="https://win-help.techidaily.com/online-mov-to-3gpp-format-transformation-at-no-cost-videoripper/"><u>Online MOV to 3GPP Format Transformation at No Cost - Videoripper</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-solutions-for-correcting-livekernelevent-code-issue-117/"><u>Step-by-Step Solutions for Correcting LiveKernelEvent Code Issue #117</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/0-best-iphone-and-android-apps-to-make-into-videos/"><u>The 10 Best iPhone & Android Apps to Make Into Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-ultimate-list-of-16-key-youtube-videos-for-higher-engagement/"><u>[New] 2024 Approved Ultimate List of 16 Key YouTube Videos for Higher Engagement</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/randing-with-visuals-inserting-watermarks-into-youtube-vids/"><u>[New] Branding with Visuals Inserting Watermarks Into YouTube Vids</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/roven-strategies-to-record-clear-audio-without-a-mic-for-2024/"><u>[New] Proven Strategies to Record Clear Audio Without a Mic for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/uick-guide-enhancing-youtube-clips-using-windows-movie-maker/"><u>[New] Quick Guide Enhancing YouTube Clips Using Windows Movie Maker</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-techniques-in-archiving-web-based-music-tracks-for-2024/"><u>[New] Techniques in Archiving Web-Based Music Tracks for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-acclaimed-choices-17-popular-programs-for-background-removal/"><u>2024 Approved Acclaimed Choices 17 Popular Programs for Background Removal</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-the-onetastic-add-in-enhancing-your-microsoft-onenote-experience/"><u>Comprehensive Analysis: The Onetastic Add-In Enhancing Your Microsoft OneNote Experience</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/itous-display-dynamics-choosing-a-media-company/"><u>Ubiquitous Display Dynamics Choosing a Media Company</u></a></li>
+<li><a href="https://driver-download.techidaily.com/ultimate-tutorial-for-installing-newest-corsair-headset-drivers-in-windows-environment/"><u>Ultimate Tutorial for Installing Newest Corsair Headset Drivers in Windows Environment</u></a></li>
 </ul></div>
 

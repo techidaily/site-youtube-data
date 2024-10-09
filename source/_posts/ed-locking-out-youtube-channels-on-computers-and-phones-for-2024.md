@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Locking Out Youtube Channels on Computers and Phones for 2024"
-date: 2024-09-19T22:51:53.691Z
-updated: 2024-09-21T22:55:12.765Z
+date: 2024-10-07T16:14:10.122Z
+updated: 2024-10-09T16:02:00.238Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/7ac9924553405319fc34adce73b50933080c4e0b7
 
 ![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
 
  One can also block YouTube channels on mobile devices in the same manner as you would do it on the desktop computer. It will do the same effect and prevent bullying users from interacting with your content.
@@ -67,6 +74,13 @@ thumbnail: https://thmb.techidaily.com/7ac9924553405319fc34adce73b50933080c4e0b7
 * 3\. Open a particular account that you intend to block and go to their main account page.
 
 ![find users](https://images.wondershare.com/filmora/article-images/find-users.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * 4\. When you’re on the account page, open the menu at the top-right corner of the screen and tap Block user.
 
@@ -98,16 +112,23 @@ thumbnail: https://thmb.techidaily.com/7ac9924553405319fc34adce73b50933080c4e0b7
 
 ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
 
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **II. Block from Watch Page**
@@ -115,13 +136,6 @@ thumbnail: https://thmb.techidaily.com/7ac9924553405319fc34adce73b50933080c4e0b7
 * 1\. On the Watch Page tap the dotted **More** option at the top right corner of the video.
 
 ![more option](https://images.wondershare.com/filmora/article-images/more-option7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * 2\. Press the **Block** option.
 * 3\. A dialog box will appear with two options, **Block this video** for blocking only this particular video or **Block this channel** to block the entire channel associated with the video.
@@ -134,10 +148,10 @@ thumbnail: https://thmb.techidaily.com/7ac9924553405319fc34adce73b50933080c4e0b7
 ![get passcode again](https://images.wondershare.com/filmora/article-images/pass-code-again8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Conclusion**
@@ -165,5 +179,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-elevate-your-ride-with-these-10-sj4000-essentials/"><u>[New] 2024 Approved Elevate Your Ride with These 10 SJ4000 Essentials</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-streamline-your-soundwaves-moving-playlists-across-networks/"><u>[New] 2024 Approved Streamline Your Soundwaves Moving Playlists Across Networks</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-step-by-step-guide-to-joining-and-earning-as-a-tiktok-star/"><u>[New] In 2024, Step-by-Step Guide to Joining & Earning as a TikTok Star</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-crafting-moments-instagrams-highlight-and-download-insights/"><u>[Updated] Crafting Moments Instagram's Highlight and Download Insights</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-educators-compendium-of-video-assisted-methods/"><u>[Updated] The Educator's Compendium of Video-Assisted Methods</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unseen-video-on-sony-a6400-whats-going-wrong/"><u>2024 Approved Unseen Video on Sony A6400 What's Going Wrong?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-install-your-sandisk-ssd-drivers-quickly-and-easily-complete-tutorial/"><u>How to Install Your Sandisk SSD Drivers Quickly and Easily – Complete Tutorial</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-best-video-format-for-youtube-uploading/"><u>In 2024, Best Video Format for YouTube Uploading</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-crafting-the-quintessential-thumbnails-for-live-video-success/"><u>In 2024, Crafting the Quintessential Thumbnails for Live Video Success</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-decoding-the-mechanics-of-subscriber-tracking/"><u>In 2024, Decoding the Mechanics of Subscriber Tracking</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-earning-through-eyes-the-actual-youtube-view-count-needed/"><u>In 2024, Earning Through Eyes The Actual YouTube View Count Needed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-erase-unwanted-black-fringes-on-youtube-tracks/"><u>In 2024, Erase Unwanted Black Fringes on YouTube Tracks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-explore-new-movie-landscapes-top-7-alternates/"><u>In 2024, Explore New Movie Landscapes - Top 7 Alternates</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-exploring-object-oriented-programming-for-complex-applications/"><u>In 2024, Exploring Object-Oriented Programming for Complex Applications</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-guide-to-youtubes-latest-income-strategies/"><u>In 2024, Guide to YouTube's Latest Income Strategies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-navigating-video-uploads-on-youtube-a-comprehensive-tutorial/"><u>In 2024, Navigating Video Uploads on YouTube A Comprehensive Tutorial</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-motorola-moto-g-stylus-2023-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Motorola Moto G Stylus (2023)? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/infinix-note-30-vip-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Infinix Note 30 VIP Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+</ul></div>
 

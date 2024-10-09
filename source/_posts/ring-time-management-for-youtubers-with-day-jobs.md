@@ -1,7 +1,7 @@
 ---
 title: "Mastering Time Management for YouTubers with Day Jobs"
-date: 2024-09-21T05:12:08.661Z
-updated: 2024-09-21T18:42:12.639Z
+date: 2024-10-02T16:12:06.437Z
+updated: 2024-10-09T16:09:41.983Z
 tags:
   - ai video
   - ai youtube
@@ -51,30 +51,37 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
@@ -92,6 +99,13 @@ Just try it and create your own YouTube video!
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -112,5 +126,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-bringing-text-to-life-a-guide-to-dynamic-animation-methods/"><u>[New] 2024 Approved Bringing Text to Life A Guide to Dynamic Animation Methods</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-cutting-edge-techniques-top-lenses-for-youtube-stars/"><u>[New] 2024 Approved Cutting-Edge Techniques Top Lenses for YouTube Stars</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-home-studio-heroics-your-path-to-effectful-artistry/"><u>[New] 2024 Approved Home Studio Heroics Your Path to Effectful Artistry</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-in-depth-earnings-analysis-adsense-payout-for-every-1000-viewers-on-youtube/"><u>[New] 2024 Approved In-Depth Earnings Analysis AdSense Payout for Every 1,000 Viewers on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-mastering-youtube-video-sizing-a-step-by-step-approach/"><u>[New] 2024 Approved Mastering YouTube Video Sizing A Step-by-Step Approach</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-innovative-ways-to-implement-b-roll-in-productions-for-2024/"><u>[New] Innovative Ways to Implement B Roll in Productions for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-overlooked-marvels-free-transcription-tools-for-macos/"><u>[Updated] 2024 Approved Overlooked Marvels Free Transcription Tools for macOS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-beginners-ultimate-list-of-youtube-production-tools/"><u>In 2024, Beginner's Ultimate List of YouTube Production Tools</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oneplus-12-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from OnePlus 12 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-best-free-video-upload-sites-for-private-and-business-videos-2023-update/"><u>New 2024 Approved Best Free Video Upload Sites for Private and Business Videos 2023 Update</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-no-installation-required-10-free-online-video-compressors/"><u>New In 2024, No Installation Required 10 Free Online Video Compressors</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/solved-move-from-realme-12-pro-5g-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Realme 12 Pro 5G to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-oppo-reno-8t-5g-by-drfone-android/"><u>Three Ways to Sim Unlock Oppo Reno 8T 5G</u></a></li>
+</ul></div>
 

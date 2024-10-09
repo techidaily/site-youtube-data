@@ -1,7 +1,7 @@
 ---
 title: "\"How to Craft Eye-Catching YouTubes End Titles\""
-date: 2024-09-18T21:59:04.018Z
-updated: 2024-09-22T04:10:10.936Z
+date: 2024-10-03T16:01:18.434Z
+updated: 2024-10-09T16:06:43.704Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +150,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-crafting-captivating-thumbnails-a-comprehensive-guide-for-youtube-creators/"><u>[New] 2024 Approved Crafting Captivating Thumbnails A Comprehensive Guide for YouTube Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-enhancing-your-game-time-with-youtube-live-broadcasts/"><u>[New] 2024 Approved Enhancing Your Game Time with YouTube Live Broadcasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-master-guide-to-finding-cheap-transcript-extractors/"><u>[New] 2024 Approved Master Guide to Finding Cheap Transcript Extractors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-pre-production-meets-post-production-premiere-and-youtube/"><u>[New] 2024 Approved Pre-Production Meets Post-Production Premiere and YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-quality-audio-awaits-with-these-premium-asmr-mics/"><u>[New] 2024 Approved Quality Audio Awaits with These Premium ASMR Mics</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-unlocking-financial-flows-youtube-affiliates-for-modest-channels/"><u>[New] 2024 Approved Unlocking Financial Flows YouTube Affiliates for Modest Channels</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-mastering-zoom-on-windows-10-a-step-by-step-guide/"><u>[New] Mastering Zoom on Windows 10 A Step-by-Step Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-securing-your-fb-conversations-with-recordings/"><u>[Updated] Securing Your FB Conversations with Recordings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-streaming-google-meet-a-step-by-step-youtube-tutorial-for-2024/"><u>[Updated] Streaming Google Meet A Step-By-Step YouTube Tutorial for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/diy-conversion-transforming-websites-into-instant-desktop-apps-at-home/"><u>DIY Conversion: Transforming Websites Into Instant Desktop Apps at Home</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-to-the-top-10-historical-education-channels/"><u>Guide to the Top 10 Historical Education Channels</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/step-by-step-guide-converting-ac3-format-to-compatible-dts-surround-sound/"><u>Step-by-Step Guide: Converting AC3 Format to Compatible DTS Surround Sound</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-hideaway-techniques-for-internet-browsers-chrome-edge-firefox-safari-and-opera/"><u>The Ultimate Hideaway Techniques for Internet Browsers (Chrome, Edge, Firefox, Safari & Opera)</u></a></li>
+</ul></div>
 

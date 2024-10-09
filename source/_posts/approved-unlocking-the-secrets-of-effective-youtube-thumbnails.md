@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlocking the Secrets of Effective YouTube Thumbnails\""
-date: 2024-09-29T08:48:04.238Z
-updated: 2024-10-04T03:27:19.562Z
+date: 2024-10-08T16:24:40.991Z
+updated: 2024-10-09T16:17:05.869Z
 tags:
   - ai video
   - ai youtube
@@ -84,10 +84,10 @@ The three main elements of the Emotional Laser thumbnail are a background (usual
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### #1. Ham It Up (Take Your Reaction Photo)
@@ -112,6 +112,13 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -129,13 +136,6 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -149,6 +149,13 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -188,13 +195,6 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -204,10 +204,10 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
@@ -239,24 +239,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-pinnacle-ai-transcribers-for-speech/"><u>[New] Pinnacle AI Transcribers for Speech</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/echno-titans-earnings-forecast-on-gaming-channels/"><u>[New] Techno Titans Earnings Forecast on Gaming Channels</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/op-ten-historical-educational-video-streams-for-students-for-2024/"><u>[New] Top Ten Historical Educational Video Streams (For Students) for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ltimate-guide-to-youtube-app-on-iphones-and-androids/"><u>[New] Ultimate Guide to YouTube App on iPhones and Androids</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-capture-the-season-wardrobe-top-5-winter-yt-scenes/"><u>[Updated] 2024 Approved Capture the Season' Wardrobe Top 5 Winter YT Scenes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-journey-through-joint-video-viewing-the-youtube-way/"><u>[Updated] 2024 Approved Journey Through Joint Video Viewing The Youtube Way</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-revving-into-excellence-winning-10-srt-converter-titles/"><u>[Updated] 2024 Approved Revving Into Excellence Winning 10 SRT Converter Titles</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-artisans-realm-inside-youtubes-studio-space/"><u>[Updated] 2024 Approved The Artisan’s Realm Inside YouTube's Studio Space</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-from-novice-to-narrative-youtube-seo-strategies-for-2024/"><u>[Updated] From Novice to Narrative YouTube SEO Strategies for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-from-screenplays-to-screens-youtubes-filmmaker-training/"><u>[Updated] From Screenplays to Screens YouTube's Filmmaker Training</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unveiling-the-secrets-to-engaging-youtube-live-thumbnails/"><u>[Updated] In 2024, Unveiling the Secrets to Engaging YouTube Live Thumbnails</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-story-upgrade-how-to-add-music-effectively/"><u>[Updated] Instagram Story Upgrade How to Add Music Effectively</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/how-to-share-screen-on-facebook-live-for-2024/"><u>How to Share Screen on Facebook Live for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-funicate-mastery-for-seamless-media-access/"><u>In 2024, Funicate Mastery for Seamless Media Access</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/logitech-camera-driver-downloads-free-solutions-compatible-with-windows-platforms/"><u>Logitech Camera Driver Downloads: Free Solutions Compatible with Windows Platforms</u></a></li>
-<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/step-by-step-tutorial-flawlessly-ripping-dvds-for-enhanced-viewing-on-apple-tv/"><u>Step-by-Step Tutorial: Flawlessly Ripping DVDs for Enhanced Viewing on Apple TV</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-nubia-red-magic-9-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/windowstsutaya/"><u>マックとWindowsのどちらでも対応！レンタル映像のコピー・ダビングガイド：TSUTAYA、ゲオ向けトリック!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-yogi-essentials-top-ten-web-channels-for-exercise/"><u>[Updated] 2024 Approved Yogi Essentials Top Ten Web Channels for Exercise</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-cheap-yet-good-quality-cameras-reviewed-here/"><u>[Updated] In 2024, Cheap Yet Good Quality Cameras Reviewed Here</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-maximize-youtube-savvy-unified-streams-for-enthusiasts/"><u>2024 Approved Maximize YouTube Savvy Unified Streams for Enthusiasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-turning-tides-creative-methods-to-flip-your-youtube-video/"><u>2024 Approved Turning Tides Creative Methods to Flip Your YouTube Video</u></a></li>
+<li><a href="https://fox-info.techidaily.com/elevating-storytelling-merging-narration-into-videos-for-2024/"><u>Elevating Storytelling Merging Narration Into Videos for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-a-visual-journey-in-filmmaking-insights-from-filmora-expertise/"><u>In 2024, A Visual Journey in Filmmaking Insights From Filmora Expertise</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-essential-manual-for-youtube-to-gif-conversion-online/"><u>In 2024, The Essential Manual for YouTube-to-GIF Conversion Online</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ordered-adventure-a-comprehensive-guide-to-the-harry-potter-movie-marathon/"><u>Ordered Adventure: A Comprehensive Guide to the Harry Potter Movie Marathon</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/transformative-techniques-podcast-covers-reimagined/"><u>Transformative Techniques Podcast Covers Reimagined</u></a></li>
 </ul></div>
 

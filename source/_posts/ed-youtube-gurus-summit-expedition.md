@@ -1,7 +1,7 @@
 ---
 title: "[Updated] YouTube Gurus Summit Expedition"
-date: 2024-09-28T01:49:38.030Z
-updated: 2024-10-03T19:53:46.808Z
+date: 2024-10-02T16:21:32.210Z
+updated: 2024-10-09T16:03:49.753Z
 tags:
   - ai video
   - ai youtube
@@ -65,10 +65,10 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Post Cards
@@ -85,14 +85,14 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _thinknoodles wearing his YouTube slippers._
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
@@ -104,13 +104,6 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -119,13 +112,26 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -149,21 +155,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-breaking-barriers-worlds-best-and-largest-shorts-downloaders/"><u>[New] 2024 Approved Breaking Barriers World’s Best & Largest Shorts Downloaders</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-navigating-the-rules-of-youtube-video-documentation/"><u>[New] 2024 Approved Navigating the Rules of YouTube Video Documentation</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-convert-spotify-playlist-to-youtube-5-best-tools/"><u>[New] In 2024, Convert Spotify Playlist To YouTube 5 Best Tools</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-ultimate-global-earning-creator/"><u>[New] The Ultimate Global Earning Creator</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-direct-linkage-bridging-youtube-and-imovie-with-music/"><u>[Updated] In 2024, Direct Linkage Bridging YouTube and iMovie with Music</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-essential-selection-11-child-friendly-beginner-level-waterproof-cams/"><u>[Updated] In 2024, Essential Selection 11 Child-Friendly, Beginner-Level Waterproof Cams</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-transform-stories-in-a-flash-free-extensions-and-mobile-magic/"><u>[Updated] In 2024, Transform Stories in a Flash – Free Extensions & Mobile Magic</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unique-stories-crafting-powerful-yt-narratives/"><u>[Updated] In 2024, Unique Stories Crafting Powerful YT Narratives</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/1-seamless-music-transfer-ultimate-guide-to-syncing-your-itunes-library-with-an-android-device/"><u>1. Seamless Music Transfer: Ultimate Guide to Syncing Your iTunes Library with an Android Device</u></a></li>
-<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-infinix-note-30-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Infinix Note 30? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/discover-how-to-effortlessly-navigate-and-fix-issues-in-photo-8-windows-edition-the-comprehensive-tutorial-inside/"><u>Discover How to Effortlessly Navigate and Fix Issues in Photo 8 Windows Edition – The Comprehensive Tutorial Inside</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/does-pope-francis-use-email/"><u>Does Pope Francis Use Email?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Infinix GT 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-from-zero-to-hero-in-youtube-traffic/"><u>In 2024, From Zero to Hero in YouTube Traffic</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/visual-hooks-essential-steps-in-podcast-design/"><u>Visual Hooks Essential Steps in Podcast Design</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-art-of-dual-careers-youtuber-and-full-time-employee-for-2024/"><u>[New] The Art of Dual Careers YouTuber & Full-Time Employee for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-ultimate-capture-tool-for-windows-10-professional/"><u>[New] Ultimate Capture Tool for Windows 10 - Professional</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unlocking-youtubes-earning-potential-in-the-new-year/"><u>[Updated] 2024 Approved Unlocking YouTube's Earning Potential in the New Year</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exceptional-uav-selection-for-optimal-gopro-footage/"><u>[Updated] Exceptional UAV Selection for Optimal GoPro Footage</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-seamless-idevice-screen-saving-tricks/"><u>[Updated] In 2024, Seamless iDevice Screen Saving Tricks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-top-4-free-tools-for-youtube-audio-conversion-to-wav/"><u>[Updated] In 2024, Top 4 Free Tools for YouTube Audio Conversion to WAV</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-from-muffled-to-clear-the-initial-use-of-fade-in-audition/"><u>2024 Approved From Muffled to Clear The Initial Use of Fade in Audition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/73765555-2024-approved-stand-out-in-a-sea-of-content-our-offer-includes-50-free-banners/"><u>2024 Approved Stand Out in a Sea of Content - Our Offer Includes 50 Free Banners!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/5-leading-resources-to-masterfully-add-text-flair-online/"><u>5 Leading Resources to Masterfully Add Text Flair Online</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/broadcasters-dilemma-opt-for-wirecast-or-obs/"><u>Broadcaster's Dilemma Opt for Wirecast or OBS?</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721267408419-cookiebot-enhanced-boost-your-sites-user-experience-with-smart-tracking/"><u>Cookiebot-Enhanced: Boost Your Site's User Experience with Smart Tracking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leap-into-latin-top-online-educational-platforms/"><u>Leap Into Latin: Top Online Educational Platforms</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-xiaomi-redmi-note-12-pro-4g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Xiaomi Redmi Note 12 Pro 4G Phone Now with These Tips</u></a></li>
 </ul></div>
 

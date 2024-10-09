@@ -1,7 +1,7 @@
 ---
 title: "\"Foundations First  What To Invest In for YouTubing\""
-date: 2024-09-29T00:33:28.908Z
-updated: 2024-10-03T21:38:57.052Z
+date: 2024-10-08T16:16:43.698Z
+updated: 2024-10-09T16:06:21.775Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,13 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -77,13 +84,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -95,10 +95,10 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Smartphone Camera Gear
@@ -106,10 +106,10 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -124,14 +124,14 @@ Another common downside of smartphone cameras is that most of them use digital z
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -154,18 +154,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-epicurean-envoys-the-best-food-vloggers-to-watch/"><u>[New] 2024 Approved Epicurean Envoys The Best Food Vloggers to Watch</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ow-to-view-youtube-statistics/"><u>[New] How to View YouTube Statistics</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-financial-forecasts-in-focus-select-stock-youtube-channels/"><u>[New] In 2024, Financial Forecasts in Focus Select Stock YouTube Channels</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-gourmet-guide-producing-culinary-content/"><u>[Updated] 2024 Approved Gourmet Guide Producing Culinary Content</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-a-closer-look-at-the-monetization-mechanism-for-video-clips/"><u>[Updated] A Closer Look at the Monetization Mechanism for Video Clips</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-enhancing-meeting-productivity-zooms-audio-and-video-recording-tips/"><u>[Updated] Enhancing Meeting Productivity Zoom's Audio & Video Recording Tips</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-breakdown-how-your-earnings-are-divided-in-youtube-shorts/"><u>[Updated] In 2024, The Breakdown How Your Earnings Are Divided in YouTube Shorts</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-secrets-to-successful-hash-tag-application-for-improved-campaigns-on-facebook/"><u>[Updated] Secrets to Successful Hash Tag Application for Improved Campaigns on Facebook</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-the-best-6-food-diary-apps-for-healthier-living/"><u>Discover the Best 6 Food Diary Apps for Healthier Living</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-raise-the-bar-top-8-speed-up-video-apps/"><u>In 2024, Raise the Bar Top 8 Speed Up Video Apps</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Tecno Spark 20? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/instagrams-selfie-codex-decoding-image-integrity/"><u>Instagram's Selfie Codex Decoding Image Integrity</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/ringtone-recommendations-for-your-chromium-phone/"><u>Ringtone Recommendations for Your Chromium Phone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-deconstructing-digital-dimensions-the-trios-unique-traits-vr-ar-and-mr/"><u>[New] 2024 Approved Deconstructing Digital Dimensions The Trio's Unique Traits (VR, AR, & MR)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-unlocking-creative-potential-a-deep-dive-into-screenflow-for-mac/"><u>[New] 2024 Approved Unlocking Creative Potential A Deep Dive Into ScreenFlow for Mac</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-video-ranking-what-factors-affect-your-rank-for-2024/"><u>[New] YouTube Video Ranking - What Factors Affect Your Rank for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-examine-groups-collaborative-media-on-messenger/"><u>[Updated] Examine Group's Collaborative Media on Messenger</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-account-alert-regaining-lost-access-on-facebook/"><u>[Updated] In 2024, Account Alert! Regaining Lost Access on Facebook</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-navigating-youtube-music-eclecticism/"><u>[Updated] In 2024, Navigating YouTube Music Eclecticism</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-top-3-ipad-voice-logging-strategies/"><u>[Updated] Top 3 iPad Voice Logging Strategies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-revolutionize-content-consumption-uncover-the-best-6-free-and-online-platforms-for-short-film-downloads/"><u>2024 Approved Revolutionize Content Consumption Uncover the Best 6 Free & Online Platforms for Short Film Downloads</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-editors-guide-to-powerful-notebooks-and-more/"><u>2024 Approved The Editor's Guide to Powerful Notebooks and More</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/t-strategies-for-tackling-copyright-claims-on-youtube-for-2024/"><u>Expert Strategies for Tackling Copyright Claims on YouTube for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-google-pixel-7a-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Google Pixel 7a FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-systems-turning-images-into-dynamic-videos/"><u>In 2024, Expert Systems Turning Images Into Dynamic Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-yts-game-changers-the-elite-ladies-in-gaming/"><u>In 2024, YT's Game Changers The Elite Ladies in Gaming</u></a></li>
+<li><a href="https://techidaily.com/is-your-zte-axon-40-lite-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your ZTE Axon 40 Lite working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-earnings-skyward-youtube-analytics-and-advertising-guide/"><u>Navigating Earnings Skyward YouTube Analytics & Advertising Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/obtain-exclusive-free-media-from-elite-4-youtube-clips/"><u>Obtain Exclusive Free Media From Elite 4 YouTube Clips</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-mastering-green-screen-in-fcp-x-a-step-by-step-guide-for-2024/"><u>Updated Mastering Green Screen in FCP X A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/key-to-creative-advertising-access-all-50-free-youtube-banner-designs/"><u>Your Key to Creative Advertising Access All 50 FREE YouTube Banner Designs!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/bes-shorts-thumbnail-dilemnas-and-quick-fixes/"><u>YouTube's Shorts Thumbnail Dilemnas & Quick Fixes</u></a></li>
 </ul></div>
 
