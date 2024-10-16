@@ -1,7 +1,7 @@
 ---
 title: "\"Optimal Filming Equipment  Advice on Choosing the Best Lenses\""
-date: 2024-09-13T21:47:28.742Z
-updated: 2024-09-16T19:30:51.709Z
+date: 2024-10-08T22:16:23.398Z
+updated: 2024-10-15T23:29:29.789Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,19 @@ There are two main categories of camera lenses: ‘zoom’ – lenses that allow
 We have explained the differences between Fixed lens and Zoom lens and advantages of using each lens, check this article: [Zoom Lens vs. Fixed Lenses: Which one is best for YouTuber?](https://tools.techidaily.com/wondershare/filmora/download/) for the detailed information.
 
 Before we get into the recommendations here is a little background information on lenses in general:
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Beginner's Guide to Aperture and F-Stops
 
@@ -82,10 +95,10 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
@@ -113,6 +126,13 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
 
 If you are looking for an inexpensive prime lens that lets you create sharp videos with shallow depth of field, you should look no further. This model is one of three Canon's 50mm prime lenses, although the [50mm f/1.4 USM](https://www.amazon.com/Canon-Standard-Medium-Telephoto-Cameras/dp/B00009XVCZ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-3&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=11bff1019e73f0462c30a04e98d4874f&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTe) and [50mm f/1.2 'L' USM](https://www.amazon.com/Canon-50mm-Lens-Digital-Cameras/dp/B000I1YIDQ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-4&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=d77bb813550f12e8aa72c8738dfaad81&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slot) models are much more expensive. You can use it to record a lot of different types of YouTube videos, like product reviews or makeup tutorials. The 50 mm f/1.8 STM lens doesn't have image stabilization technology so you should try to be as still as you can possibly be when shooting handheld videos in order to avoid recording footage that has a lot of camera shakes.
@@ -138,16 +158,10 @@ If you are using a 4k camera to shoot your YouTube video, check out [best camera
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -169,5 +183,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-best-batch-eight-websites-where-text-meets-gleaming-3d/"><u>[New] 2024 Approved Best Batch Eight Websites Where Text Meets Gleaming 3D</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-top-5-methods-for-creating-an-impressive-tiktok-introduction-with-macos/"><u>[New] 2024 Approved Top 5 Methods for Creating an Impressive TikTok Introduction with MacOS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-artisans-approach-crafting-unique-shareable-youtube-shorts/"><u>[New] In 2024, The Artisan's Approach Crafting Unique, Shareable YouTube Shorts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-leading-edge-applications-surpassing-traditional-fbx-file-capture/"><u>[New] Leading-Edge Applications Surpassing Traditional FBX File Capture</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-swift-playlist-dispatch-on-youtube/"><u>[Updated] 2024 Approved Swift Playlist Dispatch on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-go-live-with-google-meet-youtube-broadcasting-steps/"><u>[Updated] In 2024, Go Live with Google Meet YouTube Broadcasting Steps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-tailoring-trending-topics-to-endings/"><u>[Updated] In 2024, Tailoring Trending Topics to Endings</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exclusive-soundstage-shows/"><u>2024 Approved Exclusive Soundstage Shows</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-simplified-guide-to-google-meet-on-youtube-broadcasting/"><u>2024 Approved Simplified Guide to Google Meet on YouTube Broadcasting</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/choosing-your-virtual-companion-unveiling-which-is-more-advanced-chatgpt-plus-or-perplexity/"><u>Choosing Your Virtual Companion: Unveiling Which Is More Advanced, ChatGPT Plus or Perplexity?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-social-media-strategy-decoding-igtv-versus-youtubes-features/"><u>In 2024, Social Media Strategy Decoding IGTV Versus YouTube's Features</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/p2715q-4k-display-unveiled-a-comprehensive-analysis-for-2024/"><u>P2715Q 4K Display Unveiled A Comprehensive Analysis for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-havit-5-in-one-laptop-cooler-evaluation-effective-heat-management-with-five-dynamic-fans/"><u>Ultimate HAVIT 5-In-One Laptop Cooler Evaluation: Effective Heat Management with Five Dynamic Fans</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/er-the-most-stellar-yt-gamers-intros-no-cost-high-quality-for-2024/"><u>Uncover the Most Stellar YT Gamers' Intros No Cost, High Quality for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-cartoonify-your-footage-the-ultimate-conversion-tutorial/"><u>Updated In 2024, Cartoonify Your Footage The Ultimate Conversion Tutorial</u></a></li>
+</ul></div>
 

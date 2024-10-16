@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Make Your Own YouTube Opening & Closing Graphics\""
-date: 2024-10-06T16:31:09.450Z
-updated: 2024-10-09T16:14:42.967Z
+date: 2024-10-10T16:18:16.299Z
+updated: 2024-10-15T23:05:58.884Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +125,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,16 +152,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/issecting-youtubes-user-commentary/"><u>[New] Dissecting YouTubes' User Commentary</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-dichotomy-of-youtube-rights-and-cc-licenses/"><u>[Updated] In 2024, The Dichotomy of YouTube Rights and CC Licenses</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unpacking-the-essentials-mastering-adobes-storage-solutions-and-their-rival-alternatives/"><u>2024 Approved Unpacking The Essentials Mastering Adobe's Storage Solutions & Their Rival Alternatives</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/achieving-clear-communication-on-skype/"><u>Achieving Clear Communication on Skype</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/advantages-of-bespoke-gpt-models-that-elevate-beyond-the-original-chatgpt-functions/"><u>Advantages of Bespoke GPT Models That Elevate Beyond the Original ChatGPT Functions</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-amplify-pictorial-points-using-rings-of-radial-focus/"><u>In 2024, Amplify Pictorial Points Using Rings of Radial Focus</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-top-10-strategies-for-youtube-musicians-make-the-perfect-reaction-video/"><u>In 2024, Top 10 Strategies for YouTube Musicians Make the Perfect Reaction Video</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/your-own-youtube-opening-and-closing-graphics-for-2024/"><u>Make Your Own YouTube Opening & Closing Graphics for 2024</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-lost-messages-back-from-infinix-note-30-pro-by-fonelab-android-recover-messages/"><u>Simple ways to get lost messages back from Infinix Note 30 Pro</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/simplified-method-to-tag-chapters-on-youtube-clips/"><u>Simplified Method to Tag Chapters on YouTube Clips</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-nubia-z50s-pro-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Nubia Z50S Pro Phone Hassle-Free</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-channel-elevation-strategy-quickly-reach-your-10k-view-quota/"><u>[New] 2024 Approved Channel Elevation Strategy – Quickly Reach Your 10K View Quota</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-mastering-the-art-of-gamers-intros-top-12-yt-videographers-lists/"><u>[New] 2024 Approved Mastering the Art of Gamers' Intros Top 12 YT Videographers' Lists</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-share-your-vibes-with-free-unmarked-tiktok-videos-for-2024/"><u>[New] Share Your Vibes with Free, Unmarked TikTok Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rap-up-wisdom-for-media-masters/"><u>[New] Wrap-Up Wisdom for Media Masters</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-archive-powerpoint-into-video-repository/"><u>[Updated] 2024 Approved Archive PowerPoint Into Video Repository</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-from-idea-to-action-founding-your-consumer-product-assessment-site/"><u>[Updated] In 2024, From Idea to Action Founding Your Consumer Product Assessment Site</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-live-streaming-made-simple-mastering-ps4-captures-using-obs/"><u>[Updated] Live Streaming Made Simple Mastering PS4 Captures Using OBS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-business-beginnings-easier-than-ever-top-10-youtube-channel-ideas/"><u>2024 Approved Business Beginnings Easier Than Ever Top 10 YouTube Channel Ideas</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-guide-to-channel-description-perfection/"><u>2024 Approved The Ultimate Guide to Channel Description Perfection</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-top-8-software-linux-friendly-editing-tools/"><u>2024 Approved Top 8 Software Linux-Friendly Editing Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/boost-your-creative-edge-on-instagram-with-more-free-filters/"><u>Boost Your Creative Edge on Instagram with More Free Filters</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ructing-coherent-youtube-video-sequences/"><u>Constructing Coherent YouTube Video Sequences</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-itel-a70-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Itel A70 Data? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-easy-transition-from-local-to-global-stream-spotify-playlists-on-youtube/"><u>In 2024, Easy Transition From Local to Global Stream Spotify Playlists on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-wealth-accumulation-mr-beasts-journey/"><u>In 2024, Wealth Accumulation Mr. Beast's Journey</u></a></li>
+<li><a href="https://win11.techidaily.com/prime-windows-experience-select-top-optimizers-ranked/"><u>Prime Windows Experience: Select Top Optimizers Ranked</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-hidden-perils-of-substituting-human-therapists-with-artificial-intelligence/"><u>The Hidden Perils of Substituting Human Therapists with Artificial Intelligence</u></a></li>
 </ul></div>
 

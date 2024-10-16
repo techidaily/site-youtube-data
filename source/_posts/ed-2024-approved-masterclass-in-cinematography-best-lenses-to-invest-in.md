@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Masterclass in Cinematography  Best Lenses to Invest In\""
-date: 2024-10-07T16:01:48.091Z
-updated: 2024-10-09T16:04:39.946Z
+date: 2024-10-11T18:30:23.274Z
+updated: 2024-10-15T19:14:49.493Z
 tags:
   - ai video
   - ai youtube
@@ -40,10 +40,16 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 Before we get into the recommendations here is a little background information on lenses in general:
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Beginner's Guide to Aperture and F-Stops
@@ -63,13 +69,6 @@ Light passes through your lens’s aperture on its way to your camera’s sensor
 F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more information on f-stops and blurring your background read “The Best Bokeh Lens - How to Get the Blurred Background for YouTube Videos” and watch Tasha’s video.
 
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
 
@@ -96,10 +95,10 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
@@ -139,6 +138,19 @@ Recording **moving objects** from a distance requires you to have a lens that al
 
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
 A lot of zoom lenses do not have wide enough apertures to create blurred backgrounds, but this Tamron lens is an exception at f/2.8\. This low f-stop also means that it performs better in poor lighting conditions than a lot of other zoom lenses. If your shooting conditions change a lot – if you often change locations, for example – then it will be good to have a sturdy, well-built, zoom lens like the AF 17-mm that can be quickly adapted to new angles and distances.
@@ -152,10 +164,10 @@ If you are using a 4k camera to shoot your YouTube video, check out [best camera
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -179,20 +191,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-how-does-youtube-pay-you/"><u>[Updated] 2024 Approved How Does YouTube Pay You?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-sun-salutations-and-beyond-youtubes-premier-yoga-pages/"><u>[Updated] 2024 Approved Sun Salutations & Beyond – YouTube's Premier Yoga Pages</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-slide-into-style-instagrams-secrets-to-upside-down-visual-content-for-2024/"><u>[Updated] Slide Into Style Instagram's Secrets to Upside-Down Visual Content for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-youtube-shorts-content-strategy-for-success-for-2024/"><u>[Updated] YouTube Shorts Content Strategy for Success for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/filming-to-fame-discovering-the-top-10-ladies-on-youtube-for-2024/"><u>From Filming to Fame Discovering the Top 10 Ladies on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/video-to-music-youtube-to-mp3-on-macos-for-2024/"><u>From Video to Music YouTube to MP3 on MacOS for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/lines-to-erase-youtube-recordings-on-pc/"><u>Guidelines to Erase YouTube Recordings on PC</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-honor-100-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Honor 100? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-vivo-t2-pro-5g-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Vivo T2 Pro 5G to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-from-apple-iphone-15-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock From Apple iPhone 15?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-ispoofer-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Vivo X100? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Realme C33 2023? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-key-methods-to-incorporate-facebook-live-into-website-designs/"><u>In 2024, Key Methods to Incorporate Facebook Live Into Website Designs</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/king-youtubes-encrypted-video-secrets-for-2024/"><u>Unlocking YouTube's Encrypted Video Secrets for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/dvanced-filmmaking-techniques-selecting-top-notch-lenses/"><u>[New] Advanced Filmmaking Techniques Selecting Top-Notch Lenses</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-rhythmic-reckonings-top-disruptors-for-mobile-devices/"><u>[New] In 2024, Rhythmic Reckonings Top Disruptors for Mobile Devices</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-resonant-revelations-blending-visuals-with-vocal-tones-on-windows/"><u>[New] Resonant Revelations Blending Visuals with Vocal Tones on Windows</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-unveiling-the-comprehensiveness-of-obs-as-a-recorder/"><u>[New] Unveiling the Comprehensiveness of OBS as a Recorder</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-drive-participation-with-artisanal-story-inquiries-for-2024/"><u>[Updated] Drive Participation with Artisanal Story Inquiries for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-10-best-vr-videos-on-youtube-to-have-immersive-experience/"><u>2024 Approved 10 Best VR Videos on YouTube to Have Immersive Experience</u></a></li>
+<li><a href="https://program-issues.techidaily.com/five-proven-fixes-to-stop-pathfinder-wrath-of-the-righteous-from-crashing-down/"><u>Five Proven Fixes to Stop 'Pathfinder: Wrath of the Righteous' From Crashing Down</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/free-to-fortune-carryminatis-youtube-transformation-ajey-for-2024/"><u>From Free to Fortune CarryMinati’s YouTube Transformation (Ajey) for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-resolve-icloud-synchronization-errors-quickly-and-easily/"><u>How to Resolve iCloud Synchronization Errors Quickly and Easily</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-prime-capture-device-your-ally-in-youtube-ventures/"><u>In 2024, Prime Capture Device Your Ally in YouTube Ventures</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-art-of-media-manipulation-from-text-formats-to-srts/"><u>In 2024, The Art of Media Manipulation From Text Formats to SRTs</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-samsung-galaxy-s24-ultra-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Samsung Galaxy S24 Ultra Screen | Dr.fone</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/windows-server-2012wbadmin/"><u>Windows Server 2012におけるWBAdminを使ったバックアップ及び復元の操作ガイド</u></a></li>
 </ul></div>
 

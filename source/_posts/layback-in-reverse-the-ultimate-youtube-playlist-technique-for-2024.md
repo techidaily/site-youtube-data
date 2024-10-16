@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Playback in Reverse  The Ultimate YouTube Playlist Technique for 2024\""
-date: 2024-09-10T19:42:13.750Z
-updated: 2024-09-16T17:11:02.531Z
+date: 2024-10-09T20:20:46.197Z
+updated: 2024-10-15T19:02:34.692Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ Step 2:
 
 ![search irdium youtube extension](https://images.wondershare.com/filmora/article-images/searching-iridium-for-youtube-extension.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 3:
 
 * Open the extension page.
@@ -65,6 +72,13 @@ Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up 
 Step 5: Click the "Play All" option in the details section of the playlist and click the Iridium button on the right side of the screen. This will open a new tab with different settings for your playlist. Go to the Video tab, and under the "Playlist" header, toggle the button next to "Enable reverse playlist control" to change the settings.
 
 ![set iridim for youtube](https://images.wondershare.com/filmora/article-images/setting-iridium-for-youtube-to-reverse-playlist.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 That's about it. You will now be able to watch a YouTube playlist in reverse order.
 
@@ -82,6 +96,13 @@ Step 2: In the next step, open a new tab and visit the ["Playlist.Tools"](https:
 
 Step 3: Finally, click the "Sort" icon and select descending order to reverse your playlist. You can always return to the original sequence by clicking the "Original Sequence" option in the top right corner of the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Changing the Ordering in Settings
 
 If you are a content creator on YouTube and want to reverse the videos' order in a playlist on your channel, do the following steps in sequence:
@@ -95,10 +116,10 @@ You can also utilize the "Sort" option to reverse the playlist. To do so, click 
 ![reverse youtube playlist order](https://images.wondershare.com/filmora/article-images/sorting-the-playlist-order-to-reverse-it.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## A Bonus Tip for YouTube Creator: Make Your Own YouTube Channel Trailer
@@ -119,24 +140,18 @@ Step 3: Scroll down on your channel's dashboard, select a video, and click the t
 
 ![youtube playlist reverse order](https://images.wondershare.com/filmora/article-images/adding-playlist-to-private-playlist-to-reverse-order.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Next, provide a name, set the privacy settings to "Private," and click "Create."
 
 Step 4: In the final step, head to the Playlist tab, click "View Full Playlist" to open the new playlist, and click the "three dots" in the details area on the left. Next, select "Playlist Settings" and toggle the button next to "Add new videos to top of playlist" to enable it.
 
 You can now add more videos to your playlist, and each one will be added to the top. This method helps you arrange the YouTube playlist as you desire.
-
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -163,5 +178,26 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-seamless-extraction-top-8-fb-movies/"><u>[New] 2024 Approved Seamless Extraction Top 8 FB Movies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/harting-the-course-for-youtube-music-uploads-for-2024/"><u>[New] Charting the Course for YouTube Music Uploads for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-8-unbeatable-zero-price-software-choices-for-online-media-makers/"><u>[New] In 2024, 8 Unbeatable Zero-Price Software Choices For Online Media Makers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-instagram-success-how-to-make-your-videos-captivate-audiences/"><u>[New] In 2024, Instagram Success How to Make Your Videos Captivate Audiences</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-easier-than-ever-top-9-uncomplicated-no-cost-video-tools-for-you/"><u>[Updated] 2024 Approved Easier Than Ever Top 9 Uncomplicated, No-Cost Video Tools for You</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-revolutionizing-healthcare-marketing-via-social-networks/"><u>[Updated] Revolutionizing Healthcare Marketing via Social Networks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-rhythmic-rarities-assembling-the-best-dj-video-samples/"><u>[Updated] Rhythmic Rarities Assembling the Best DJ Video Samples</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-ultimate-live-broadcast-guide-software-and-hardware-recommendations-for-2024/"><u>[Updated] Ultimate Live Broadcast Guide Software & Hardware Recommendations for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-a-new-era-of-creativity-pinpointing-the-best-10-budget-friendly-video-art-communities-on-youtube/"><u>2024 Approved A New Era of Creativity Pinpointing the Best 10 Budget-Friendly Video Art Communities on YouTube</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-decoding-srt-to-subcap-for-filmmakers/"><u>2024 Approved Decoding SRT to SUBCAP for Filmmakers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-premium-extensions-catalog-ae-edition/"><u>2024 Approved Premium Extensions Catalog AE Edition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/prehensive-look-at-youtubes-adsense-mechanisms-for-2024/"><u>A Comprehensive Look at YouTube's AdSense Mechanisms for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/viewers-essentials-explained/"><u>ASMR Viewers' Essentials Explained</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/vision-to-reality-taking-control-of-your-lyric-videos-with-lyric-video-maker-for-2024/"><u>From Vision to Reality Taking Control of Your Lyric Videos with Lyric Video Maker for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-oppo-reno-8t-5g-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Oppo Reno 8T 5G Safely | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/memo-menagerie-the-ultimate-list-of-meme-generators/"><u>Memo Menagerie The Ultimate List of Meme Generators</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/podcast-prominence-with-powerful-seo-insights-and-strategies-for-2024/"><u>Podcast Prominence with Powerful SEO Insights and Strategies for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ultimate-guide-solving-the-persistent-problem-of-your-devices-usb-keeping-disconnected/"><u>Ultimate Guide: Solving the Persistent Problem of Your Device's USB Keeping Disconnected</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/video-to-image-easily-separate-and-save-pics-from-movies-windows-10/"><u>Video to Image Easily Separate and Save Pics From Movies (Windows 10)</u></a></li>
+</ul></div>
 

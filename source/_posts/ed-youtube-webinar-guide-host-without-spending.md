@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] YouTube Webinar Guide  Host Without Spending\""
-date: 2024-09-11T23:15:36.883Z
-updated: 2024-09-16T21:01:23.015Z
+date: 2024-10-14T17:34:54.343Z
+updated: 2024-10-15T22:47:17.060Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,19 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hosting a Webinar for Free
 
 The world's largest video sharing platform also features broadcasting options that enable its users to schedule events and thus host webinars free of charge. Previously known as the Google Hangouts on Air, the YouTube Live feature is fairly simple to set up, but before you start your first webinar you will need to choose a landing page and a chatbox. If you already have a website you can simply copy and paste the embed link and create a landing page for your webinar, or you can use landing pages software products such as [LeadPages](https://www.leadpages.net/) or [Unbounce](https://unbounce.com/) if you don't have your own online domain. For setting up chatboxes for your webinars we recommend using [Chatroll](https://chatroll.com/) or [RumbleTalk](https://www.rumbletalk.com/) platforms, although you'll have to pay a fee if you choose to chat with your audience using these computer programs. So here's how you can host your first webinar on YouTube for free.
@@ -82,6 +95,13 @@ Hit the Go Live Now button, when you are ready to start your first webinar and e
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -101,12 +121,22 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-content-creators-den/"><u>[New] In 2024, Content Creator's Den</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-masterclass-emulation-best-ps3-clones-on-your-computer/"><u>[New] Masterclass Emulation Best PS3 Clones on Your Computer</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-top-10-must-knows-before-elevating-systems/"><u>[New] Top 10 Must-Knows Before Elevating Systems</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-how-to-make-a-youtube-intro-with-best-youtube-intro-makers/"><u>[Updated] How to Make a YouTube Intro With Best YouTube Intro Makers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-ideal-screen-recorder-picks-for-digital-educators/"><u>[Updated] In 2024, Ideal Screen Recorder Picks for Digital Educators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-key-to-flawless-shots-using-a-tripod-correctly-in-video-blogging/"><u>[Updated] In 2024, The Key to Flawless Shots Using a Tripod Correctly in Video Blogging</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleashing-your-musical-voice-a-compree-play-by-play-guide-for-youtube-playlist-crafting/"><u>[Updated] Unleashing Your Musical Voice A Compree Play-by-Play Guide for YouTube Playlist Crafting</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-a-new-take-on-favorite-movies-7-alternatives/"><u>2024 Approved A New Take on Favorite Movies - #7 Alternatives</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-can-i-play-mov-files-on-motorola-moto-g73-5g-by-aiseesoft-video-converter-play-mov-on-android/"><u>How can I play .mov files on Motorola Moto G73 5G ?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-universal-unlock-pattern-for-vivo-y78-5g-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Vivo Y78 5G</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/intersecting-experiences-dissecting-vr-augmented-and-mixed-reality/"><u>Intersecting Experiences Dissecting VR, Augmented & Mixed Reality</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ng-financial-depths-an-analysis-of-mr-beasts-wealth-for-2024/"><u>Probing Financial Depths An Analysis of Mr. Beast's Wealth for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/red-thumbnails-elevating-your-video-visibility-on-youtube/"><u>Tailored Thumbnails Elevating Your Video Visibility on YouTube</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-rated-batch-processing-video-compression-tools-best-options-available/"><u>Top-Rated Batch Processing Video Compression Tools: Best Options Available</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-to-do-if-your-iphone-7-plus-has-bad-esn-or-blacklisted-imei-by-drfone-ios/"><u>What to do if your iPhone 7 Plus has bad ESN or blacklisted IMEI?</u></a></li>
+</ul></div>
 

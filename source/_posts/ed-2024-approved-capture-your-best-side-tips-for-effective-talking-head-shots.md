@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Capture Your Best Side  Tips for Effective Talking-Head Shots\""
-date: 2024-10-02T16:24:06.191Z
-updated: 2024-10-09T16:07:21.712Z
+date: 2024-10-08T18:18:02.127Z
+updated: 2024-10-15T23:05:15.130Z
 tags:
   - ai video
   - ai youtube
@@ -43,19 +43,19 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -94,13 +94,6 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4.  Long Teleprompter Vlog Set-Up
 
 If you want to read over a script but still make it appear like you’re looking straight into the camera, you’ll need to use a long teleprompter vlog set-up.
@@ -123,13 +116,32 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -153,19 +165,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-game-modders-and-tutorial-content-leaders/"><u>[New] In 2024, Game Modders & Tutorial Content Leaders</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nified-media-playback-on-youtube-flv-files-tutorial/"><u>[New] Unified Media Playback on YouTube FLV Files Tutorial</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-sourav-joshis-guide-to-earning/"><u>[Updated] In 2024, Sourav Joshi's Guide to Earning</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-step-into-editing-excellence-with-youtube-studio-toolset/"><u>[Updated] In 2024, Step Into Editing Excellence with YouTube Studio Toolset</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-annual-roundup-top-no-money-video-editing-software-reviewed/"><u>2024 Approved Annual Roundup Top No-Money Video Editing Software Reviewed</u></a></li>
-<li><a href="https://fox-that.techidaily.com/4-ways-to-fix-standby-not-working-on-your-iphone/"><u>4 Ways to Fix StandBy Not Working on Your iPhone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/amplify-visual-narratives-with-audio-in-premiere-pro/"><u>Amplify Visual Narratives with Audio in Premiere Pro</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/dive-into-gaming-tecno-x-geekoms-liquid-cooled-case-with-intel-core-i9-and-nvidia-rtx-gpu/"><u>Dive Into Gaming: Tecno X Geekom's Liquid-Cooled Case with Intel Core I9 & NVIDIA RTX GPU</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/into-the-art-of-asmr-recording-a-comprehensive-overview/"><u>Dive Into the Art of ASMR Recording – A Comprehensive Overview</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/enhancing-your-memories-bank-with-snapchats-images/"><u>Enhancing Your Memories Bank with Snapchat's Images</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-restore-hp-laptop-speakers-complete-guide-to-fixing-silent-screens/"><u>How To Restore HP Laptop Speakers: Complete Guide to Fixing Silent Screens</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-honor-100-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Honor 100 Pro to iPad | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Samsung Galaxy S23 FE | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unveiling-the-best-pc-gear-a-deep-dive-with-toms-hardware-guides/"><u>Unveiling the Best PC Gear: A Deep Dive with Tom's Hardware Guides</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-clear-choice-between-projectors-and-televisions-for-4k-quality/"><u>[New] 2024 Approved The Clear Choice Between Projectors and Televisions for 4K Quality</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nhance-video-magic-find-your-favorite-mobile-edit-apps/"><u>[New] Enhance Video Magic Find Your Favorite Mobile Edit Apps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ont-selection-wonders-enhancing-youtube-video-thumbnails/"><u>[New] Font Selection Wonders Enhancing YouTube Video Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-avoid-blandness-optimize-your-thumbnail-with-20-fonts/"><u>[New] In 2024, Avoid Blandness - Optimize Your Thumbnail with 20 Fonts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eaderboards-unveiled-1-26-in-youtube-snacking-for-2024/"><u>[New] Leaderboards Unveiled #1, #2...#6 in YouTube Snacking for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-breaking-into-youtubes-top-100-with-effective-seo/"><u>[Updated] 2024 Approved Breaking Into YouTube's Top 100 With Effective SEO</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-a-guide-to-perfect-portraits-with-background-blur/"><u>[Updated] A Guide to Perfect Portraits with Background Blur</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-amass-1000-visionary-supporters-fast-track-style/"><u>[Updated] Amass 1,000 Visionary Supporters Fast-Track Style</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-elevate-your-content-incorporating-exact-timestamps-in-videos/"><u>[Updated] In 2024, Elevate Your Content Incorporating Exact Timestamps in Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-skyrocket-your-video-speed-expert-tips-for-faster-render-and-upload/"><u>[Updated] In 2024, Skyrocket Your Video Speed Expert Tips for Faster Render & Upload</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-streamlining-your-youtube-presence-with-best-video-formats-for-2024/"><u>[Updated] Streamlining Your YouTube Presence with Best Video Formats for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-unlock-iphone-11-pro-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>3 Ways to Unlock iPhone 11 Pro without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-and-comedy-collide-assessing-chatgpts-capacity-to-entertain-and-elicit-giggles/"><u>AI and Comedy Collide: Assessing ChatGPT's Capacity to Entertain and Elicit Giggles</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/essential-windows-shortcuts-to-enhance-efficiency/"><u>Essential Windows Shortcuts to Enhance Efficiency</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/fixing-non-functional-airdrop-between-iphones-ipads-and-macs-for-2024/"><u>Fixing Non-Functional AirDrop Between iPhones, iPads & Macs for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-step-into-the-rhythm-of-social-video-editing-with-music/"><u>In 2024, Step Into the Rhythm of Social Video Editing with Music</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nt-adjustment-match-youtube-to-mac-aspects-for-2024/"><u>Instant Adjustment Match YouTube to Mac Aspects for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-the-destiny-2-centipede-glitch-solution-found/"><u>Overcoming the Destiny 2 Centipede Glitch - Solution Found</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/be-shorts-success-top-10-steps-to-stand-out-for-2024/"><u>Youtube Shorts Success - Top 10 Steps to Stand Out for 2024</u></a></li>
 </ul></div>
 

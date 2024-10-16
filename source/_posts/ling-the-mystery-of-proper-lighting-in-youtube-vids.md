@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Mystery of Proper Lighting in YouTube Vids"
-date: 2024-10-02T16:14:12.715Z
-updated: 2024-10-09T16:15:59.241Z
+date: 2024-10-12T21:53:14.501Z
+updated: 2024-10-15T18:43:41.412Z
 tags:
   - ai video
   - ai youtube
@@ -44,13 +44,6 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1.  Window Lighting
 
 The best thing about window lighting is that it’s free. The worst thing about it is that it’s uncontrollable. The amount of light you get in your video can vary with all the changes in the weather.
@@ -61,6 +54,13 @@ Window lighting for me was especially difficult to work with because I live in a
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. Home Lighting
 
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
@@ -68,16 +68,10 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
@@ -90,22 +84,29 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -126,13 +127,6 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -157,20 +151,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/rom-mac-studio-to-youtube-stream-imovie-video-upload-guide/"><u>[New] From Mac Studio to YouTube Stream IMovie Video Upload Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-essential-asmr-apps-android-and-ios-edition/"><u>[New] In 2024, Essential ASMR Apps Android & iOS Edition</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-top-10-premier-off-line-ipad-apps-for-pure-gaming-bliss/"><u>[New] In 2024, Top 10 Premier Off-Line iPad Apps for Pure Gaming Bliss</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-ultimate-guide-to-polishing-videos-for-youtube-via-windows-pc-for-2024/"><u>[New] The Ultimate Guide to Polishing Videos for YouTube via Windows PC for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-compreenas-comprehensive-walkthrough-for-creating-a-unified-skype-chat-room-accessible-by-users-of-different-operating-systems-for-2024/"><u>[Updated] Compreenas Comprehensive Walkthrough for Creating a Unified Skype Chat Room Accessible by Users of Different Operating Systems for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-effortless-estimation-of-digital-gains/"><u>[Updated] In 2024, Effortless Estimation of Digital Gains</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-mastering-the-art-of-phantoms-time-recapture-for-2024/"><u>[Updated] Mastering the Art of Phantom's Time Recapture for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-subscribe-like-a-pro-true-or-false/"><u>[Updated] Subscribe Like a Pro True or False?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-craft-a-memorable-first-snap-your-shorts-thumbnail-blueprint/"><u>2024 Approved Craft a Memorable First Snap Your Shorts' Thumbnail Blueprint</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/enhance-your-tweet-game-with-top-video-converters/"><u>Enhance Your Tweet Game with Top Video Converters</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/tial-8-tools-linux-based-edits-software-for-2024/"><u>Essential 8 Tools Linux-Based Edits Software for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/free-speech-analysis-and-command-execution-for-2024/"><u>Free Speech Analysis & Command Execution for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Tecno Pop 8 | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-poco-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Poco Without PUK Codes</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-perfecting-the-pause-how-to-craft-exceptional-slow-motion-videos/"><u>In 2024, Perfecting the Pause How to Craft Exceptional Slow Motion Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-cutting-edge-capture-tips-for-professional-sound-recording/"><u>[New] In 2024, Cutting Edge Capture Tips for Professional Sound Recording</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-smudge-solution-blurring-visions-in-video-content/"><u>[New] In 2024, The Smudge Solution Blurring Visions in Video Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ust-watch-asmr-video-gems-online-for-2024/"><u>[New] Must-Watch ASMR Video Gems Online for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-your-iphone-selfie-upgrade-choose-from-8-stars/"><u>[New] Your iPhone Selfie Upgrade - Choose From #8 Stars</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-behind-the-screen-essential-post-vidcon-gatherings/"><u>[Updated] 2024 Approved Behind the Screen Essential Post-VidCon Gatherings</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-cutting-through-limitations-with-top-video-editor-alternatives/"><u>[Updated] 2024 Approved Cutting Through Limitations with Top Video Editor Alternatives</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-sociostreamer-convert-tweets-to-videos/"><u>[Updated] SocioStreamer Convert Tweets to Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtube-streaming-made-simple-with-obs-guidebook-for-2024/"><u>[Updated] Youtube Streaming Made Simple with OBS Guidebook for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-illuminating-iphones-in-the-dark-photography-tips/"><u>2024 Approved Illuminating iPhones in the Dark Photography Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-best-8-free-editing-programs-to-streamline-your-youtube-projects/"><u>2024 Approved The Best 8 Free Editing Programs to Streamline Your YouTube Projects</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/four-pillars-of-mobile-video-acquisition-igtv-edition-for-2024/"><u>Four Pillars of Mobile Video Acquisition IGTV Edition for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-10-free-premium-quality-photo-collage-ios-apps/"><u>In 2024, Top 10 Free, Premium Quality Photo Collage iOS Apps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-upgrading-your-shoot-must-have-film-tech-for-creators/"><u>In 2024, Upgrading Your Shoot Must-Have Film Tech for Creators</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-xiaomi-redmi-note-12-4g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Xiaomi Redmi Note 12 4G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-itel-p55t-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Itel P55T Screen | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/step-by-step-guide-transforming-mpg-videos-into-mp4-format-using-vlc-media-player/"><u>Step-by-Step Guide: Transforming MPG Videos Into MP4 Format Using VLC Media Player</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-to-restore-visual-clarity-to-youtube-videos/"><u>Steps to Restore Visual Clarity to YouTube Videos</u></a></li>
 </ul></div>
 

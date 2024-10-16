@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Masterclass in Cinematography  Best Lenses to Invest In\""
-date: 2024-09-13T23:57:43.671Z
-updated: 2024-09-17T04:15:57.604Z
+date: 2024-10-09T22:54:12.270Z
+updated: 2024-10-15T18:21:35.806Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,13 @@ F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more informa
 
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Types of Camera Lenses
 
 The visual aspect of a video may not be the only thing you'll have to dedicate special attention to while recording your YouTube video, but it is surely one of the most important factors of the video production process. A lens you are using will largely contribute to the aesthetics of the video. That's why you need to know which type of lens will deliver the best results when shooting different types of scenes. Here are some of the most common types of lenses you'll encounter.
@@ -82,10 +89,10 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
@@ -126,10 +133,10 @@ Recording **moving objects** from a distance requires you to have a lens that al
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
@@ -143,6 +150,13 @@ All Sony's APS-C format E mount cameras are compatible with this multi-purpose l
 If you are using a 4k camera to shoot your YouTube video, check out [best camera lens for 4k professional production.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -163,5 +177,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/nhance-click-through-rates-with-good-thumbnails/"><u>[New] Enhance Click-Through Rates with Good Thumbnails</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-hottest-youtube-music-playback-responses-23/"><u>[New] In 2024, Hottest YouTube Music Playback Responses '23</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-ignite-your-startups-growth-with-these-top-social-media-tips/"><u>[New] In 2024, Ignite Your Startup's Growth with These Top Social Media Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tream-like-a-pro-on-youtube-best-webcams-reviewed/"><u>[New] Stream Like a Pro on YouTube Best Webcams Reviewed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ransform-your-content-to-stardom-studio-guide/"><u>[New] Transform Your Content to Stardom Studio Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-beyond-the-screen-shaping-perceptions-on-instagram-through-captions/"><u>[Updated] 2024 Approved Beyond the Screen - Shaping Perceptions on Instagram Through Captions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-freedom-from-popups-discover-the-top-7-android-adblock-apps/"><u>[Updated] Freedom From Popups? Discover the Top 7 Android AdBlock Apps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-transition-tactics-setting-up-personalbusiness-youtube-channels-on-smartphones/"><u>[Updated] In 2024, Transition Tactics Setting Up Personal/Business YouTube Channels on Smartphones</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-quickcapturepro-the-definitive-guide-to-windows-snaps-for-2024/"><u>[Updated] QuickCapturePro The Definitive Guide to Windows Snaps for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/discord-voice-call-troubles-diagnosing-and-repairing-common-issues/"><u>Discord Voice Call Troubles: Diagnosing and Repairing Common Issues</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-trick-your-phone-into-showing-a-false-geographic-position-safely-and-efficiently/"><u>How To Trick Your Phone Into Showing a False Geographic Position Safely and Efficiently</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-vivo-y02t-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Vivo Y02T?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-redefining-engagement-virtual-reality-in-education/"><u>In 2024, Redefining Engagement Virtual Reality in Education</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-visualize-drone-flights-complimentary-dji-miniair-luts-trial/"><u>In 2024, Visualize Drone Flights – Complimentary DJI Mini/Air LUTS Trial</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722971859905-installing-the-latest-samsung-2-usb-drive-for-windows-free-driver-downloads/"><u>Installing the Latest Samsung Ⅿ.2 USB Drive for Windows - Free Driver Downloads</u></a></li>
+</ul></div>
 

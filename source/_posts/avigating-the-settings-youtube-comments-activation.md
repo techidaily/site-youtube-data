@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Navigating the Settings  YouTube Comments Activation\""
-date: 2024-10-03T16:27:02.866Z
-updated: 2024-10-09T16:15:24.175Z
+date: 2024-10-08T23:11:27.659Z
+updated: 2024-10-15T23:51:53.682Z
 tags:
   - ai video
   - ai youtube
@@ -116,19 +116,19 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -148,10 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -169,10 +169,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -196,22 +196,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ccessible-visual-aids-for-youtube-videos/"><u>[New] Accessible Visual Aids for YouTube Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/xercise-innovations-6-youtube-ideas-for-movement-focused-viewers-for-2024/"><u>[New] Exercise Innovations 6 YouTube Ideas for Movement-Focused Viewers for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-essential-inexpensive-vlogging-tools-listed/"><u>[New] In 2024, Essential, Inexpensive Vlogging Tools Listed</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-ultimate-tactics-to-record-lol-clashes/"><u>[New] Ultimate Tactics to Record LOL Clashes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nleash-the-potential-of-your-video-with-best-thumbnail-fonts/"><u>[New] Unleash the Potential of Your Video with Best Thumbnail Fonts</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-perfect-timekeeping-a-guide-to-adding-timestamps-in-youtube-links/"><u>[Updated] 2024 Approved Perfect Timekeeping A Guide to Adding Timestamps in YouTube Links</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-elevate-video-conferencing-skills-google-meet-aesthetics-guide/"><u>[Updated] Elevate Video Conferencing Skills Google Meet Aesthetics Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/emium-yoga-channels-for-ultimate-fitness-journey/"><u>10 Premium Yoga Channels for Ultimate Fitness Journey</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-diy-gif-creation-extracting-motion-from-youtube-videos/"><u>2024 Approved DIY GIF Creation Extracting Motion From YouTube Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-gaining-exposure-cost-effective-promotion-hacks-for-youtubers/"><u>2024 Approved Gaining Exposure Cost-Effective Promotion Hacks for YouTubers</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-guide-to-generating-speech-in-different-languages-with-the-best-tools/"><u>2024 Approved Guide to Generating Speech in Different Languages With the Best Tools</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-itel-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Itel</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-establish-your-virtual-identity-in-the-meta-oculus-questquest-2-realm/"><u>How To Establish Your Virtual Identity in the Meta (Oculus) Quest/Quest 2 Realm</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/how-to-save-and-archive-google-voice-chats-for-2024/"><u>How to Save and Archive Google Voice Chats for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-exclusive-gathering-of-top-tier-no-fee-vectr-and-illustration-sources/"><u>In 2024, Exclusive Gathering of Top-Tier No-Fee Vectr and Illustration Sources</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-8-without-swiping-up-6-ways-drfone-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 8 Without Swiping Up? 6 Ways | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-5-non-root-auto-clicker-apps-on-android-devices/"><u>Top 5 Non-Root Auto Clicker Apps on Android Devices</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-reimagining-cityscapes-the-integration-of-ecosystem-services/"><u>[New] 2024 Approved Reimagining Cityscapes The Integration of Ecosystem Services</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-tactics-for-making-youtube-videos-go-viral/"><u>[Updated] 2024 Approved Tactics for Making YouTube Videos Go Viral</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unveiling-the-secrets-of-successful-youtube-videos/"><u>[Updated] Unveiling the Secrets of Successful YouTube Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-who-takes-the-crown-in-action-camera-warfare/"><u>2024 Approved Who Takes the Crown in Action Camera Warfare?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-apple-iphone-11-pro-icloud-activation-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing Apple iPhone 11 Pro iCloud Activation Lock</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nce-retention-the-key-to-a-great-youtube-conclusion/"><u>Audience Retention The Key to a Great YouTube Conclusion</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/dicas-simples-para-criar-uma-legenda-perfeita-para-sua-video-producao/"><u>Dicas Simples Para Criar Uma Legenda Perfeita Para Sua Video Produção</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ting-the-cold-with-five-cozy-cinematic-elements-for-2024/"><u>Elevating the Cold with Five Cozy Cinematic Elements for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-video-editor-for-2024/"><u>New What Is an AI Video Editor for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/transforming-photo-genders-on-instagram-snapchat-and-facebook-for-2024/"><u>Transforming Photo Genders on Instagram, Snapchat & Facebook for 2024</u></a></li>
 </ul></div>
 

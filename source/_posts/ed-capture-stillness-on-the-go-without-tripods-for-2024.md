@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Capture Stillness on the Go without Tripods for 2024"
-date: 2024-09-09T21:54:45.494Z
-updated: 2024-09-16T17:05:57.779Z
+date: 2024-10-12T16:18:09.199Z
+updated: 2024-10-15T21:55:35.135Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
@@ -81,10 +88,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -96,10 +103,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -124,6 +131,13 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -143,5 +157,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/igh-performance-7-cameras-for-cutting-edge-vlogging-tech/"><u>[New] High-Performance 7 Cameras For Cutting-Edge Vlogging Tech</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-ace-list-of-low-cost-youtube-caption-tools/"><u>[New] In 2024, Ace List of Low-Cost YouTube Caption Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-maximize-impact-with-customized-youtube-end-screen-templates/"><u>[New] In 2024, Maximize Impact with Customized YouTube End Screen Templates</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-premiere-pro-exposure-corrections-to-fix-overlit-iphone-videos-for-2024/"><u>[New] Premiere Pro Exposure Corrections to Fix Overlit iPhone Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-next-generation-of-video-communities-post-youtube-for-2024/"><u>[New] The Next Generation of Video Communities Post-YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-counteract-fake-views-boosting-genuine-audience-size/"><u>[Updated] 2024 Approved Counteract Fake Views Boosting Genuine Audience Size</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unlocking-6-hidden-sources-for-custom-youtube-symbols/"><u>[Updated] 2024 Approved Unlocking 6 Hidden Sources for Custom YouTube Symbols</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-chromatic-brilliance-for-video-enthusiasts/"><u>[Updated] Chromatic Brilliance for Video Enthusiasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-live-media-masters-choice-vmix-vs-wirecast-for-professionals/"><u>[Updated] In 2024, Live Media Masters Choice VMix Vs. Wirecast for Professionals</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-essential-mac-capturing-apps-beyond-the-traditional-bandicam/"><u>2024 Approved Essential Mac Capturing Apps Beyond the Traditional Bandicam</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-hilarious-guide-crafting-memes-with-ease/"><u>2024 Approved Hilarious Guide Crafting Memes with Ease</u></a></li>
+<li><a href="https://techtrends.techidaily.com/access-free-literature-the-ultimate-list-of-17-book-download-sites/"><u>Access Free Literature: The Ultimate List of 17 Book Download Sites</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eling-success-emulating-top-video-bloggers-techniques-for-2024/"><u>Channeling Success Emulating Top Video Bloggers' Techniques for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rm-monetization-accuracy-essential-steps-for-your-yt-channels-for-2024/"><u>Confirm Monetization Accuracy Essential Steps for Your YT Channels for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elite-cards-for-uhd-video-creation/"><u>Elite Cards for UHD Video Creation</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-youtube-tvs-features-a-beginners-guide-for-2024/"><u>Mastering YouTube TV's Features A Beginner's Guide for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/uncomplicated-gameplay-saving-in-warframe-for-2024/"><u>Uncomplicated Gameplay Saving in Warframe for 2024</u></a></li>
+</ul></div>
 

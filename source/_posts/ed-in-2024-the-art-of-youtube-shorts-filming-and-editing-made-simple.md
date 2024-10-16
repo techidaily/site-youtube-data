@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Art of YouTube Shorts  Filming and Editing Made Simple\""
-date: 2024-10-02T16:04:57.597Z
-updated: 2024-10-09T16:07:40.032Z
+date: 2024-10-11T20:41:46.649Z
+updated: 2024-10-15T22:27:51.060Z
 tags:
   - ai video
   - ai youtube
@@ -44,15 +44,22 @@ That said, in the following sections you will learn everything about the **YouTu
 A short and quick answer to the question is, **YouTube Shorts** is a Tik Tok competitor developed by Google and can be accessed via the YouTube app on an Android or iOS device. In order to use the **YouTube Shorts app**, all you need to do is, sign in to your YouTube account on the YouTube app, and you are good to go.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. YouTube Shorts Release History
 
 At the time of this writing, **YouTube Shorts** is still in the Beta phase, and there is a lot more that the developers at Google have yet to explore and discover. However, for now, the fully functional variant of the program is available only for users in India on Android and iOS platforms.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. YouTube Shorts Target Audience
 
@@ -69,13 +76,6 @@ The type of contents that the viewers expect to see as YouTube Shorts could incl
 
 In addition to the above, a few other categories could be People and Places, Music, Domestic and Wild Animals, Education, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. YouTube Shorts Content Requirements
 
 While creating **YouTube Shorts**, there are certain guidelines that must be followed. These points include:
@@ -91,10 +91,10 @@ Certain things that you must keep in mind while creating **YouTube Shorts** incl
 * The number of views and the total playtime of the **YouTube Shorts** videos DO affect your YouTube channel statistics
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Where People Can Find YouTube Shorts
@@ -109,19 +109,6 @@ You can follow the instructions given below to make and [upload a YouTube Shorts
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Launch the YouTube app on your Android or iOS smart device (Samsung Galaxy Note 10+ is used here for demonstration), make sure that you are signed in to your Google account, tap the **+** (**Add**) button present at the bottom of the screen, tap **Create a Short** on the popup box that appears next, tap the **Record** button on the next window to start the recording. Once you are done, tap the **Stop** button to stop the recording.
 
 **Step 2: Edit the Video**
@@ -131,10 +118,10 @@ Tap **Music** from the bottom of the screen to add background music to the video
 ![ Edit YouTube Shorts video - Add text and music](https://images.wondershare.com/filmora/article-images/edit-youtube-short-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Likewise, you can tap **Text** to add captions as well. As for the text type, the app offers various formatting options such as alignment (left, center, and right), text highlighter, font changer, and even color selector. Further, the Speed and Timer icons at the top-right area allow you to manage the playback speed anywhere between 0.3x to 3x, and automatically stop the recording after the set time limit respectively. Once everything is set up, tap **NEXT** from the top-right corner to proceed to the next step.
@@ -151,13 +138,6 @@ Enter a title for the video in the **Title** field. Make sure to include **#shor
 
 ![ Upload YouTube Shorts video ](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Part 3: How to Create a Vertical YouTube Shorts Video in Filmora?**
 
 The **YouTube Shorts app** is pretty convenient to access and use alright. However, it doesn’t allow you to fine edit the videos. The app doesn’t even have many filtering options such as Effects, Elements, etc. to make your videos more engaging.
@@ -171,6 +151,13 @@ When talking about Wondershare Filmora, it is a production and post-production a
 For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -188,6 +175,19 @@ Launch Wondershare Filmora on your Windows or Mac PC (a Windows 10 computer is u
 
 ![ Upload YouTube Shorts video ](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Next, hover the mouse over the clip in the **Media** box, click the **+** button that appears at the bottom-right corner of the thumbnail, and in the resolution confirmation box that comes up next, click the button under the **Match to Media** section to add the video in the correct orientation to the Timeline at the bottom.
 
 **Step 2: Edit the Video**
@@ -195,13 +195,6 @@ Next, hover the mouse over the clip in the **Media** box, click the **+** button
 Select the clip in the Timeline, and use the **Split**, **Crop**, **Speed**, etc. buttons above the Timeline itself to remove the unwanted portions from the clip, manage its playback speed, and do other fine-tuning tasks.
 
 ![ Edit YouTube Shorts video in Filmora - split/crop/change speed ](https://images.wondershare.com/filmora/article-images/split-crop-youtube-shorts-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can even click the **Edit** button, and use the available editing features like **Motion Tracking** and **Stabilization** to add text or objects to a moving body in the video and stabilize the clip if the camera shook during the recording session respectively. Click **OK** to save the changes when done.
 
@@ -213,18 +206,24 @@ You can even click the **Edit** button, and use the available editing features l
 
 ![Add Title to YouTube Shorts video with Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-add-title.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Click **Titles** from the standard toolbox at the top, choose your preferred text category from the list in the left, hover the mouse over a decent preset in the right window, and click the **+** button at the bottom-right corner of the thumbnail to add the preset on top of the media track in the Timeline. Next, you can double-click the preset track in the Timeline to modify the text and make granular modifications to it as needed. Click **OK** to save the changes.
 
 Similarly, you can select the **Effects** and **Elements** tools to add effects and elements to the video as needed. To add background music, you can go to the **Audio** tool, and pick your preferred preset from the available options. A custom music can be added by going to the **Media** tool, and importing an audio file from your PC using the method explained in **Step 1**.
 
 ![Add effects to YouTube Shorts video with Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-add-effects.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 After this, optionally, you can go to **Split Screen** from the standard toolbar at the top, and use your preferred Split Screen preset to club multiple video clips into one screen. In Filmora, you can add as many as 6 screens in a video.
 
@@ -245,6 +244,19 @@ For macOS 10.12 or later
 Once everything is set up, click **EXPORT** from the top of the window, go to the **Local** tab on the **Export** window, select **MP4** from the formats list in the left, give a name and configure other settings from the available options in the right, and click **EXPORT** from the bottom-right corner to create a **YouTube Shorts** video. Once the clip is generated, you can upload the video to YouTube using **#Shorts** in the title or description to publish the video under the **YouTube Shorts** section.
 
 ![ Edit YouTube Shorts video in Filmora- export ](https://images.wondershare.com/filmora/article-images/export-youtube-shorts-video-in-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### FAQs About YouTube Shorts
 
@@ -295,16 +307,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-essential-aspects-ignored-by-instagram-story-observers/"><u>[New] Essential Aspects Ignored by Instagram Story Observers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nsight-into-youtubes-latest-income-and-rewards/"><u>[New] Insight Into YouTube's Latest Income and Rewards</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-embark-on-your-video-vision-start-your-youtube-channel-for-2024/"><u>[Updated] Embark on Your Video Vision Start Your YouTube Channel for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/youtube-to-excitement-easy-guide-to-making-animated-gifs/"><u>From YouTube to Excitement Easy Guide to Making Animated GIFS</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-on-apple-iphone-12-smoothly-by-drfone-ios/"><u>How To Remove iCloud On Apple iPhone 12 Smoothly</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-tecno-phantom-v-flip-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Tecno Phantom V Flip by Name | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-xiaomi-redmi-12-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Xiaomi Redmi 12 to iPhone | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/integrating-virtual-boards-into-remote-discussions-iphoneipadandroid-and-computers/"><u>Integrating Virtual Boards Into Remote Discussions IPhone/iPad/Android and Computers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ring-awesome-valorant-thumbnails-for-youtube-content/"><u>Mastering Awesome Valorant Thumbnails for YouTube Content</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolve-your-pubg-launch-problems-expert-tips-for-the-2024-update/"><u>Resolve Your PUBG Launch Problems - Expert Tips for the 2024 Update</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/roku-meets-ingenuity-the-brain-behind-tcls-sleek-32-inch-smart-led-television-2019/"><u>Roku Meets Ingenuity: The Brain Behind TCL's Sleek 32-Inch Smart LED Television (2019)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-engaging-your-audience-with-optimal-video-concepts/"><u>[New] In 2024, Engaging Your Audience with Optimal Video Concepts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-complete-guide-to-producing-high-impact-youtube-intros/"><u>[New] In 2024, The Complete Guide to Producing High-Impact YouTube Intros</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/treamline-your-music-habits-with-these-15-high-quality-free-youtube-extractors-for-2024/"><u>[New] Streamline Your Music Habits with These 15 High-Quality, Free YouTube Extractors for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-gear-up-yourself-selecting-prime-lenses-for-successful-vlogging/"><u>[Updated] 2024 Approved Gear Up Yourself Selecting Prime Lenses for Successful Vlogging</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-gamers-sound-showdown-the-top-5-headset-list-for-2024/"><u>[Updated] Gamers' Sound Showdown The Top 5 Headset List for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/accurate-ranking-top-10-gratuitous-srt-file-tools/"><u>Accurate Ranking Top 10 Gratuitous Srt File Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/focuscutout-how-to-blur-your-youtube-videos-background-for-2024/"><u>ClearFocusCutOut How to Blur Your YouTube Video's Background for 2024</u></a></li>
+<li><a href="https://win-net.techidaily.com/creative-tims-react-ui-kit-with-bootstrap-4-and-react-hooks-get-your-free-copy-today/"><u>Creative Tim's React UI Kit with Bootstrap 4 & React Hooks - Get Your FREE Copy Today!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/epic-games-launcher-not-responding-troubleshoot-effectively-in-minutes/"><u>Epic Games Launcher Not Responding? Troubleshoot Effectively in Minutes!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tial-guide-to-hashtagging-for-game-focused-yt-channels/"><u>Essential Guide to Hashtagging for Game-Focused YT Channels</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/free-online-converter-transform-opus-files-into-mp3-format-with-movavi/"><u>Free Online Converter: Transform Opus Files Into MP3 Format with Movavi</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-poco-m6-pro-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Poco M6 Pro 5G Devices</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-90-phone-without-pin-by-drfone-android/"><u>How to Unlock Honor 90 Phone without PIN</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-activation-lock-on-ipod-and-apple-iphone-xs-the-right-way-by-drfone-ios/"><u>In 2024, How To Bypass iCloud Activation Lock On iPod and Apple iPhone XS The Right Way</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-nubia-red-magic-9-proplus-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Nubia Red Magic 9 Pro+ For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premium-vector-graphics-the-ultimate-10-site-list/"><u>In 2024, Premium Vector Graphics The Ultimate 10 Site List</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-tug-of-war-youtube-licensing-versus-cc-principles/"><u>In 2024, The Tug-of-War Youtube Licensing Versus CC Principles</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-ultimate-webcam-selection-for-podcasting/"><u>In 2024, Ultimate Webcam Selection for Podcasting</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/iques-to-remove-black-screen-glitches-in-youtube/"><u>Techniques to Remove Black Screen Glitches in YouTube</u></a></li>
 </ul></div>
 

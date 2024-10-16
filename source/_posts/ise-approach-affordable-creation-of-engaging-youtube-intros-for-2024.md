@@ -1,7 +1,7 @@
 ---
 title: "\"Stepwise Approach  Affordable Creation of Engaging YouTube Intros for 2024\""
-date: 2024-09-10T20:39:58.346Z
-updated: 2024-09-16T18:46:10.409Z
+date: 2024-10-13T21:26:50.643Z
+updated: 2024-10-15T23:02:58.062Z
 tags:
   - ai video
   - ai youtube
@@ -97,17 +97,38 @@ If you want to make intro using Filmora then it is advised to follow the steps a
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/filmora-import-media-interface.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Head over to “Title” and you can add them to you YouTube intro with ease:
 
 **Step 3:** To add opener you need to head to “Opener” under Titles and right-click the one you want to select. Click apply and it will be added to the timeline.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-openers.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** You can also change the duration of the title effects. Drag its edge on the timeline you can also click the clock icon and enter new duration.
 
 **Step 5:** Under the style tab you can change the font, text type, and other settings.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-text.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 6:** To edit the intro, even more, click the “Advanced” button to access the advanced editing panel. Add text boxes, shapes and other effects from here.
 
@@ -125,15 +146,28 @@ Step 8: The default length of the filter is 5 seconds that can be extended by dr
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/filmora-export-mp4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 It's very easy right? Download Filmora and make a click-driven intro now!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Key Takeaways to Create Great Attractive YouTube Intro
@@ -216,13 +250,6 @@ The program is known for the awesome workability as well as viability kudos to t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -242,5 +269,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-sharing-success-replicating-content-on-insta/"><u>[Updated] 2024 Approved Sharing Success Replicating Content on Insta</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-step-by-step-adding-tracks-to-youtubes-playlist/"><u>[Updated] 2024 Approved Step-by-Step Adding Tracks to YouTube's Playlist</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-youtube-vision-navigating-video-degrees-with-ease/"><u>[Updated] 2024 Approved YouTube Vision Navigating Video Degrees with Ease</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-best-tools-for-instant-time-lapse-videos/"><u>2024 Approved Best Tools for Instant Time-Lapse Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-ultimate-tech-gear-best-win-11-webcam-recorders/"><u>2024 Approved Ultimate Tech Gear Best Win 11 Webcam Recorders</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-oppo-reno-9a-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Oppo Reno 9A via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/boost-traffic-and-ranking-leveraging-cookiebot-for-marketing-mastery/"><u>Boost Traffic and Ranking: Leveraging Cookiebot for Marketing Mastery</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-object-oriented-programming-for-complex-applications-for-2024/"><u>Exploring Object-Oriented Programming for Complex Applications for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-playfully-unlocked-through-education/"><u>Latin Playfully Unlocked Through Education</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-google-trends-for-inspiration-in-video-making-for-2024/"><u>Navigating Google Trends for Inspiration in Video Making for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/quick-fixes-for-madden-nfl-22-resolving-common-game-issues-effortlessly/"><u>Quick Fixes for Madden NFL 22: Resolving Common Game Issues Effortlessly</u></a></li>
+<li><a href="https://fox-within.techidaily.com/the-intrigue-of-lost-files-can-information-persist-after-hard-drive-deletion/"><u>The Intrigue of Lost Files: Can Information Persist After Hard Drive Deletion?</u></a></li>
+<li><a href="https://network-issues.techidaily.com/win11-dark-screen-post-update-solution/"><u>Win11 Dark Screen Post-Update Solution</u></a></li>
+</ul></div>
 

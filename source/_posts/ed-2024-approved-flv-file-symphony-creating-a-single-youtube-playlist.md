@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  FLV File Symphony  Creating a Single YouTube Playlist\""
-date: 2024-09-12T17:17:36.013Z
-updated: 2024-09-17T00:35:31.784Z
+date: 2024-10-12T19:02:01.331Z
+updated: 2024-10-15T23:02:40.650Z
 tags:
   - ai video
   - ai youtube
@@ -54,31 +54,37 @@ Download and install Wondershare Filmora. It gives good support to the downloade
 
 ![import source media in Filmora9 ](https://images.wondershare.com/filmora/article-images/filmora9-import-options.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2. Drag and drop YouTube videos to merge
 
 To merge YouTube videos, select multiple YouTube videos in the User's Album by holding down Ctrl or Shift key, and then drag and drop them to the video track on the Timeline. All YouTube files will join one after another without interrupts and there is none transition by default, but you can add transitions between video clips as you want. This will be introduced in Step 3.
 
 ![drag and drop media to timeline in Filmora9 ](https://images.wondershare.com/filmora/article-images/add-media-to-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 3. Merge YouTube videos with transition
 
 By adding transitions, YouTube videos will flow nicely from one to the next. To do so, switch to Transition tab, and drag the desired transition to the Timeline. Alternatively, right click any transition and choose "Apply to All" and "Random to All" from the popup menu to add transitions between YouTube videos in seconds.
 
 ![add transition in Filmora9 ](https://images.wondershare.com/filmora/article-images/add-transition-filmora9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 4. Merge multiple YouTube files into one
 
@@ -100,24 +106,31 @@ YouTube Video Editor is a browser-based video editor released by YouTube itself.
 
 ![import video](https://images.wondershare.com/images/multimedia/youtube-downloader/find-videos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Get access to the editor
 
 Sign in to your YouTube (or Google) account. Click "Upload">> "Edit" to the Video Editor tab.
 
 ![ Add video](https://images.wondershare.com/images/multimedia/video-editor/step-1.jpg)  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Place videos on the timeline
 
 Simply drag the videos that need merge onto the timeline or hit the plus icon in the top right hand corner of each clip.
 
 ![save video](https://images.wondershare.com/images/multimedia/video-editor/step-3.png "save video")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Save the settings
 
@@ -126,10 +139,10 @@ Review the result. If satisfied, hit the "Publish" button to save the settings.
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -151,5 +164,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-rise-to-fame-comprehensive-youtube-creators-series/"><u>[New] In 2024, Rise to Fame Comprehensive YouTube Creator's Series</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-hurry-up-get-professional-valorant-thumbnail-skills-now/"><u>[Updated] In 2024, Hurry Up, Get Professional Valorant Thumbnail Skills Now</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-mastering-twitter-archives-essential-steps-outlined-for-2024/"><u>[Updated] Mastering Twitter Archives Essential Steps Outlined for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-navigating-the-complexities-of-youtubes-seo-landscape-for-2024/"><u>[Updated] Navigating the Complexities of YouTube's SEO Landscape for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unraveling-how-tseries-profits-from-its-popularity-and-subscribers-youtube-for-2024/"><u>[Updated] Unraveling How TSeries Profits From Its Popularity and Subscribers (YouTube) for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unveiling-the-secrets-to-audio-visual-cohesion-on-facebook-for-2024/"><u>[Updated] Unveiling the Secrets to Audio-Visual Cohesion on Facebook for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/expert-analysis-on-gadgets-by-toms-electronics-hub/"><u>Expert Analysis on Gadgets by Tom's Electronics Hub</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-vivo-y28-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Vivo Y28 5G Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/reators-guide-to-mastering-youtube-aspect-ratios/"><u>The Creator's Guide to Mastering YOUTUBE Aspect Ratios</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/webcam-use-in-professional-settings-for-slide-shows-for-2024/"><u>Webcam Use in Professional Settings for Slide Shows for 2024</u></a></li>
+</ul></div>
 

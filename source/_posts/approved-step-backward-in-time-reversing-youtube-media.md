@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Step Backward in Time  Reversing YouTube Media\""
-date: 2024-09-13T22:38:53.556Z
-updated: 2024-09-16T21:25:03.768Z
+date: 2024-10-11T16:57:22.241Z
+updated: 2024-10-15T18:35:16.656Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,13 @@ Clideo is not merely a video reverser, but can also convert media files to your 
 
 ![Reverse YouTube videos Online - Clideo](https://images.wondershare.com/filmora/article-images/reverse-youtube-video-clideo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 To **play YouTube video backward** with Clideo:
 
 * Visit Clideo’s online reverse tool page: <https://clideo.com/reverse-video>;
@@ -52,11 +59,31 @@ To **play YouTube video backward** with Clideo:
 * After Clideo fetches the video and opens the next page, choose your preferred speed from the right section
 * Leave the **Mute video** box checked, or uncheck it if required and then click **Reverse** button to **reverse YouTube video.** The maximum reverse speed that you can apply is 2X.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. Kapwing
 
 This web solution also supports almost all types of video formats including 3GPP, AVI, MP4, etc. When talking about the limitations of a free user, you can only upload the videos that are up to 7 minutes long. At the time of this writing, Kapwing can accept the source files from your computer, and from the YouTube URL.
 
 ![Reverse YouTube videos Online - kapwing](https://images.wondershare.com/filmora/article-images/reverse-youtube-video-kapwing.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 To **reverse YouTube video** with Kapwing:
 
@@ -115,13 +142,6 @@ With easily reachable editing options and self-explanatory buttons, Wondershare 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 When talking about the playback speed, with the help of available presets, it can be increased or decreased by 100x or 0.01x respectively. One of the presets also enables you to reverse the direction of the playback quite easily, i.e. while keeping the speed intact. In addition, the ‘Custom Speed’ option lets you control the preferences more granularly.
 
 You can follow the simple instructions given below to **reverse YouTube video** with Wondershare Filmora:
@@ -134,6 +154,13 @@ Launch Wondershare Filmora on your Windows or Mac computer (Windows 10 here), ma
 
 ![Add YouTube Video to Timeline](https://images.wondershare.com/filmora/article-images/add-youtube-video-to-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. Reverse the Video (Using the Preset)
 
 Click and select the media clip in the Timeline, click the **Speed** icon present above the Timeline itself, and click the **Reverse** option from the menu that appears to reverse the video playback.
@@ -141,10 +168,17 @@ Click and select the media clip in the Timeline, click the **Speed** icon presen
 ![Select Reverse on Speed Icon](https://images.wondershare.com/filmora/article-images/filmora-speed-icon-reverse.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. Reverse the Video (Manual Control)
@@ -152,10 +186,10 @@ Click and select the media clip in the Timeline, click the **Speed** icon presen
 ![Filmora Custom Speed](https://images.wondershare.com/filmora/article-images/youtube-video-speed-custom.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Select the media clip in the Timeline and click the **Speed** icon as explained in the previous step. From the menu that appears, click **Custom Speed** this time. When the **Custom Speed** box appears, use the **Speed** slider to adjust the playback speed of the media clip, and check the **Reverse** box to **reverse YouTube video**. Optionally, you can also modify the **Duration** and **Ripple** options to customize the preferences. Finally, click **OK** to save the changes.
@@ -165,13 +199,6 @@ Select the media clip in the Timeline and click the **Speed** icon as explained 
 Back on the main window, click **EXPORT** from the top. Filmora provides several ways to saving and sharing the video.
 
 ![Save Reversed YouTube videos](https://images.wondershare.com/filmora/article-images/export-save-reversed-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can select the **Local** tab, choose your preferred output format from the list in the left, in the right window, define a name and location for the file that you are about to export, and click **EXPORT** from the bottom-right corner to export the video with the reverse playback.
 
@@ -188,10 +215,10 @@ Even though the online video reversers are free and offer simple process to get 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -213,5 +240,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ocating-youtubes-content-creation-hub-essential-guide/"><u>[New] Locating YouTube's Content Creation Hub Essential Guide</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-smilesliceart-funnyphotofacility-for-2024/"><u>[New] SmileSliceArt FunnyPhotoFacility for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-effortless-offline-viewing-how-to-save-youtube-videos-for-iphoneipad/"><u>[Updated] 2024 Approved Effortless Offline Viewing How to Save YouTube Videos for iPhone/iPad</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exploring-top-20-anime-opener-hits/"><u>[Updated] Exploring Top 20 Anime Opener Hits</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-instant-access-weaving-youtube-songs-into-imovie-videos-for-2024/"><u>[Updated] Instant Access Weaving YouTube Songs Into iMovie Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-principles-for-eye-catching-yt-previews-for-2024/"><u>Design Principles for Eye-Catching YT Previews for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-call-of-duty-wwii-issue-resolving-error-code-4128/"><u>Fixing Call of Duty: WWII Issue - Resolving Error Code 4128</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Oppo K11x? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-optimizing-personal-video-experience-building-an-organized-watch-later-list/"><u>In 2024, Optimizing Personal Video Experience Building an Organized 'Watch Later' List</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ssential-list-for-screen-clarity-top-7-android-adblockers-for-2024/"><u>The Essential List for Screen Clarity Top 7 Android AdBlockers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ltimate-playlist-youtubes-best-in-vr/"><u>The Ultimate Playlist YouTube’s Best in VR</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlocking-the-secrets-of-nothing-phone-3-expected-release-schedule-price-points-and-technical-details/"><u>Unlocking the Secrets of Nothing Phone 3: Expected Release Schedule, Price Points & Technical Details</u></a></li>
+</ul></div>
 

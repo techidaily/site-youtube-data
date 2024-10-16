@@ -1,7 +1,7 @@
 ---
 title: "\"Expert Tips  Activating or Deactivating YouTube Comments\""
-date: 2024-09-16T00:03:40.836Z
-updated: 2024-09-16T18:09:21.108Z
+date: 2024-10-12T17:35:15.789Z
+updated: 2024-10-15T22:45:04.760Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -115,6 +122,13 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 ## FAQs About YouTube Comments
@@ -133,6 +147,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +167,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +194,19 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-achieve-financial-success-on-youtube-start-at-500-views/"><u>[New] In 2024, Achieve Financial Success on YouTube Start at 500 Views</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aximize-creativity-with-no-investment-explore-these-8-video-editors/"><u>[New] Maximize Creativity with No Investment Explore These 8 Video Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-most-trusted-websites-for-inexpensive-motion-graphics/"><u>[New] Most Trusted Websites for Inexpensive Motion Graphics</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-2023s-best-fb-link-exporters-available-for-free-online/"><u>[Updated] 2024 Approved 2023'S Best FB Link Exporters - Available for FREE Online</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-essential-gif-sharing-on-snapchat-easy-tutorial/"><u>[Updated] 2024 Approved Essential Gif Sharing on Snapchat [Easy Tutorial]</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-mastering-tagging-elevate-your-youtube-content/"><u>[Updated] 2024 Approved Mastering Tagging Elevate Your YouTube Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-revenue-realms-of-youtube-from-virtual-viewership-to-banknotes/"><u>[Updated] 2024 Approved Revenue Realms of YouTube From Virtual Viewership to Banknotes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-what-to-do-if-the-facebook-message-shows-its-you-in-this-video/"><u>[Updated] 2024 Approved What To Do If the Facebook Message Shows It’s You in This Video?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-video-on-twitter-top-converter-picks/"><u>2024 Approved Mastering Video on Twitter Top Converter Picks</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/enhancing-collaboration-slack-melded-with-filmoras-video-capabilities/"><u>Enhancing Collaboration Slack Melded With Filmora’s Video Capabilities</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-strategies-for-becoming-a-pro-at-pokemon-go/"><u>Step-by-Step Strategies for Becoming a Pro at Pokémon Go</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-best-mobile-transfer-apps-of-2023-essential-downloads/"><u>The Ultimate Guide: Best Mobile Transfer Apps of 2023 - Essential Downloads!</u></a></li>
+</ul></div>
 

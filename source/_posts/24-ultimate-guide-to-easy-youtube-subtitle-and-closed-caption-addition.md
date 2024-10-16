@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Ultimate Guide to Easy YouTube Subtitle and Closed Caption Addition"
-date: 2024-09-10T23:54:16.299Z
-updated: 2024-09-17T00:30:34.300Z
+date: 2024-10-11T20:47:24.776Z
+updated: 2024-10-15T20:01:23.960Z
 tags:
   - ai video
   - ai youtube
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/128936f1237a7dae7d947e202ae29738fcba18f1e
 
  So, here we are going to show you two ways to add subtittles to video: directly or uploading caption or transcript files
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Adding subtitles and closed captions manually
 
  To add subtitles and closed captions to your YouTube video, fisrt, you should sign in to your YouTube account. On left right below 'Home' you will find 'My Channel'. It will direct you to your personal YouTube page. On the top, right next to your subscribers lays the 'Video manager', giving you the list of your uploaded videos.
@@ -57,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/128936f1237a7dae7d947e202ae29738fcba18f1e
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
  An interruption might occur with appearing of subtitles in accordance with video. Hence a lot precision is required while doing so.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Uploading Caption or Transcript Files automatically
 
@@ -77,10 +91,16 @@ thumbnail: https://thmb.techidaily.com/128936f1237a7dae7d947e202ae29738fcba18f1e
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3 Best Tools for add/managing video Subtitles/CC
@@ -100,10 +120,10 @@ thumbnail: https://thmb.techidaily.com/128936f1237a7dae7d947e202ae29738fcba18f1e
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -125,5 +145,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-beginners-ultimate-list-of-youtube-production-tools/"><u>[New] 2024 Approved Beginner's Ultimate List of YouTube Production Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-transform-your-brand-with-powerful-fb-video-messaging/"><u>[New] 2024 Approved Transform Your Brand with Powerful FB Video Messaging</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/34130268-new-in-2024-channel-name-wizardry-brainstorm-and-create/"><u>[New] In 2024, Channel Name Wizardry Brainstorm & Create</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-obs-timeline-expertise-crafting-custom-countdown-features-for-2024/"><u>[New] Obs Timeline Expertise Crafting Custom Countdown Features for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-comment-finder-you-should-try-for-2024/"><u>[New] YouTube Comment Finder You Should Try for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-how-to-retain-video-engagement-sustained-use-of-youtubes-cc-license/"><u>[Updated] 2024 Approved How to Retain Video Engagement Sustained Use of YouTube's CC License</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-quick-thumbnail-tips-for-youtube-success/"><u>[Updated] 2024 Approved Quick Thumbnail Tips for YouTube Success</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-10-finest-yoga-series-to-achieve-zen-and-strength/"><u>[Updated] In 2024, The 10 Finest Yoga Series to Achieve Zen and Strength</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-introducing-the-essence-of-motion-blur-techniques-on-iphone-for-2024/"><u>[Updated] Introducing the Essence of Motion-Blur Techniques on iPhone for 2024</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/die-top-3-gratuiten-cloudverschiebesoftwares-erste-rangerlosung-fur-synchronisierung-von-daten-und-dateien/"><u>Die Top 3 Gratuiten Cloudverschiebesoftwares - Erste Rangerlösung Für Synchronisierung Von Daten Und Dateien</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-control-center-malfunctions-in-ios-8-effective-solutions-for-iphone-users/"><u>Fixing Control Center Malfunctions in iOS - 8 Effective Solutions for iPhone Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-currencies-through-cosmetics-content/"><u>Flipping Currencies Through Cosmetics Content</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-pantheon-of-praise-celebrating-ten-superstar-posts/"><u>In 2024, The Pantheon of Praise Celebrating Ten Superstar Posts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/roadcasting-toolkit-convert-upload-and-stream-youtube/"><u>MP3 Broadcasting Toolkit Convert, Upload & Stream YouTube</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigating-the-complex-world-of-nlp-understanding-bert-vs-gpt/"><u>Navigating the Complex World of NLP: Understanding BERT vs GPT</u></a></li>
+</ul></div>
 

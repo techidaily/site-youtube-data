@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  End-Screen Elegance - Free Guides to Upgrade Your Videos\""
-date: 2024-09-13T04:46:07.076Z
-updated: 2024-09-16T17:43:10.216Z
+date: 2024-10-12T21:09:25.005Z
+updated: 2024-10-15T17:03:59.619Z
 tags:
   - ai video
   - ai youtube
@@ -90,11 +90,25 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
@@ -118,6 +132,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
@@ -127,6 +148,13 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,12 +175,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-eliminate-youtube-shorts-permanent-guide/"><u>[New] In 2024, Eliminate YouTube Shorts Permanent Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/urbocharge-youtube-videos-efficient-rendering-fast-transfer/"><u>[New] Turbocharge YouTube Videos Efficient Rendering, Fast Transfer</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-mastering-your-camera-essential-tactics-for-hit-youtube-videos/"><u>[Updated] 2024 Approved Mastering Your Camera Essential Tactics for Hit YouTube Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-how-to-add-text-to-photos-on-windows-and-mac-for-2024/"><u>[Updated] How to Add Text to Photos on Windows and Mac for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-leading-links-to-googles-advertising-networks-on-videos-for-2024/"><u>[Updated] Leading Links to Google's Advertising Networks on Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-mastering-online-monetization-with-universal-studio-use/"><u>2024 Approved Mastering Online Monetization with Universal Studio Use</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/easy-fixes-for-unrecognized-audio-devices-on-your-windows-laptop-or-desktop/"><u>Easy Fixes for Unrecognized Audio Devices on Your Windows Laptop or Desktop</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-iphone-12-pro-max-online-without-jailbreak-by-drfone-ios/"><u>In 2024, How to Unlock SIM Card on iPhone 12 Pro Max online without jailbreak</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tascam-cd-200bt-rackmount-cd-player-review/"><u>Tascam CD-200BT Rackmount CD Player Review</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-interplay-of-html-css-and-javascript-in-modern-web-pages/"><u>The Interplay of HTML, CSS, and JavaScript in Modern Web Pages</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-itel-p55t-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Itel P55T? | Dr.fone</u></a></li>
+</ul></div>
 

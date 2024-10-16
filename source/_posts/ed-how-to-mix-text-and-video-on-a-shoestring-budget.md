@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Mix Text & Video on a Shoestring Budget"
-date: 2024-09-13T03:36:35.157Z
-updated: 2024-09-16T17:41:38.115Z
+date: 2024-10-12T16:21:57.537Z
+updated: 2024-10-15T23:23:00.147Z
 tags:
   - ai video
   - ai youtube
@@ -65,15 +65,36 @@ You should start by creating a new project in Filmora and importing the video yo
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -86,6 +107,13 @@ There are so many different ways to create visually striking content, and adding
 Merging text with video is equally easy in PowerPoint and Filmora, so you just have to choose which software better suits your needs and select the materials that fit the style of your project. Learning how to add a video to text won’t take too much of your time, as this process can be completed in just a few quick steps. Which software are you using to add a video to text? Leave a comment below and let us know.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -106,12 +134,20 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-the-huawei-p10-examining-its-durability-and-build-quality/"><u>[Updated] 2024 Approved The Huawei P10 Examining Its Durability & Build Quality</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-scream-loud-with-joy-our-picks-from-the-best-funny-youtubers/"><u>[Updated] In 2024, Scream Loud with Joy Our Picks From the Best Funny YouTubers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-silences-symphony-strategies-for-capturing-pristine-audio/"><u>[Updated] In 2024, Silence's Symphony Strategies for Capturing Pristine Audio</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-ultimate-screenshot-tools-for-youtube-live-sharing/"><u>2024 Approved Ultimate Screenshot Tools for YouTube Live Sharing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-the-bottom-ranks-understanding-impactful-factors-for-2024/"><u>Avoiding the Bottom Ranks Understanding Impactful Factors for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-oppo-find-x6-pro-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Oppo Find X6 Pro Quickly | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-google-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Google Phone Screen?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/minecraft-pc-crashes-top-2024-fixes-for-uninterrupted-gaming/"><u>Minecraft PC Crashes: Top 2024 Fixes for Uninterrupted Gaming</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/to-the-top-the-essentials-of-starting-a-youtube-gaming-sensation-for-2024/"><u>Rise to the Top The Essentials of Starting a YouTube Gaming Sensation for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-oneplus-nord-ce-3-5g-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for OnePlus Nord CE 3 5G Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-8-apps-accelerating-slow-motion-footage-for-2024/"><u>Top 8 Apps Accelerating Slow Motion Footage for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-and-fixing-unresponsive-audio-services-solutions-proven-effective/"><u>Troubleshooting & Fixing Unresponsive Audio Services: Solutions Proven Effective</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-smooth-audio-transitions-2-methods-to-fade-in-and-out-in-fcp-for-2024/"><u>Updated Smooth Audio Transitions 2 Methods to Fade In and Out in FCP for 2024</u></a></li>
+</ul></div>
 

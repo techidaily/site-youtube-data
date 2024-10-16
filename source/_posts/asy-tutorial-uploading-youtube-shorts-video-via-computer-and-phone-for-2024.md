@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Easy Tutorial  Uploading YouTube Shorts Video via Computer & Phone for 2024\""
-date: 2024-09-12T17:03:28.943Z
-updated: 2024-09-16T23:23:50.578Z
+date: 2024-10-10T23:34:52.843Z
+updated: 2024-10-15T16:53:07.789Z
 tags:
   - ai video
   - ai youtube
@@ -87,6 +87,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Upload an Existing Short Video
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
@@ -100,6 +107,13 @@ On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Crea
 #### Step 2: Add Details
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -118,10 +132,10 @@ Please note you will not see the **Create a Short** option if you are outsides o
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
@@ -146,14 +160,14 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -174,5 +188,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-exhaustive-explanation-whats-behind-google-podcast/"><u>[New] 2024 Approved Exhaustive Explanation What's Behind Google Podcast?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ssential-tools-top-8-mirrorless-cams-for-professional-filmmakers-for-2024/"><u>[New] Essential Tools Top 8 Mirrorless Cams For Professional Filmmakers for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-ranking-the-greatest-9-mobile-video-communication-services-ios-android/"><u>[New] In 2024, Ranking the Greatest 9 Mobile Video Communication Services (iOS, Android)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-snagging-youtube-vanished-videos-your-2-path-guide/"><u>[New] In 2024, Snagging YouTube Vanished Videos Your 2-Path Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/arket-masters-essential-stock-youtube-series-for-2024/"><u>[New] Market Masters Essential Stock YouTube Series for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nlocking-biz-potential-the-best-channels-for-growth/"><u>[New] Unlocking Biz Potential The Best Channels for Growth</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-obtain-exclusive-free-media-from-elite-4-youtube-clips/"><u>[Updated] 2024 Approved Obtain Exclusive Free Media From Elite 4 YouTube Clips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-from-one-off-to-firm-follower-an-ethical-approach/"><u>[Updated] From One-Off to Firm Follower An Ethical Approach</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-mastery-in-music-selection-enhancing-video-packages/"><u>[Updated] In 2024, Mastery in Music Selection Enhancing Video Packages</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-tele-loop-triumph-youtube-videos-endlessly-enjoyable-on-tv/"><u>2024 Approved Tele-Loop Triumph YouTube Videos, Endlessly Enjoyable on Tv</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-change-the-windows-spotlight-picture-whenever-you-want/"><u>How to Change the Windows Spotlight Picture Whenever You Want</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-creation-to-public-domain-google-podcast-upload/"><u>In 2024, From Creation to Public Domain Google Podcast Upload</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-from-apple-iphone-se-2022-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server From Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/sing-the-consequences-of-a-youtube-ban/"><u>Reversing the Consequences of a YouTube Ban</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/mlining-your-iphones-video-loops/"><u>Streamlining Your iPhones Video Loops</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-essentials-of-monetization-youtube-policy-update-for-2024/"><u>The Essentials of Monetization YouTube Policy Update for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-5-mp4-video-converter-tools-for-windows-11-users-speed-stability-and-user-friendly-interface/"><u>Top 5 MP4 Video Converter Tools for Windows 11 Users: Speed, Stability & User-Friendly Interface</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-mac-compatible-tools-effective-alternatives-to-ytd-for-downloading-youtube-videos/"><u>Top Mac-Compatible Tools: Effective Alternatives to YTD for Downloading YouTube Videos</u></a></li>
+<li><a href="https://solve-help.techidaily.com/1726026808001-windows-113/"><u>Windows 11における効果的なビデオ編集：クロッピング技術3種類</u></a></li>
+</ul></div>
 

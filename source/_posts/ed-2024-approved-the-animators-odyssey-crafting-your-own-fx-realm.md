@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Animator's Odyssey  Crafting Your Own FX Realm\""
-date: 2024-09-10T18:10:08.722Z
-updated: 2024-09-17T01:46:44.987Z
+date: 2024-10-11T23:31:56.389Z
+updated: 2024-10-15T23:04:22.340Z
 tags:
   - ai video
   - ai youtube
@@ -55,21 +55,35 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
 Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -79,16 +93,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -110,5 +118,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-cutting-clout-not-content-efficient-video-length-reduction-for-2024/"><u>[New] Cutting Clout, Not Content Efficient Video Length Reduction for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-ultimate-handbook-for-optimal-youtube-banners-and-art-sizes-for-2024/"><u>[New] The Ultimate Handbook for Optimal YouTube Banners & Art Sizes for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-decoding-the-features-that-make-youtube-premium-special/"><u>[Updated] 2024 Approved Decoding the Features That Make YouTube Premium Special</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-top-revenue-making-youtube-visionary/"><u>[Updated] 2024 Approved Top Revenue-Making YouTube Visionary</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-building-a-stronger-presence-with-effective-youtube-pairings/"><u>[Updated] In 2024, Building a Stronger Presence with Effective YouTube Pairings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-pixel-prodigies-top-10-gaming-ladies-on-yt/"><u>[Updated] In 2024, Pixel Prodigies Top 10 Gaming Ladies on YT</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-premium-cut-tools-the-top-8-linux-apps/"><u>[Updated] In 2024, Premium Cut Tools The Top 8 Linux Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unlocking-virality-mastering-the-art-of-influential-content/"><u>[Updated] In 2024, Unlocking Virality Mastering the Art of Influential Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-t5s-complete-action-video-insight/"><u>2024 Approved The T5's Complete Action Video Insight</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-realme-gt-5-pro-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/critical-hardware-specification-change-only-d3d11-gpus-will-support-this-updated-engine-version/"><u>Critical Hardware Specification Change: Only D3D11 GPUs Will Support This Updated Engine Version</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/concept-to-cut-tape-imovie-steps-for-optimizing-youtube-edits/"><u>From Concept to Cut-Tape IMovie Steps for Optimizing YouTube Edits</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-messages-from-apple-iphone-xs-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Messages from Apple iPhone XS to iPhone Including iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/itel-a05s-tutorial-bypass-lock-screen-security-password-pin-fingerprint-pattern-by-drfone-android-unlock-android-unlock/"><u>Itel A05s Tutorial - Bypass Lock Screen,Security Password Pin,Fingerprint,Pattern</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/mastering-live-broadcasts-a-step-by-step-guide-for-fb-users-for-2024/"><u>Mastering Live Broadcasts A Step-by-Step Guide for FB Users for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ltimate-guide-to-free-online-video-tools-for-all-for-2024/"><u>The Ultimate Guide to Free Online Video Tools for All for 2024</u></a></li>
+</ul></div>
 

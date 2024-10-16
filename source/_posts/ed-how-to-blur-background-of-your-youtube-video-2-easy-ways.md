@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] How to Blur Background of Your YouTube Video - 2 Easy Ways\""
-date: 2024-09-10T22:51:35.854Z
-updated: 2024-09-17T05:07:03.803Z
+date: 2024-10-13T21:18:50.685Z
+updated: 2024-10-15T16:07:57.265Z
 tags:
   - ai video
   - ai youtube
@@ -79,19 +79,20 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
@@ -102,19 +103,6 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
@@ -123,7 +111,21 @@ You see, the video background is blurred, and the people are highlighted. Now it
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -144,5 +146,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-share-tiktok-videos-to-facebook-in-quick-easy-steps/"><u>[New] 2024 Approved Share TikTok Videos to Facebook in Quick Easy Steps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/earning-leaders-most-influential-edu-tutorials-yt-for-2024/"><u>[New] Learning Leaders Most Influential Edu Tutorials YT for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mastering-video-editing-in-windows-11-your-movie-maker-primer/"><u>[New] Mastering Video Editing in Windows 11 - Your Movie Maker Primer</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-art-of-youtube-shorts-filming-and-editing-made-simple-for-2024/"><u>[New] The Art of YouTube Shorts Filming and Editing Made Simple for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-filmmakers-guide-to-avoiding-overused-channel-labels-for-2024/"><u>[New] The Filmmaker's Guide to Avoiding Overused Channel Labels for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-snapcutsolutions-reviews-extensive-critique/"><u>[Updated] SnapCutSolutions Reviews – Extensive Critique</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Gionee F3 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-the-course-from-adsense-income-to-savings-for-2024/"><u>Charting the Course From AdSense Income to Savings for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/convert-ogg-files-to-mp4-at-no-cost-with-movavis-web-app/"><u>Convert OGG Files to MP4 at No Cost with Movavi's Web App</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/direct-download-links-available-now-get-epson-et-2750-printer-software-for-windows-users/"><u>Direct Download Links Available Now! Get Epson ET-2750 Printer Software for Windows Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ver-these-27-purely-free-youtube-audio-ripper-tools/"><u>Discover These 27 Purely Free YouTube Audio Ripper Tools</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-honor-v-purse-by-drfone-android/"><u>How to Bypass FRP from Honor V Purse?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-masterful-windows-melodies/"><u>In 2024, Masterful Windows Melodies</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Quick-Response Guide  Adding YouTube's Closed Captions and Subtitles\""
-date: 2024-10-03T16:08:31.408Z
-updated: 2024-10-09T16:26:16.979Z
+date: 2024-10-10T16:02:49.912Z
+updated: 2024-10-15T21:08:17.644Z
 tags:
   - ai video
   - ai youtube
@@ -49,16 +49,10 @@ thumbnail: https://thmb.techidaily.com/91890d8faaa4ea50693cf087efaa142eb641e1cff
  So, here we are going to show you two ways to add subtittles to video: directly or uploading caption or transcript files
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Adding subtitles and closed captions manually
@@ -72,10 +66,16 @@ thumbnail: https://thmb.techidaily.com/91890d8faaa4ea50693cf087efaa142eb641e1cff
  An interruption might occur with appearing of subtitles in accordance with video. Hence a lot precision is required while doing so.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Uploading Caption or Transcript Files automatically
@@ -97,10 +97,16 @@ thumbnail: https://thmb.techidaily.com/91890d8faaa4ea50693cf087efaa142eb641e1cff
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3 Best Tools for add/managing video Subtitles/CC
@@ -120,10 +126,10 @@ thumbnail: https://thmb.techidaily.com/91890d8faaa4ea50693cf087efaa142eb641e1cff
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -147,18 +153,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-unboxing-ubiquity-the-profitable-vloggers-playbook/"><u>[New] 2024 Approved Unboxing Ubiquity The Profitable Vlogger's Playbook</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-the-mobile-filmmakers-guide-to-creating-thumbnails-for-youtube/"><u>[New] In 2024, The Mobile Filmmaker's Guide to Creating Thumbnails for YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tep-by-step-guide-for-sporty-streamers-on-mac-for-2024/"><u>[New] Step-by-Step Guide for Sporty Streamers on Mac for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-boost-traffic-elevate-rankings-essential-youtube-seo/"><u>[Updated] 2024 Approved Boost Traffic, Elevate Rankings - Essential YouTube SEO</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-constructing-an-inviting-subscribe-link-for-youtube-enthusiasts/"><u>[Updated] 2024 Approved Constructing an Inviting Subscribe Link for YouTube Enthusiasts</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-crafting-the-perfect-strategy-exclusive-youtube-to-gmail-connection-for-2024/"><u>[Updated] Crafting the Perfect Strategy Exclusive YouTube to Gmail Connection for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-key-10-efficient-online-subtitle-editors/"><u>[Updated] In 2024, Key 10 Efficient Online Subtitle Editors</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-youtubing-success-final-stages-and-top-resources-for-2024/"><u>[Updated] YouTubing Success Final Stages and Top Resources for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-quick-tips-for-photo-correction-with-adobes-palette/"><u>2024 Approved Quick Tips for Photo Correction with Adobe's Palette</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/sible-visual-aids-for-youtube-videos/"><u>Accessible Visual Aids for YouTube Videos</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/creating-a-softer-focus-iphone-image-blurring-explained/"><u>Creating a Softer Focus IPhone Image Blurring Explained</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/instant-recovery-of-vanished-reddit-topics/"><u>Instant Recovery of Vanished Reddit Topics</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/trucco-delle-vendite-online-il-tuo-centrale-supporto-personalizzato-per-winx-dvd-ripper-ed-edizione-speciale-winx-video-con-intelligenza-artificiale/"><u>Trucco Delle Vendite Online: Il Tuo Centrale Supporto Personalizzato per WinX DVD Ripper Ed Edizione Speciale WinX Video Con Intelligenza Artificiale</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-transform-instagram-notifications-diy-sound-design/"><u>[New] Transform Instagram Notifications DIY Sound Design</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-harmony-of-collaboration-brands-and-youtube-unite/"><u>[Updated] The Harmony of Collaboration Brands & YouTube Unite</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-beyond-boundaries-channel-youtube-for-exciting-green-screens/"><u>2024 Approved Beyond Boundaries Channel Youtube for Exciting Green Screens</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-nextgen-video-havens-step-away-from-youtube/"><u>2024 Approved NextGen Video Havens - Step Away From YouTube</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-oppo-a79-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Oppo A79 5G System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/accelerated-artistry-instant-collage-creation-on-fb/"><u>Accelerated Artistry Instant Collage Creation on FB</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/isseurs-melding-visionary-sounds-and-frames/"><u>Connoisseurs Melding Visionary Sounds & Frames</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-streamline-vlogging-titles-top-11-affordable-generators/"><u>In 2024, Streamline Vlogging Titles - Top 11 Affordable Generators</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-art-of-inserting-descriptive-commentary-in-youtube-videos/"><u>In 2024, The Art of Inserting Descriptive Commentary in YouTube Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-unlocking-the-power-of-scheduled-instagram-posts/"><u>In 2024, Unlocking the Power of Scheduled Instagram Posts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-youtubes-creative-commons-for-content-sharing/"><u>Navigating YouTube's Creative Commons for Content Sharing</u></a></li>
 </ul></div>
 

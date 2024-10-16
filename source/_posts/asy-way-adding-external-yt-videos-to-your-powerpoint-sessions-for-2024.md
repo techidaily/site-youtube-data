@@ -1,7 +1,7 @@
 ---
 title: "\"The Easy Way  Adding External YT Videos to Your PowerPoint Sessions for 2024\""
-date: 2024-09-09T20:39:50.682Z
-updated: 2024-09-16T22:35:57.047Z
+date: 2024-10-08T23:35:24.391Z
+updated: 2024-10-15T19:05:50.872Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,13 @@ After understanding the benefits of have a video embedded to your presentation, 
 
 The four most used methods of getting this done are discussed in detailed in the following sections:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Using YouTube Video’s URL
 
 Because every YouTube video has a URL (Uniform Resource Locator) that is unique for that particular clip, PowerPoint allows you to use it to embed the footage to any of its slides. The process is simple, and you can follow the steps given below to get this done:
@@ -61,6 +68,13 @@ Launch PowerPoint if it is not already open, go to the slide you want to embed t
 
 Once the video is added to the PowerPoint slide, drag its frame and reposition it to a suitable location.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Embed a YouTube Video with Embed Code (For Microsoft PowerPoint 2016)
 
 Unlike PowerPoint 2019 that accepts URLs and embed codes in a single URL field, MS PowerPoint 2016 lets you choose how you want to insert a video. The step-by-step instructions given below explain how this can be done:
@@ -70,6 +84,13 @@ Unlike PowerPoint 2019 that accepts URLs and embed codes in a single URL field, 
 Go to the YouTube video you want to embed to your PowerPoint slide, click the **SHARE** icon from the left area under the video player, click the **Embed** icon in the **Share** box, and click **COPY** from the bottom-right corner of the **Embed Video** box that appears next.
 
 ![ embed YouTube video code to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-embed-code.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2: Get to the PowerPoint’s Insert Video Box**
 
@@ -111,13 +132,6 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## YouTube Embedding Supported PowerPoint Version Checklist
 
 Depending on the version of Microsoft Office you are using, you may or may not be able to embed a YouTube video in PowerPoint. Also, if your version of PowerPoint allows you to do so, the interface and the options may vary from those you see on your friends’ computer or in some online tutorials.
@@ -132,6 +146,13 @@ That said, the following table gives a clear picture of which version of Microso
 | PowerPoint 2013             | No                     | No                                           | Yes                                          | No                                  |
 | PowerPoint 2010             | No                     | No (Adobe Flash Player Support Discontinued) | No (Adobe Flash Player Support Discontinued) | No                                  |
 | PowerPoint 365/2019 for Mac | Yes                    | No                                           | No                                           | No                                  |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Frequently Asked Questions About Embedding YouTube Videos in PowerPoint
 
@@ -157,19 +178,6 @@ Although the above sections explain **how to embed a YouTube video in PowerPoint
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -189,5 +197,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-advanced-subtitling-mastering-the-art-of-srt-editing-on-apple-systems/"><u>[New] Advanced Subtitling Mastering the Art of SRT Editing on Apple Systems</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-beyond-marketing-hype-the-genuine-facts-of-reels-for-2024/"><u>[Updated] Beyond Marketing Hype The Genuine Facts of Reels for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-high-quality-6-video-transcription-services/"><u>[Updated] High-Quality 6 Video Transcription Services</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-how-to-use-screenrec-for-2024/"><u>[Updated] How to Use ScreenRec for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-unlocking-full-gaming-potential-with-fbx-capturing/"><u>[Updated] In 2024, Unlocking Full Gaming Potential with FBX Capturing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-personal-creation-goals-selecting-between-tiktok-and-youtube-shorts/"><u>[Updated] Personal Creation Goals Selecting Between TikTok and YouTube Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtube-money-mastery-from-clicks-to-checkbook-balance/"><u>[Updated] YouTube Money Mastery From Clicks to Checkbook Balance</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-quick-guide-to-vivo-t2-5g-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Vivo T2 5G FRP Bypass Instantly</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/s-latency-with-av1-in-youtube-settings/"><u>Bypass Latency with AV1 in YouTube Settings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/creen-elegance-free-guides-to-upgrade-your-videos/"><u>End-Screen Elegance - Free Guides to Upgrade Your Videos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-infinix-smart-8-lock-screen-password-by-drfone-android/"><u>How to Reset your Infinix Smart 8 Lock Screen Password</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-oppo-k11-5g-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Oppo K11 5G and Browser | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-scouting-top-7-innovative-mobile-streaming-tools-for-youtube-enthusiasts/"><u>In 2024, Scouting Top 7 Innovative Mobile Streaming Tools for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/izing-earnings-with-youtube-studio-monetization-on-any-device/"><u>Maximizing Earnings with YouTube Studio Monetization on Any Device</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ly-expand-your-youtube-following-for-minimal-cost/"><u>Swiftly Expand Your YouTube Following for Minimal Cost</u></a></li>
+</ul></div>
 

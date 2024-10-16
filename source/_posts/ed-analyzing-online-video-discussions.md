@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Analyzing Online Video Discussions"
-date: 2024-10-02T16:10:12.458Z
-updated: 2024-10-09T16:16:02.677Z
+date: 2024-10-14T16:11:10.900Z
+updated: 2024-10-15T23:05:19.185Z
 tags:
   - ai video
   - ai youtube
@@ -66,13 +66,6 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -84,6 +77,19 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -112,10 +118,10 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
@@ -123,6 +129,19 @@ This mode allows you to enter special commands to carry out an advanced search. 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
+
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
 
@@ -137,16 +156,10 @@ You can see all the comments you have posted in the Comment History in a few qui
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -172,13 +185,6 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -200,17 +206,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-innovative-approaches-for-effective-use-of-streamlabs-obs/"><u>[New] 2024 Approved Innovative Approaches for Effective Use of Streamlabs OBS</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-soundwaves-flow-into-imovie-effortlessly/"><u>[New] In 2024, YouTube Soundwaves Flow Into iMovie Effortlessly</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-ultimate-playbook-to-youtube-hub-mastery/"><u>[New] The Ultimate Playbook to YouTube Hub Mastery</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-step-by-step-for-sports-video-compilation/"><u>[Updated] In 2024, Step-by-Step for Sports Video Compilation</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-comprerant-and-reviewed-the-ultimate-list-of-ios-video-edits/"><u>2024 Approved Compreran't & Reviewed The Ultimate List of iOS Video Edits</u></a></li>
-<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-samsung-galaxy-a15-5g-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Samsung Galaxy A15 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpts-unseen-potential-5-features-that-will-enhance-your-experience/"><u>ChatGPT's Unseen Potential: 5 Features That Will Enhance Your Experience</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/elevate-your-live-recordings-on-facebook-with-4-methods/"><u>Elevate Your Live Recordings on Facebook with 4 Methods</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/exploring-the-latest-in-instagram-filters-for-stunning-visuals-for-2024/"><u>Exploring the Latest in Instagram Filters for Stunning Visuals for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-vivo-v29e-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Vivo V29e Device</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ative-approaches-to-enhance-the-impact-of-your-youtube-intro-for-2024/"><u>Innovative Approaches to Enhance the Impact of Your YouTube Intro for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-game-changing-imac-m1-review-stunning-aesthetics-paired-with-unprecedented-processing-ability/"><u>The Game-Changing iMac M1 Review: Stunning Aesthetics Paired with Unprecedented Processing Ability</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-guide-to-profit-sharing-for-creators-of-video-clips-for-2024/"><u>[New] A Guide to Profit Sharing for Creators of Video Clips for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/reating-captivating-life-enriching-video-content-for-2024/"><u>[New] Creating Captivating Life-Enriching Video Content for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ssential-skills-for-youtube-success-8-free-online-courses/"><u>[New] Essential Skills for YouTube Success 8 Free Online Courses</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-leading-minds-in-online-creation/"><u>[Updated] Leading Minds in Online Creation</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-synchronizing-dates-with-visual-memories/"><u>[Updated] Synchronizing Dates with Visual Memories</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-analyzing-major-editions-and-phases-of-windows-movie-maker/"><u>2024 Approved Analyzing Major Editions and Phases of Windows Movie Maker</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/e-the-brand-you-want-with-our-exclusive-set-of-free-graphics/"><u>Become the Brand You Want With Our Exclusive Set of FREE Graphics</u></a></li>
+<li><a href="https://article-tips.techidaily.com/discovering-toms-hardware-in-depth-reviews-and-tech-insights/"><u>Discovering Tom's Hardware: In-Depth Reviews & Tech Insights</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-pro-max-to-other-iphone-12-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 Pro Max To Other iPhone 12 devices? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/latest-updates-whats-fresh-with-movavi-screen-recorder/"><u>Latest Updates: What's Fresh with Movavi Screen Recorder</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-in-2024-design-cartoon-images-with-the-best-tools/"><u>Updated In 2024, Design Cartoon Images With the Best Tools</u></a></li>
 </ul></div>
 

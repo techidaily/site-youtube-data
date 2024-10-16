@@ -1,7 +1,7 @@
 ---
 title: "\"[New] OBS 101  Youtube Live Stream Setup Tutorial for 2024\""
-date: 2024-10-06T16:33:35.175Z
-updated: 2024-10-09T16:16:59.254Z
+date: 2024-10-13T23:32:19.128Z
+updated: 2024-10-15T16:40:06.701Z
 tags:
   - ai video
   - ai youtube
@@ -94,13 +94,6 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![ share via](https://images.wondershare.com/filmora/article-images/share-via.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2.Set up Your Live Streaming Encoder
 
 As soon as you have completed the above set up then next task is to adjust settings of your streaming encoder. It is possible to make easy selection out of wide range of live streaming encoders. The details below are provided with reference to OBS too that is open source type free to access software.
@@ -110,6 +103,13 @@ As soon as you have completed the above set up then next task is to adjust setti
 **Step 2:** Now launch OBS on your device and directly go to settings option.
 
 ![ Go to setting](https://images.wondershare.com/filmora/article-images/go-to-setting.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3:** It is time to copy the stream key from YouTube and then paste it directly in the specified field of OBS.
 
@@ -124,10 +124,10 @@ As soon as you have completed the above set up then next task is to adjust setti
 ![ click start streaming](https://images.wondershare.com/filmora/article-images/click-start-streaming.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Youtube Events set up
@@ -137,6 +137,13 @@ Live stream is little different from Stream Now platform as it allows users to s
 **Step 1:** Simply click on the schedule event option on screen.
 
 ![schedule ](https://images.wondershare.com/filmora/article-images/schedule.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2:** It is much easier to make settings for basic information as well as audience type. Make some desired changes to SNS platform. If you select the Quick type then it will directly select your webcam and you need not to make additional complicated settings whereas the custom type option provides easy set up options with OBS.
 
@@ -150,16 +157,16 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 ![ monetization](https://images.wondershare.com/filmora/article-images/monetization.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5:** As soon as you finish all above settings then simply click on the create event option.
 
 ![click create event](https://images.wondershare.com/filmora/article-images/click-create-event.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 6:** One more window will appear on your screen and here you can make adjustment for preferred bit rate. Also put your dedicated stream key with encoder.
 
@@ -169,44 +176,37 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 ![save changes ](https://images.wondershare.com/filmora/article-images/save-changes.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 8:** Now click on events and here you will be able to find your event. Move to live control room if you want to access complete details about this event and you can easily delete it.
 
 ![live control room ](https://images.wondershare.com/filmora/article-images/live-control-room.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 9:** Users can set privacy terms or simple delete the event that is currently in action.
 
 ![set the privacy ](https://images.wondershare.com/filmora/article-images/set-the-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Video tutorial
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -229,19 +229,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/roven-pathways-to-profit-with-youtube-short-videos-for-2024/"><u>[New] Proven Pathways to Profit with YouTube Short Videos for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-delving-into-the-world-of-mukbang-videos-for-2024/"><u>[Updated] Delving Into the World of Mukbang Videos for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-launching-a-mobile-friendly-youtube-space-for-entrepreneurs/"><u>[Updated] Launching a Mobile-Friendly YouTube Space for Entrepreneurs</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-the-screen-recording-faceoff-bandicam-versus-camtasiaenas/"><u>[Updated] The Screen Recording Faceoff Bandicam Versus Camtasia'enas</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-breakthrough-strategies-for-peak-video-viewership-times/"><u>2024 Approved Breakthrough Strategies for Peak Video Viewership Times</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-pinnacle-group-of-multimedia-harmony-makers/"><u>2024 Approved Pinnacle Group of Multimedia Harmony Makers</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-latest-amd-radeon-pro-w5700-driver-updates-for-compatible-windows-versions/"><u>Get the Latest AMD Radeon Pro W5700 Driver Updates for Compatible Windows Versions</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-itel-p55plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Itel P55+? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-locked-xiaomi-redmi-a2plus-phone-by-drfone-android/"><u>How to Reset a Locked Xiaomi Redmi A2+ Phone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-infinix-note-30-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Infinix Note 30 | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-stream-away-the-leading-online-video-havens/"><u>In 2024, Stream Away The Leading Online Video Havens</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-supercharge-your-online-sales-strategy-with-the-best-15-social-media-insight-apps/"><u>In 2024, Supercharge Your Online Sales Strategy with the Best 15 Social Media Insight Apps</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-heart-of-storytelling-engaging-dialogue-in-scripts/"><u>In 2024, The Heart of Storytelling Engaging Dialogue in Scripts</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-rated-mac-software-expert-picks-and-reviews/"><u>Top-Rated Mac Software : Expert Picks and Reviews</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/levate-your-social-media-game-discover-the-best-5-youtube-promotion-strategies-for-2024/"><u>[New] Elevate Your Social Media Game Discover the Best 5 YouTube Promotion Strategies for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/lobal-youtube-rich-list-pinnacle-for-2024/"><u>[New] Global YouTube Rich List Pinnacle for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-mastering-the-art-of-youtube-thumbnails-on-macos/"><u>[New] In 2024, Mastering the Art of YouTube Thumbnails on macOS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-prime-sites-to-explore-glossy-golden-typography-designs/"><u>[New] Prime Sites to Explore Glossy, Golden Typography Designs</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-how-to-quickly-capture-iphone-screens-on-the-fly-for-2024/"><u>[Updated] How to Quickly Capture iPhone Screens on the Fly for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-launching-winning-steps-for-an-epic-youtube-gaming-channel/"><u>[Updated] In 2024, Launching Winning Steps for an Epic YouTube Gaming Channel</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-strategic-release-dates-for-peak-youtube-engagement/"><u>[Updated] In 2024, Strategic Release Dates for Peak YouTube Engagement</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-perfecting-your-youtube-presence-a-video-upload-manual/"><u>2024 Approved Perfecting Your YouTube Presence A Video Upload Manual</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-a-fanbase-with-youtube-streams/"><u>Building a Fanbase with YouTube Streams</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Samsung Galaxy A54 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-youtube-growth-secrets-masterful-narration-techniques/"><u>In 2024, YouTube Growth Secrets Masterful Narration Techniques</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/perfecting-profile-collaboration-add-linktree-to-your-tiktok-bio/"><u>Perfecting Profile Collaboration Add Linktree to Your TikTok Bio</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-samsung-galaxy-m34-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Samsung Galaxy M34 5G Location | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ree-editors-androids-ultimate-choice-for-2024/"><u>Top Free Editors Android's Ultimate Choice for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/understanding-the-usb-composite-device-a-guide-to-legacy-usb-systems/"><u>Understanding the USB Composite Device: A Guide to Legacy USB Systems</u></a></li>
 </ul></div>
 

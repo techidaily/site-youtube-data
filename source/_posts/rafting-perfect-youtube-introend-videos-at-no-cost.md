@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting Perfect YouTube Intro/End Videos at No Cost"
-date: 2024-10-05T16:28:36.262Z
-updated: 2024-10-09T16:26:19.089Z
+date: 2024-10-11T17:07:01.589Z
+updated: 2024-10-15T19:11:56.885Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +125,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,24 +152,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-5-expert-approaches-to-preserve-virtual-reality-adventures-for-2024/"><u>[New] 5 Expert Approaches to Preserve Virtual Reality Adventures for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ndroid-users-the-top-6-video-downloaders-for-easy-access/"><u>[New] Android Users The Top 6 Video Downloaders for Easy Access</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-uniting-voices-and-visions-the-top-mics-for-educational-gaming-and-lifestyle-yt-screens/"><u>[New] In 2024, Uniting Voices & Visions The Top Mics For Educational, Gaming, and Lifestyle YT Screens</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-dynamic-duo-of-filmmaking-and-thumbnail-design-for-2024/"><u>[New] The Dynamic Duo of Filmmaking and Thumbnail Design for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nderstanding-and-applying-youtube-markup/"><u>[New] Understanding & Applying YouTube Markup</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-decoding-the-visual-language-of-youtube-thumbnails/"><u>[Updated] 2024 Approved Decoding the Visual Language of YouTube Thumbnails</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-crafting-a-cash-cascade-on-youtube-strategies-beyond-the-ad-model-for-2024/"><u>[Updated] Crafting a Cash Cascade on YouTube Strategies Beyond the Ad Model for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-create-effective-youtube-advertisements-on-a-budget/"><u>[Updated] Create Effective YouTube Advertisements on a Budget</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-creating-channel-names-that-capture-attention/"><u>[Updated] In 2024, Creating Channel Names That Capture Attention</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-strategies-to-arrange-content-in-youtube-media/"><u>[Updated] In 2024, Strategies to Arrange Content in YouTube Media</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-ultimate-live-setting-picks/"><u>[Updated] Ultimate Live Setting Picks</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/zing-video-success-self-vs-rivals-in-the-youtube-arena-for-2024/"><u>Analyzing Video Success Self Vs. Rivals in the YouTube Arena for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-sony-hdrcx405s-image-balance-tech/"><u>Discovering Sony HDRCX405's Image Balance Tech</u></a></li>
-<li><a href="https://common-error.techidaily.com/expert-tips-to-fix-windows-update-failure-error-0x80240017-effectively/"><u>Expert Tips to Fix Windows Update Failure (Error 0X80240017) Effectively</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-10-iconic-beauty-personalities-to-follow-on-youtube/"><u>In 2024, 10 Iconic Beauty Personalities to Follow on YouTube</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-make-your-own-meme/"><u>In 2024, Make Your Own Meme</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-unlocking-the-power-of-closing-credits-on-vimeo-videos/"><u>In 2024, Unlocking the Power of Closing Credits on Vimeo Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-unravel-the-revenue-riddle-googles-guided-triple-steps-to-youtube-income-analysis/"><u>In 2024, Unravel the Revenue Riddle Google's Guided Triple Steps to YouTube Income Analysis</u></a></li>
-<li><a href="https://games-able.techidaily.com/leading-asus-rog-ally-docks-best-of-2024/"><u>Leading ASUS ROG Ally Docks - Best of 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-gazescope-grading-guide/"><u>[New] 2024 Approved GazeScope Grading Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/reating-accessibility-your-guide-to-an-intuitive-youtube-signup-for-2024/"><u>[New] Creating Accessibility Your Guide to an Intuitive YouTube Signup for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-10-top-zero-charge-web-tools-to-craft-videos/"><u>[Updated] 10 Top Zero-Charge Web Tools to Craft Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-the-complete-guide-to-audio-editing-in-audacity-made-simple/"><u>[Updated] 2024 Approved The Complete Guide to Audio Editing in Audacity, Made Simple</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-budget-friendly-tactics-to-increase-your-youtube-video-impact-for-2024/"><u>[Updated] Budget-Friendly Tactics to Increase Your YouTube Video Impact for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/affordable-wireless-charging-pads-for-modern-phones/"><u>Affordable Wireless Charging Pads for Modern Phones</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-setup-official-ricoh-printer-drivers-compatible-with-all-windows-versions/"><u>Easy Setup: Official Ricoh Printer Drivers Compatible with All Windows Versions</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-oppo-find-n3-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Oppo Find N3 Safely | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/ultimate-guide-solving-windows-11-sound-problems-in-just-5-simple-steps/"><u>Ultimate Guide: Solving Windows 11 Sound Problems in Just 5 Simple Steps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/king-channel-mastery-with-studio-power-ups-for-2024/"><u>Unlocking Channel Mastery with Studio Power-Ups for 2024</u></a></li>
 </ul></div>
 

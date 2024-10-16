@@ -1,7 +1,7 @@
 ---
 title: "Turn On/Off YouTube Feedback Settings With This Guide for 2024"
-date: 2024-10-04T16:27:00.517Z
-updated: 2024-10-09T16:22:01.365Z
+date: 2024-10-10T23:46:04.877Z
+updated: 2024-10-15T22:38:20.650Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -116,20 +123,19 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -148,10 +154,16 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -169,10 +181,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -196,16 +208,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-irreversible-termination-of-youtubes-brevity-mode/"><u>[New] In 2024, Irreversible Termination of YouTube’s Brevity Mode</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-quick-simple-steps-to-saving-twitters-emotive-graphics-gifs/"><u>[New] Quick, Simple Steps to Saving Twitter’s Emotive Graphics (GIFs)</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/elf-portraits-for-social-media-success/"><u>[New] Self-Portraits for Social Media Success</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-crafting-a-revenue-generating-online-presence/"><u>[Updated] 2024 Approved Crafting a Revenue-Generating Online Presence</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unleash-potential-with-these-essential-editing-tips-for-beginners/"><u>[Updated] 2024 Approved Unleash Potential with These Essential Editing Tips for Beginners</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-easy-breezy-country-playlist-best-songs-for-stress-relief-tiktok-for-2024/"><u>[Updated] Easy Breezy Country Playlist Best Songs for Stress Relief (TikTok) for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-how-to-add-and-change-thumbnails-of-twitter-videos-for-2024/"><u>[Updated] How to Add and Change Thumbnails of Twitter Videos for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ing-visibility-on-youtube-the-ultimate-guide-to-featured-channel-placement-for-2024/"><u>Crafting Visibility on YouTube The Ultimate Guide to Featured Channel Placement for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/dive-deep-into-color-correction-top-11-resources/"><u>Dive Deep Into Color Correction Top 11 Resources</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/free-online-tiff-converter-movavi-edition-convert-pgm-images-with-ease/"><u>Free Online TIFF Converter - Movavi Edition: Convert PGM Images with Ease</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/steam-prohibits-blockchain-based-games-valves-ban-on-nft-and-crypto-titles-explained/"><u>Steam Prohibits Blockchain-Based Games: Valve's Ban on NFT and Crypto Titles Explained</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rand-your-content-download-complimentary-templates-for-youtube-makers/"><u>[New] Brand Your Content Download Complimentary Templates for YouTube Makers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-onscreen-excellence-video-talent-licensing/"><u>[New] Onscreen Excellence Video Talent Licensing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/here-the-magic-of-video-editing-begins-on-youtube/"><u>[New] Where the Magic of Video Editing Begins on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/hich-video-sharing-app-should-i-pick-tiktok-or-youtube-shorts-perspective-for-2024/"><u>[New] Which Video-Sharing App Should I Pick? TikTok or YouTube Shorts Perspective for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-entering-the-world-of-content-creation-sign-up-tutorial/"><u>[Updated] 2024 Approved Entering the World of Content Creation Sign Up Tutorial</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-wealth-dissection-of-the-elusive-mr-beast/"><u>[Updated] In 2024, Wealth Dissection of the Elusive Mr. Beast</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-in-depth-look-at-youtubes-earnings-cycle/"><u>2024 Approved In-Depth Look at YouTube’s Earnings Cycle</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-quick-methods-for-saving-videos-on-youtube/"><u>2024 Approved Quick Methods for Saving Videos on YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-top-4k-capture-tools-for-ultimate-hd-recording/"><u>2024 Approved Top 4K Capture Tools for Ultimate HD Recording</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-14-pro-max-online-here-are-6-easy-ways-by-drfone-ios/"><u>How to Unlock Apple iPhone 14 Pro Max Online? Here are 6 Easy Ways</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726224729910-movavi/"><u>Movaviでシームレスな画像バックグラウンド作成ガイド</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/real-time-streaming-app-discover-the-power-of-manycam-your-ultimate-solution-for-remote-broadcasting-and-online-presence/"><u>Real-Time Streaming App: Discover the Power of ManyCam - Your Ultimate Solution for Remote Broadcasting and Online Presence</u></a></li>
+<li><a href="https://extra-support.techidaily.com/stabilizing-shaky-images-a-realistic-benefit-or-hype-in-2024/"><u>Stabilizing Shaky Images A Realistic Benefit or Hype, In 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ate-guide-igniting-video-visionaries-in-your-channel-for-2024/"><u>Ultimate Guide Igniting Video Visionaries in Your Channel for 2024</u></a></li>
 </ul></div>
 

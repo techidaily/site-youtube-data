@@ -1,7 +1,7 @@
 ---
 title: "Navigating Google Trends for Inspiration in Video Making for 2024"
-date: 2024-10-04T16:21:32.427Z
-updated: 2024-10-09T16:24:18.320Z
+date: 2024-10-10T17:39:49.375Z
+updated: 2024-10-15T16:14:07.546Z
 tags:
   - ai video
   - ai youtube
@@ -51,13 +51,6 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -67,6 +60,19 @@ Then click from 'Daily Search Trends' to 'Realtime Search Trends'.
 On top you will see two drop-down menus, one is for the category and one is for location.
 
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Under **All categories** select the general theme your channel falls under.
 
@@ -81,13 +87,6 @@ Once you have narrowed down your results you can just scroll through and pick ou
 For example, if you have a gaming channel and you’re looking for a non-gameplay topic to make a video on, you would look under Sci/Tech. If I look under that category today (May 29, 2017) and specify that I want topics trending in the United States then these are my top 5 results:
 
 ![Google Trends Category YouTube Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-categories.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The first two happen to be about gaming. If you, as a gamer, had any strong reaction to either of these topics – whether it’s that you feel like you’re knowledgeable about them, or that you’re excited by something that’s coming up, or that something made you groan – then that would be a sign that you should make a video. Capitalizing on a trend while also covering a topic you have a lot to say about is always a good move.
 
@@ -105,13 +104,34 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 
 ![Google Trends Keywords YouTube Video](https://images.wondershare.com/filmora/article-images/explore-topic-in-google-trends.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
@@ -143,21 +163,7 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -180,16 +186,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/harting-your-youtube-trajectory-essential-tools-from-social-blade/"><u>[New] Charting Your YouTube Trajectory Essential Tools From Social Blade</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/avigating-vlogging-nuances-with-confidence-and-clarity/"><u>[New] Navigating Vlogging Nuances with Confidence and Clarity</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-screen-capture-without-a-penny-the-top-apps-reviewed/"><u>[New] Screen Capture Without a Penny The Top Apps Reviewed</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-creating-a-memorable-and-unique-moniker-for-your-filmora-content/"><u>[Updated] 2024 Approved Creating a Memorable and Unique Moniker for Your Filmora Content</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-essential-strategies-for-viewing-your-subscribers/"><u>[Updated] 2024 Approved Essential Strategies for Viewing Your Subscribers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/combining-ai-with-messaging-the-guide-to-using-chatgpt-for-whatsapp-support/"><u>Combining AI with Messaging: The Guide to Using ChatGPT for WhatsApp Support</u></a></li>
-<li><a href="https://win-blog.techidaily.com/dying-light-optimization-guide-eliminating-frustrating-lag-issues-for-smooth-play/"><u>Dying Light Optimization Guide: Eliminating Frustrating Lag Issues for Smooth Play</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-oppo-a78-is-unlocked-by-drfone-android/"><u>How To Check if Your Oppo A78 Is Unlocked</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-f54-5g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy F54 5G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/latest-android-selection-ranked-top-10-apps-for-saving-facebook-videos/"><u>Latest Android Selection Ranked Top 10 Apps for Saving Facebook Videos</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-advanced-fcpx-editing-l-cuts-j-cuts-and-expert-audio-tips/"><u>New 2024 Approved Advanced FCPX Editing L-Cuts, J-Cuts, and Expert Audio Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ssential-youtube-marketing-techniques-ranked-from-best-to-worst/"><u>[New] Essential YouTube Marketing Techniques – Ranked From Best to Worst</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-seamless-hd-viewing-top-10-android-video-apps/"><u>[New] In 2024, Seamless HD Viewing Top 10 Android Video Apps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-hottest-youtube-to-mp3-software-picks-top-10/"><u>[New] In 2024, The Hottest YouTube-to-MP3 Software Picks (Top 10)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-effortless-inclusion-youtube-media-on-slides/"><u>[Updated] 2024 Approved Effortless Inclusion YouTube Media on Slides</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-premium-notebooks-select-the-best-for-professional-edits/"><u>[Updated] 2024 Approved Premium Notebooks Select the Best for Professional Edits</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-youtubers-dream-gear-top-cameras-unveiled/"><u>[Updated] 2024 Approved YouTubers' Dream Gear Top Cameras Unveiled</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-best-cheap-action-cameras-to-purchase-for-under-100/"><u>[Updated] The Best Cheap Action Cameras to Purchase for Under $100</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-guide-to-vlc-for-networked-webcasting/"><u>2024 Approved Expert Guide to VLC for Networked Webcasting</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-preventing-total-loss-of-image-in-streaming-videos-on-youtube/"><u>2024 Approved Preventing Total Loss of Image in Streaming Videos on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-trailblazers-of-the-cinematic-visual-and-auditory-fusion/"><u>2024 Approved Trailblazers of the Cinematic, Visual & Auditory Fusion</u></a></li>
+<li><a href="https://win-dash.techidaily.com/enhance-security-downloading-and-updating-windows-biometric-driver-software/"><u>Enhance Security: Downloading & Updating Windows Biometric Driver Software</u></a></li>
+<li><a href="https://win-dash.techidaily.com/epson-xp-330-driver-downloads-compatible-versions-available/"><u>Epson XP-330 Driver Downloads: Compatible Versions Available</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-meizu-21-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Meizu 21 Pro to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-unveiling-ideal-frames-per-second-for-excellent-slow-mo-videos/"><u>In 2024, Unveiling Ideal Frames Per Second For Excellent Slow-Mo Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ative-video-concepts-through-google-trends-exploration/"><u>Innovative Video Concepts Through Google Trends Exploration</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/simple-tips-for-capturing-google-voice-conversations/"><u>Simple Tips for Capturing Google Voice Conversations</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/trouble-with-hyperx-cloud-alphas-mic-successful-repair-strategies-unveiled/"><u>Trouble with HyperX Cloud Alpha's Mic? Successful Repair Strategies Unveiled</u></a></li>
 </ul></div>
 
