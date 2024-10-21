@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Simplify Your Life  A Guide on Quick Removal of YouTube Feedback\""
-date: 2024-10-10T20:26:22.943Z
-updated: 2024-10-15T17:12:25.782Z
+date: 2024-10-18T03:43:33.871Z
+updated: 2024-10-20T17:04:39.961Z
 tags:
   - ai video
   - ai youtube
@@ -75,10 +75,10 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
@@ -96,10 +96,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
@@ -123,10 +123,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -138,6 +138,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -145,13 +152,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -182,24 +182,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unlocking-instagrams-daily-visual-narratives/"><u>[Updated] 2024 Approved Unlocking Instagram's Daily Visual Narratives</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-mastering-the-art-of-stabilizing-handheld-gopro-videos/"><u>[Updated] Mastering the Art of Stabilizing Handheld GoPro Videos</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/beginners-handbook-mastering-the-basics-of-home-audio-systems/"><u>Beginner's Handbook: Mastering the Basics of Home Audio Systems</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-enhance-engagement-select-best-fonts-for-your-thumbnails/"><u>In 2024, Enhance Engagement Select Best Fonts for Your Thumbnails</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-enhance-video-visibility-with-effective-thumbnail-scaling/"><u>In 2024, Enhance Video Visibility with Effective Thumbnail Scaling</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-enhancing-video-quality-with-right-lighting/"><u>In 2024, Enhancing Video Quality with Right Lighting</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-exploring-vlogging-selecting-the-best-cameras-and-lenses/"><u>In 2024, Exploring Vlogging Selecting the Best Cameras & Lenses</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-from-zero-to-hundred-hundreders-yt-success-story/"><u>In 2024, From Zero to Hundred Hundreders YT Success Story</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-getting-started-on-youtube-setting-up-and-generating-income/"><u>In 2024, Getting Started on YouTube Setting Up & Generating Income</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-how-user-generated-feedback-influences-video-ranks/"><u>In 2024, How User-Generated Feedback Influences Video Ranks</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-instant-techniques-to-shuffle-youtube-song-sequences/"><u>In 2024, Instant Techniques to Shuffle YouTube Song Sequences</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-mastering-channel-artistry-explore-these-10-visual-creation-tools/"><u>In 2024, Mastering Channel Artistry Explore These 10 Visual Creation Tools</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-art-of-podcast-hooks-compelling-beginnings/"><u>In 2024, The Art of Podcast Hooks Compelling Beginnings</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-tagging-amplifying-your-youtube-presence/"><u>Smart Tagging Amplifying Your YouTube Presence</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-ultimate-guide-to-ai-chatbot-services-what-you-should-look-for-7-key-points/"><u>The Ultimate Guide to AI Chatbot Services: What You Should Look For (7 Key Points)</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/ultimate-steps-for-retrieving-files-from-your-laptops-solid-state-drive-a-complete-manual/"><u>Ultimate Steps for Retrieving Files From Your Laptop's Solid State Drive: A Complete Manual</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-best-of-the-best-10-webcam-recording-programs-for-windows-10/"><u>Updated 2024 Approved Best of the Best 10 Webcam Recording Programs for Windows 10</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-free-youtube-spotlight-with-two-key-approaches/"><u>[New] In 2024, Free YouTube Spotlight with Two Key Approaches</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-8-best-mirrorless-cameras-for-vlogging-for-2024/"><u>[Updated] 8 Best Mirrorless Cameras for Vlogging for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unveiling-the-mystery-of-free-pictorial-video-downloads/"><u>[Updated] Unveiling the Mystery of Free Pictorial Video Downloads</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-beat-the-heat-tips-for-uploading-songs-to-youtube/"><u>2024 Approved Beat the Heat Tips for Uploading Songs to YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-10-speedy-rising-yt-spaces-for-cognitive-illumination/"><u>2024 Approved The 10 Speedy Rising YT Spaces For Cognitive Illumination</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-unwind-and-capture-your-games-in-peace/"><u>2024 Approved Unwind and Capture Your Games in Peace</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-what-drives-youtubes-content-creator-hub/"><u>2024 Approved What Drives YouTube's Content Creator Hub?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/comparing-vr-to-360-degree-video-whats-the-distinction/"><u>Comparing VR to 360-Degree Video What's the Distinction?</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-hidden-world-of-shadowbanning/"><u>Deciphering the Hidden World of Shadowbanning</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ting-youtube-performance-consistency-in-cc-usage-for-2024/"><u>Elevating YouTube Performance Consistency in CC Usage for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-12-mini-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 12 mini without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/mastering-the-solution-for-windows-update-glitches-tackling-error-code-0x8028007/"><u>Mastering the Solution for Windows Update Glitches - Tackling Error Code 0X802#8007</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576296887-transform-your-talking-ability-now-at-half-the-usual-rate/"><u>Transform Your Talking Ability - Now at Half the Usual Rate!</u></a></li>
 </ul></div>
 

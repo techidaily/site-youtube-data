@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering the Art of Audio Capture Sans Microphone"
-date: 2024-10-08T22:13:25.704Z
-updated: 2024-10-15T22:11:52.102Z
+date: 2024-10-15T00:18:05.117Z
+updated: 2024-10-21T08:16:39.423Z
 tags:
   - ai video
   - ai youtube
@@ -52,19 +52,6 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
@@ -72,10 +59,10 @@ The best way to limit the amount of background noise you pick up in your sound r
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Pick a Good Room
@@ -100,13 +87,6 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
@@ -127,6 +107,13 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
@@ -134,13 +121,20 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -163,20 +157,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-crafting-captivating-thumbnails-a-comprehensive-guide-for-youtube-creators/"><u>[New] 2024 Approved Crafting Captivating Thumbnails A Comprehensive Guide for YouTube Creators</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-diy-youtube-openers-technique-one-and-technique-two/"><u>[New] 2024 Approved DIY YouTube Openers Technique One & Technique Two</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-easy-access-luxury-free-access-to-your-dreamset-of-50-banners/"><u>[New] 2024 Approved Easy-Access Luxury - Free Access to Your Dreamset of 50 Banners!</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-enhance-every-viewing-moment-with-these-top-6-free-platforms-for-youtube-short-downloads/"><u>[New] 2024 Approved Enhance Every Viewing Moment with These Top 6 Free Platforms for YouTube Short Downloads</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-evaluating-dailymotion-vs-youtube-profitability/"><u>[New] 2024 Approved Evaluating Dailymotion vs YouTube Profitability</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-youtube-studio-masterclass-elevating-your-edits/"><u>[New] 2024 Approved The YouTube Studio Masterclass Elevating Your Edits</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-simplified-guide-to-advanced-xbox-video-recording-methods-for-2024/"><u>[New] Simplified Guide to Advanced Xbox Video Recording Methods for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-the-20-word-formula-to-skyrocket-your-business-reach-for-2024/"><u>[New] The 20-Word Formula to Skyrocket Your Business Reach for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-cutting-edge-designers-toolkit-free-mac-drawing-software-guide/"><u>[Updated] In 2024, Cutting-Edge Designer's Toolkit Free Mac Drawing Software Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-understanding-and-adhering-to-twitters-video-standards/"><u>[Updated] In 2024, Understanding and Adhering to Twitter's Video Standards</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/7-strategies-to-fix-failed-security-codes-from-epic-games-on-windows/"><u>7 Strategies to Fix Failed Security Codes From Epic Games on Windows</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Tecno Phantom V Flip | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-honor-90-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Honor 90 | Dr.fone</u></a></li>
-<li><a href="https://win-bytes.techidaily.com/how-to-reclaim-lost-surveillance-images-after-erasure/"><u>How to Reclaim Lost Surveillance Images After Erasure?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-guide-to-apples-top-tablets-ipad-pro-vs-ipad-air-showdown-wiredtechreview/"><u>Ultimate Guide to Apple's Top Tablets: IPad Pro Vs. IPad Air Showdown | WiredTechReview</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/omprehensive-directory-extracting-youtube-intros-for-2024/"><u>[New] Comprehensive Directory Extracting Youtube Intros for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ssential-vids-summary-uncovered/"><u>[New] Essential Vids Summary Uncovered</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-step-by-step-tutorial-download-youtube-videos-in-pieces/"><u>[New] In 2024, Step-by-Step Tutorial Download YouTube Videos in Pieces</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outubes-rewind-feat-unraveling-sequence-with-a-single-click/"><u>[New] YouTube's Rewind Feat Unraveling Sequence with a Single Click</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-cutting-edge-free-and-easy-top-11-youtube-title-inventors/"><u>[Updated] Cutting-Edge, Free, and Easy Top 11 YouTube Title Inventors</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-facebooks-top-visual-discoveries-a-guide/"><u>[Updated] Facebook's Top Visual Discoveries A Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-concept-to-completion-review-of-magix-vpx/"><u>[Updated] From Concept to Completion Review of Magix VPX</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-prime-opening-strategies-top-16-youtube-vids-that-thrive/"><u>[Updated] In 2024, Prime Opening Strategies Top 16 YouTube Vids That Thrive</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unravel-the-mystery-of-the-overly-green-hue-in-mac-recordings/"><u>[Updated] Unravel the Mystery of the Overly Green Hue in Mac Recordings</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/decoding-wi-fi-phone-calls-a-complete-overview/"><u>Decoding Wi-Fi Phone Calls: A Complete Overview</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-vivo-y100a-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Vivo Y100A Device SIM</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-pioneers-in-digital-avengers-landscapes/"><u>In 2024, Pioneers in Digital Avengers Landscapes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-compre-written-by-jane-doe-phd-in-cognitive-psychology-and-behavioral-science/"><u>In 2024, The Compre Written By Jane Doe, PhD in Cognitive Psychology and Behavioral Science</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Oppo A2? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/introduce-movement-variance-to-pixels-in-ps/"><u>Introduce Movement Variance to Pixels in PS</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/review-of-knack-striking-main-figure-within-conventional-gaming-landscape/"><u>Review of Knack: Striking Main Figure Within Conventional Gaming Landscape</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/filmed-brilliance-secrets-for-youtube-success-for-2024/"><u>Self-Filmed Brilliance Secrets for YouTube Success for 2024</u></a></li>
 </ul></div>
 

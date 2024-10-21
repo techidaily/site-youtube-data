@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Utilizing Continuous Lights for Comfortable Filming"
-date: 2024-10-09T17:18:36.805Z
-updated: 2024-10-15T17:29:33.713Z
+date: 2024-10-15T12:43:43.306Z
+updated: 2024-10-21T01:24:48.138Z
 tags:
   - ai video
   - ai youtube
@@ -52,10 +52,10 @@ The final step to creating three point lighting is to set up another light behin
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -85,10 +85,16 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -98,10 +104,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -111,10 +117,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,14 +144,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-elevate-video-popularity-with-smart-thumbnails/"><u>[New] 2024 Approved Elevate Video Popularity with Smart Thumbnails</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-strategies-for-keeping-your-youtube-video-under-cc-accessible/"><u>[New] 2024 Approved Strategies for Keeping Your YouTube Video Under CC Accessible</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-igniting-instagram-interest-maximizing-content-reach-and-interactions/"><u>[New] In 2024, Igniting Instagram Interest Maximizing Content Reach and Interactions</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-professionals-insight-into-morphvox-techniques-for-precise-audio-alteration/"><u>[Updated] 2024 Approved Professional's Insight Into MorphVOX Techniques for Precise Audio Alteration</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-best-hidden-downloaders-1-8-unveiled-for-2024/"><u>[Updated] Best Hidden Downloaders - #1-8 Unveiled for 2024</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/1-can-you-trust-the-security-of-vlc-media-player/"><u>1. Can You Trust the Security of VLC Media Player?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/apparition-editing-in-slow-motion-for-2024/"><u>Apparition Editing in Slow-Motion for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-to-save-youtube-playback-as-a-free-screencast/"><u>Learn to Save YouTube Playback as a Free Screencast</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-method-image-alchemy-into-engaging-youtube-thumbnail-pics/"><u>Swift Method Image Alchemy Into Engaging YouTube Thumbnail Pics</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-fixing-skewed-views-in-internet-based-videos/"><u>[Updated] Fixing Skewed Views in Internet-Based Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-future-of-youtube-naming-trendsetting-tips-for-video-blogging-and-filmmaking-max-156-characters/"><u>[Updated] In 2024, The Future of YouTube Naming Trendsetting Tips for Video Blogging & Filmmaking (Max 156 Characters)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlocking-youtube-success-try-these-proven-traffic-boosters/"><u>[Updated] In 2024, Unlocking YouTube Success Try These Proven Traffic Boosters</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-launching-a-graphics-career-strategies-and-steps/"><u>[Updated] Launching a Graphics Career Strategies and Steps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mastering-youtubes-defense-confronting-critics/"><u>[Updated] Mastering YouTube's Defense Confronting Critics</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-optimal-mics-tailored-to-youtube-professionals-for-2024/"><u>[Updated] Optimal Mics Tailored to YouTube Professionals for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-permanently-quit-youtube-shorts-now/"><u>[Updated] Permanently Quit YouTube Shorts Now</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/best-photo-repair-software-to-repair-corrupt-photos/"><u>Best Photo Repair Software to Repair Corrupt Photos</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-many-attempts-to-unlock-iphone-6-plus-drfone-by-drfone-ios/"><u>How Many Attempts To Unlock iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-win11s-quickest-image-viewing-experience/"><u>In 2024, Win11's Quickest Image Viewing Experience</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/oppo-a1-5g-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo A1 5G Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-blueprint-of-trust-unveiling-facebooks-new-policies-hub/"><u>The Blueprint of Trust: Unveiling Facebook’s New Policies Hub</u></a></li>
+<li><a href="https://video-capture.techidaily.com/top-strategies-efficiently-saving-rocket-league-matches/"><u>Top Strategies Efficiently Saving Rocket League Matches</u></a></li>
 </ul></div>
 

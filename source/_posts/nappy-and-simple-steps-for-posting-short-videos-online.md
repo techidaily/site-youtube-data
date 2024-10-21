@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Snappy and Simple  Steps for Posting Short Videos Online\""
-date: 2024-10-09T20:32:30.362Z
-updated: 2024-10-15T16:24:01.875Z
+date: 2024-10-18T19:45:48.965Z
+updated: 2024-10-20T21:01:02.347Z
 tags:
   - ai video
   - ai youtube
@@ -87,13 +87,6 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 1: Upload an Existing Short Video
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
@@ -107,6 +100,13 @@ On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Crea
 #### Step 2: Add Details
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -125,16 +125,10 @@ Please note you will not see the **Create a Short** option if you are outsides o
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
@@ -153,6 +147,13 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -160,20 +161,19 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -196,24 +196,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-banner-bonanza-unlimited-50-free-youtube-designs/"><u>[New] 2024 Approved Banner Bonanza Unlimited 50 FREE YouTube Designs</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-comparing-free-and-premium-youtube-experiences-whats-best/"><u>[New] 2024 Approved Comparing Free and Premium YouTube Experiences What's Best?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-elevating-video-popularity-on-youtube/"><u>[New] 2024 Approved Elevating Video Popularity on YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-engage-entertain-and-captivate-adopting-two-point-of-view-in-your-next-youtube-reaction-video-2-pov-method/"><u>[New] 2024 Approved Engage, Entertain and Captivate – Adopting Two-Point of View in Your Next YouTube Reaction Video (2 POV Method)</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-following-paths-those-whove-left-instagram/"><u>[New] 2024 Approved Following Paths Those Who've Left Instagram</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-inside-out-the-explanation-for-youtubes-unlisted-media/"><u>[New] 2024 Approved Inside Out The Explanation for YouTube's Unlisted Media</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-key-equipment-decisions-for-youtubers-on-a-budget/"><u>[New] 2024 Approved Key Equipment Decisions for YouTubers on a Budget</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-no-need-for-apps-download-youtube-files/"><u>[New] 2024 Approved No Need for Apps Download YouTube Files</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-perfect-video-gear-starting-with-beginner-cameras/"><u>[New] 2024 Approved Perfect Video Gear Starting with Beginner Cameras</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-creating-compelling-sports-content-from-the-ground-up/"><u>[New] Creating Compelling Sports Content From the Ground Up</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-easy-path-from-spotify-to-youtube-discover-the-best-playlist-tools-for-2024/"><u>[Updated] Easy Path From Spotify to YouTube Discover the Best Playlist Tools for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/before-you-invest-in-a-wearable-gadget-5-key-points-on-smartwatch-selection/"><u>Before You Invest in a Wearable Gadget: 5 Key Points on Smartwatch Selection</u></a></li>
-<li><a href="https://fox-info.techidaily.com/feel-motivated-10-epic-movies-with-deep-impact/"><u>Feel Motivated 10 Epic Movies with Deep Impact</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-timer-finds-low-cost-high-return-monetized-youtube-sites-for-2024/"><u>First-Timer Finds Low-Cost, High-Return Monetized YouTube Sites for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-samsung-galaxy-s23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Samsung Galaxy S23 | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-xiaomi-redmi-a2-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Xiaomi Redmi A2 Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://win11.techidaily.com/maximizing-performance-in-windows-10-a-compre-point-guide/"><u>Maximizing Performance in Windows 10: A Compre Point Guide</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/quick-and-easy-how-to-record-your-iphone-7-display/"><u>Quick & Easy How to Record Your iPhone 7 Display</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/utilizing-cookiebot-for-advanced-web-traffic-analysis-and-growth-optimization/"><u>Utilizing Cookiebot for Advanced Web Traffic Analysis and Growth Optimization</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-advanced-tips-for-recording-google-voice-dialogues-for-2024/"><u>[New] Advanced Tips for Recording Google Voice Dialogues for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/elving-into-how-t-series-earnings-work-on-youtube/"><u>[New] Delving Into How T-Series Earnings Work on Youtube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/inding-your-audio-voice-match-the-perfect-mic-to-your-channels-character-for-2024/"><u>[New] Finding Your Audio Voice Match the Perfect Mic to Your Channel's Character for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-editing-excellence-the-ultimate-guide-to-top-notebooks/"><u>[New] In 2024, Editing Excellence The Ultimate Guide to Top Notebooks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-maximizing-subscribers-youtubes-expansion-blueprint/"><u>[New] In 2024, Maximizing Subscribers YouTube's Expansion Blueprint</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-viral-visionaries-top-meme-creators-on-social-media/"><u>[New] In 2024, Viral Visionaries Top Meme Creators on Social Media</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-elevate-your-youtube-presence-with-audio-for-2024/"><u>[Updated] Elevate Your Youtube Presence with Audio for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/best-spotify-ripper-how-to-rip-music-from-spotify-in-2024/"><u>Best Spotify Ripper How to Rip Music From Spotify, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/creating-a-captivating-experience-with-your-first-facebook-live-for-2024/"><u>Creating a Captivating Experience with Your First Facebook Live for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/enthralling-thesis-fabricator-for-2024/"><u>Enthralling Thesis Fabricator for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-infinix-note-30-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Infinix Note 30 5G online without jailbreak</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/prime-free-improvement-suite-pc-and-phone-edition-for-2024/"><u>Prime FREE Improvement Suite PC & Phone Edition for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/refined-networking-smartly-reducing-fb-communication/"><u>Refined Networking: Smartly Reducing FB Communication</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-honor-magic-v2-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Honor Magic V2 Device</u></a></li>
 </ul></div>
 

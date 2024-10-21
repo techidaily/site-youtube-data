@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Learn How To Create Compelling YouTube Closures Economically\""
-date: 2024-09-14T22:13:01.769Z
-updated: 2024-09-16T20:33:00.508Z
+date: 2024-10-17T07:59:51.078Z
+updated: 2024-10-21T09:32:09.237Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,19 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +130,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +156,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-channel-transformation-optimal-video-concepts-to-elevate-creativity/"><u>[New] 2024 Approved Channel Transformation Optimal Video Concepts to Elevate Creativity</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-streamlining-multimedia-experiences-through-youtube-music-links/"><u>[New] Streamlining Multimedia Experiences Through YouTube Music Links</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-how-to-pinpoint-premium-video-keywords-on-youtube/"><u>[Updated] 2024 Approved How to Pinpoint Premium Video Keywords on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-bringing-videos-to-life-using-youtube-in-educational-environments/"><u>[Updated] Bringing Videos to Life Using YouTube in Educational Environments</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-essential-brightness-techniques-for-iphones/"><u>[Updated] In 2024, Essential Brightness Techniques for IPhones</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-ultimate-editors-guide-best-for-youtube-content/"><u>[Updated] In 2024, The Ultimate Editor's Guide Best for YouTube Content</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-pro-stock-market-strategies-in-yt-reviews/"><u>2024 Approved Pro Stock Market Strategies in YT Reviews</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-art-of-captivating-valorant-video-thumbnails-on-youtube/"><u>2024 Approved The Art of Captivating Valorant Video Thumbnails on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ore-from-tiny-screens-top-6-youtube-shorts-downloader-apps-for-2024/"><u>Get More From Tiny Screens Top 6 YouTube Shorts Downloader Apps for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-xr-drfone-by-drfone-ios/"><u>How to Unlock iPhone XR? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-investigating-the-power-of-4-second-youtube-subscriptions/"><u>In 2024, Investigating the Power of 4-Second YouTube Subscriptions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-compact-guide-to-creating-viral-music-on-youtube/"><u>In 2024, The Compact Guide to Creating Viral Music on YouTube</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-infinix-smart-8-pro-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Infinix Smart 8 Pro Device</u></a></li>
+</ul></div>
 

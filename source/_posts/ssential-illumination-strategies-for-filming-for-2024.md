@@ -1,7 +1,7 @@
 ---
 title: "[New] Essential Illumination Strategies for Filming for 2024"
-date: 2024-10-09T22:25:53.935Z
-updated: 2024-10-15T22:21:50.343Z
+date: 2024-10-15T01:43:08.130Z
+updated: 2024-10-20T18:05:46.399Z
 tags:
   - ai video
   - ai youtube
@@ -50,13 +50,20 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -84,13 +91,6 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -98,10 +98,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -111,10 +111,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,19 +138,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/irect-transfer-of-youtube-playlists-stepwise-processing-for-2024/"><u>[New] Direct Transfer of YouTube Playlists - Stepwise Processing for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-guide-to-restoring-obss-audio-functionality-for-2024/"><u>[New] Guide to Restoring OBS's Audio Functionality for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-premium-content-at-a-low-price-the-ultimate-list-of-free-intros-makers/"><u>[New] Premium Content at a Low Price The Ultimate List of Free Intros Makers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/hat-is-a-parody-and-how-to-make-a-parody-video/"><u>[New] What Is a Parody and How to Make a Parody Video</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-charting-the-course-a-comprehensive-guide-to-youtube-teaser-vids-for-2024/"><u>[Updated] Charting the Course A Comprehensive Guide to YouTube Teaser Vids for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-decoding-the-marketplace-where-to-invest-in-monetized-channels/"><u>[Updated] In 2024, Decoding the Marketplace Where to Invest in Monetized Channels</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-first-steps-in-the-youtubian-economy-building-a-brand-boosting-bank-balance/"><u>2024 Approved First Steps in the Youtubian Economy Building a Brand, Boosting Bank Balance</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/cookiebot-driven-solutions-for-enhanced-digital-marketing/"><u>Cookiebot-Driven Solutions for Enhanced Digital Marketing</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-lock-apps-on-tecno-camon-20-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Tecno Camon 20 to Protect Your Individual Information</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Honor X8b | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-starting-your-journey-as-an-online-gaming-star/"><u>In 2024, Starting Your Journey as an Online Gaming Star</u></a></li>
-<li><a href="https://app-tips.techidaily.com/kubernetes-the-decade-journey-of-revolutionizing-cloud-computing-past-achievements-and-future-trends-zdnet/"><u>Kubernetes: The Decade Journey of Revolutionizing Cloud Computing - Past Achievements and Future Trends | ZDNet</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolved-how-to-stop-r-type-final-from-freezing-on-your-computer-system/"><u>Resolved: How to Stop R-Type Final ^ From Freezing on Your Computer System</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-essential-introduction-audio-tracks-the-top-8-for-digital-creators/"><u>Updated Essential Introduction Audio Tracks The Top 8 for Digital Creators</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-vct-pro-capture-assessment-full-review/"><u>[New] 2024 Approved VCT Pro Capture Assessment Full Review</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/hill-vibes-current-hits-to-match-your-yt-short-tunes/"><u>[New] Chill Vibes Current Hits to Match Your YT Short Tunes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-beyond-borders-blurring-techniques-for-global-audienes/"><u>[New] In 2024, Beyond Borders Blurring Techniques for Global Audienes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/inpointing-your-individual-playlist-hub-on-youtube/"><u>[New] Pinpointing Your Individual Playlist Hub on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-ultimate-overview-of-du-recorders-technical-specifications/"><u>[New] Ultimate Overview of Du Recorder’s Technical Specifications</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-elevate-your-digital-footprint-crafting-compelling-shorts-thumbnails/"><u>[Updated] Elevate Your Digital Footprint Crafting Compelling Shorts Thumbnails</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-revolutionary-guide-to-iphone-x-animoji-mastery/"><u>[Updated] In 2024, Revolutionary Guide to iPhone X Animoji Mastery</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mastering-desktopmobile-adjust-youtube-video-pace-for-2024/"><u>[Updated] Mastering Desktop/Mobile Adjust YouTube Video Pace for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-self-balancing-snap-shots-without-supports/"><u>[Updated] Self-Balancing Snap Shots Without Supports</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/basic-gamers-guide-to-outstanding-video-editing-software/"><u>Basic Gamers' Guide to Outstanding Video Editing Software</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-xiaomi-redmi-note-12t-pro-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Xiaomi Redmi Note 12T Pro to Outlook | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hp-photosmart-7520-software-download-install-your-high-quality-printer-drivers-today/"><u>HP Photosmart 7520 Software Download: Install Your High-Quality Printer Drivers Today!</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-modify-where-mac-photos-stash-location/"><u>In 2024, Modify Where Mac Photos Stash Location</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/mac-green-screen-software-which-one-is-right-for-you/"><u>Mac Green Screen Software Which One Is Right for You?</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/problembehebung-windows-11-zeigt-weniger-speicherplatz-auf-der-festplatte-an/"><u>Problembehebung: Windows 11 Zeigt Weniger Speicherplatz Auf Der Festplatte An</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/sicreactionvids-yt-celebrity-highlights-2023-for-2024/"><u>TopMusicReactionVids YT Celebrity Highlights, 2023 for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/transform-video-formats-for-free-avi-to-mov-effortless-mov-creation-using-movavi-online-tool/"><u>Transform Video Formats for Free: Avi to Mov - Effortless MOV Creation Using Movavi Online Tool</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/king-youtube-dominance-exploring-the-quintessential-five-tactics-for-2024/"><u>Unlocking YouTube Dominance - Exploring the Quintessential Five Tactics for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ling-secrets-sharing-restricted-youtube-content-via-email/"><u>Unveiling Secrets Sharing Restricted YouTube Content via Email</u></a></li>
 </ul></div>
 

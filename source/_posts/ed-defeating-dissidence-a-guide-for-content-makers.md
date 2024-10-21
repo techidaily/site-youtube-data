@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Defeating Dissidence  A Guide for Content Makers\""
-date: 2024-09-11T06:33:04.594Z
-updated: 2024-09-12T06:33:04.594Z
+date: 2024-10-15T00:32:06.714Z
+updated: 2024-10-21T09:05:59.729Z
 tags:
   - ai video
   - ai youtube
@@ -25,20 +25,6 @@ thumbnail: https://thmb.techidaily.com/a3a2d9a996d9eb1a5a7f44f59aadc7d2130837ea4
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -68,40 +54,17 @@ thumbnail: https://thmb.techidaily.com/a3a2d9a996d9eb1a5a7f44f59aadc7d2130837ea4
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -110,12 +73,25 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-8-best-webspots-free-eco-backdrops-and-footage-collection/"><u>[New] In 2024, 8 Best Webspots FREE Eco-Backdrops and Footage Collection</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-how-to-extract-thumbnails-from-youtube-on-windowsmac-and-browsers/"><u>[Updated] 2024 Approved How to Extract Thumbnails From Youtube on Windows/Mac and Browsers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-designcut-pro/"><u>[Updated] DesignCut Pro</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-master-the-art-of-editing-on-zero-budget-discover-these-apps/"><u>[Updated] Master the Art of Editing on Zero Budget Discover These Apps</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/bypass-iphone-12-mini-activation-lock-with-a-professional-tool-by-drfone-ios-unlock-ios-unlock/"><u>Bypass iPhone 12 mini activation lock with a professional tool</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/can-we-fully-depend-on-ai-tools-like-zerogpt-analyzing-their-trustworthiness-and-limits/"><u>Can We Fully Depend on AI Tools Like ZeroGPT? Analyzing Their Trustworthiness and Limits</u></a></li>
+<li><a href="https://common-error.techidaily.com/getting-your-dells-locked-function-key-back-to-work-expert-fixes-and-tips/"><u>Getting Your Dell's Locked Function Key Back to Work: Expert Fixes & Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-quick-and-clean-video-extraction-for-all-screens/"><u>In 2024, Quick and Clean Video Extraction for All Screens</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-through-network-key-inconsistencies-5-steps-for-windows-users/"><u>Navigating Through Network Key Inconsistencies: 5 Steps for Windows Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/partnered-filmmaking-expand-your-channels-reach-for-2024/"><u>Partnered Filmmaking Expand Your Channel's Reach for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-tutorial-on-transforming-your-dvd-collection-into-crisp-clear-digital-videos-with-premier-dvd-ripper-software/"><u>Step-by-Step Tutorial on Transforming Your DVD Collection Into Crisp, Clear Digital Videos with Premier DVD Ripper Software</u></a></li>
+</ul></div>
 
-
-
-
-
-
-
-
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

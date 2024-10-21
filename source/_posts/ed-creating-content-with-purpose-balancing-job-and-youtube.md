@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Creating Content with Purpose  Balancing Job & YouTube\""
-date: 2024-10-14T16:27:57.455Z
-updated: 2024-10-15T22:59:22.706Z
+date: 2024-10-19T13:46:28.143Z
+updated: 2024-10-21T04:25:38.942Z
 tags:
   - ai video
   - ai youtube
@@ -51,15 +51,22 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3. Check the weather forecast in advance
@@ -67,10 +74,16 @@ A notebook planner is essential for keeping my life organized and on track. When
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4. Create 3-5 videos in advance
@@ -84,10 +97,10 @@ In the event that life gets too crazy, it’s perfectly fine to do just audio. M
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Make a YouTube Video with Wondershare Filmora
@@ -97,13 +110,6 @@ Wondershare Filmora is one application that people prefer over any other video e
 Just try it and create your own YouTube video!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -128,17 +134,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-from-editing-desk-to-youtube-post-production-processes/"><u>[New] 2024 Approved From Editing Desk to YouTube Post-Production Processes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-essential-tutorial-for-youtube-studio-editor-use/"><u>[New] 2024 Approved The Essential Tutorial for YouTube Studio Editor Use</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-top-15-must-use-gaming-tags-for-skyrocketing-views-on-youtube/"><u>[New] 2024 Approved Top 15 Must-Use Gaming Tags for Skyrocketing Views on YouTube</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-digital-replay-engine-how-to-download-and-preserve-lives-for-2024/"><u>[New] Digital Replay Engine How to Download and Preserve Lives for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-comprehensive-slomo-app-evaluation-future-prospects/"><u>[Updated] Comprehensive SloMo App Evaluation - Future Prospects</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-elevate-your-edits-a-selection-of-top-9-free-software-choices/"><u>[Updated] Elevate Your Edits A Selection of Top 9 Free Software Choices</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-how-to-change-screenshot-file-formats-on-a-mac/"><u>2024 Approved How to Change Screenshot File Formats on a Mac</u></a></li>
-<li><a href="https://win11.techidaily.com/correct-mend-f-keys-on-windows-11-regain-control/"><u>Correct: Mend F Keys on Windows 11, Regain Control</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-messenger-kids-understanding-and-utilizing-sleep-mode-feature/"><u>Mastering Messenger Kids: Understanding and Utilizing Sleep Mode Feature</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-cozy-winter-scenes-for-video-aesthetics/"><u>Top 5 Cozy Winter Scenes for Video Aesthetics</u></a></li>
-<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-vivo-y56-5g-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Vivo Y56 5G Screen | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/ultimate-solution-for-unrecognized-usb-devices-on-your-windows-10-pc/"><u>Ultimate Solution for Unrecognized USB Devices on Your Windows 10 PC</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/reate-standout-videos-with-these-top-7-free-thumbnail-builders/"><u>[New] Create Standout Videos with These Top 7 Free Thumbnail Builders</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-most-memorable-2022-ice-sculpture-moves-for-2024/"><u>[New] The Most Memorable 2022 Ice Sculpture Moves for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-a-list-makeup-tutorials-who-to-watch/"><u>[Updated] In 2024, A-List Makeup Tutorials Who to Watch ?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pushing-boundaries-advanced-iphone-silhouette-techniques/"><u>2024 Approved Pushing Boundaries Advanced iPhone Silhouette Techniques</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-streamlabs-rival-in-the-eye-of-a-streamer/"><u>2024 Approved Streamlabs' Rival in the Eye of a Streamer</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/t-webspots-free-eco-backdrops-and-footage-collection-for-2024/"><u>8 Best Webspots FREE Eco-Backdrops and Footage Collection for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/exploring-the-appeal-of-neighborhood-centric-data-protection-strategies/"><u>Exploring the Appeal of Neighborhood-Centric Data Protection Strategies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-supercharge-your-media-download-sounds-for-editing/"><u>In 2024, Supercharge Your Media Download Sounds for Editing</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-your-guide-to-the-best-free-comedic-music-downloads/"><u>Updated Your Guide to the Best Free Comedic Music Downloads</u></a></li>
 </ul></div>
 

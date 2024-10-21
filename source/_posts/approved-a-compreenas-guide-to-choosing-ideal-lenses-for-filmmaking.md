@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  A Compreenas Guide to Choosing Ideal Lenses for Filmmaking\""
-date: 2024-10-14T21:25:32.009Z
-updated: 2024-10-15T22:04:20.199Z
+date: 2024-10-17T08:06:50.284Z
+updated: 2024-10-21T04:08:13.531Z
 tags:
   - ai video
   - ai youtube
@@ -83,6 +83,13 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -92,10 +99,10 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
@@ -113,16 +120,16 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -133,13 +140,6 @@ This table shows you the focal lengths needed to achieve the same shot between c
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -155,6 +155,13 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -168,13 +175,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -197,18 +197,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-a-list-of-the-best-marriage-videos-celebrations-captured-online-8/"><u>[New] 2024 Approved A List of the Best Marriage Videos - Celebrations Captured Online (8)</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-historical-explorations-10-must-see-educational-channels-on-yt/"><u>[New] 2024 Approved Historical Explorations - 10 Must-See Educational Channels on YT</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-improve-office-productivity-with-speech-to-text-conversion-in-microsoft-word/"><u>[New] 2024 Approved Improve Office Productivity with Speech to Text Conversion in Microsoft Word</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-unique-day-to-day-vlog-themes/"><u>[New] 2024 Approved Unique Day-to-Day Vlog Themes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-list-of-ten-soaring-youtube-creations-with-speed-and-purpose/"><u>[New] A List of Ten Soaring YouTube Creations with Speed and Purpose</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-innovate-your-images-video-enhancer-v22-workflow/"><u>[New] In 2024, Innovate Your Images Video Enhancer V2.2 Workflow</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-video-earnings-techno-gamers-guide-for-2024/"><u>[Updated] In-Video Earnings Techno Gamers' Guide for 2024</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/4-ways-to-transfer-music-from-apple-iphone-15-to-ipod-touch-drfone-by-drfone-transfer-from-ios/"><u>4 Ways to Transfer Music from Apple iPhone 15 to iPod touch | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/deciphering-windows-internal-auditory-graph-layouts/"><u>Deciphering Windows' Internal Auditory Graph Layouts</u></a></li>
-<li><a href="https://win-forum.techidaily.com/expert-advice-disposing-of-microsoft-accounts-using-revos-advanced-tools-in-windows-10/"><u>Expert Advice: Disposing of Microsoft Accounts Using Revo's Advanced Tools in Windows 10</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-your-logitech-g29-steering-wheel-setup-for-windows-os-win-10117/"><u>Get Your Logitech G29 Steering Wheel Setup for Windows OS (Win 10/11/7)</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-zte-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock ZTE Phone Without Password?</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/overzicht-van-windows-movie-maker-en-gebruikelijke-oplossingen/"><u>Overzicht Van Windows Movie Maker en Gebruikelijke Oplossingen</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-elite-srs-conversions-maximum-benefits-for-tech-enthusiasts/"><u>[New] 2024 Approved Elite SRS Conversions Maximum Benefits for Tech Enthusiasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-strategic-thinking-keywords-that-lead-to-online-victory/"><u>[New] In 2024, Strategic Thinking Keywords that Lead to Online Victory</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/treamlining-creative-journey-uploading-imovie-videos-to-youtube-for-2024/"><u>[New] Streamlining Creative Journey Uploading iMovie Videos to YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-deciphering-how-tseries-benefits-from-youtube-for-2024/"><u>[Updated] Deciphering How TSeries Benefits From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-how-to-remove-black-bars-from-existing-youtube-videos/"><u>[Updated] In 2024, How to Remove Black Bars From Existing YouTube Videos?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-outstanding-films-not-on-mainstream-lists/"><u>[Updated] Outstanding Films Not on Mainstream Lists</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/avoiding-pitfalls-smart-strategies-for-acquiring-youtubes/"><u>Avoiding Pitfalls Smart Strategies for Acquiring Youtubes</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/best-choices-elite-ringtone-developers-iphone-for-2024/"><u>Best Choices Elite Ringtone Developers iPhone for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-financial-frontier-strategies-for-maximum-gains/"><u>In 2024, Youtube's Financial Frontier Strategies for Maximum Gains</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-soundtrack-sanctuary-the-finest-websites-offering-free-audio-selections-for-filmmakers/"><u>New In 2024, Soundtrack Sanctuary The Finest Websites Offering Free Audio Selections for Filmmakers</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-live-chat-with-woocommerce-your-gateway-to-successful-live-selling-for-2024/"><u>New Live Chat With WooCommerce Your Gateway to Successful Live Selling for 2024</u></a></li>
 </ul></div>
 

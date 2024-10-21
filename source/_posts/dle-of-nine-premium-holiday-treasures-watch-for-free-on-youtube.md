@@ -1,7 +1,7 @@
 ---
 title: "\"A Bundle of Nine Premium Holiday Treasures  Watch for Free on YouTube\""
-date: 2024-10-08T16:11:17.662Z
-updated: 2024-10-16T00:08:52.677Z
+date: 2024-10-19T21:09:07.697Z
+updated: 2024-10-20T17:40:24.360Z
 tags:
   - ai video
   - ai youtube
@@ -40,36 +40,42 @@ The Nutcracker is a holiday classic that many people seek out every year on the 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
@@ -84,18 +90,18 @@ Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday 
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -118,19 +124,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-retro-gpu-fixes/"><u>[New] In 2024, Retro GPU Fixes</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-melody-to-video-quick-sound-import-tricks/"><u>[New] Melody to Video Quick Sound Import Tricks</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-video-editors-top-8-linux-picks/"><u>[New] Ultimate Video Editors Top 8 Linux Picks</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-unending-chats-strategies-for-continuous-snapstreaks/"><u>[New] Unending Chats - Strategies for Continuous Snapstreaks</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-kinemaster-app-for-android-complete-review/"><u>[Updated] KineMaster App for Android - Complete Review</u></a></li>
-<li><a href="https://win-studio.techidaily.com/1728477635643-outlook/"><u>三种简单方法找回丢失的 Outlook 电子邮件</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-color-depth-explored-windows-hdri-for-editors/"><u>In 2024, Color Depth Explored Windows HDRI for Editors</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-cost-effective-audio-equipment-for-newcomers/"><u>In 2024, Cost-Effective Audio Equipment for Newcomers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-deciphering-your-youtube-viewership-stats/"><u>In 2024, Deciphering Your YouTube Viewership Stats</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-discovering-the-power-behind-youtube-statistics-interpretation/"><u>In 2024, Discovering the Power Behind YouTube Statistics Interpretation</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-evaluating-the-financial-returns-for-makers-on-youtube-shorts/"><u>In 2024, Evaluating the Financial Returns for Maker's on YouTube Shorts</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-explore-8-best-strategies-for-increasing-youtube-traffic/"><u>In 2024, Explore 8 Best Strategies for Increasing Youtube Traffic</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-highlighted-viewer-insights-unveiled/"><u>In 2024, Highlighted Viewer Insights Unveiled</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-xiaomi-redmi-note-12-pro-5g-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Xiaomi Redmi Note 12 Pro 5G Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-igtvs-top-picks-for-next-weeks-feed/"><u>[New] 2024 Approved IGTV's Top Picks for Next Week's Feed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-engaging-stories-expanding-audiences-top-three-methods/"><u>[New] In 2024, Engaging Stories, Expanding Audiences Top Three Methods</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-professional-recording-software-for-education-sector-for-2024/"><u>[New] Professional Recording Software for Education Sector for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/uick-fix-from-raw-images-to-high-quality-youtube-thumbnails-for-2024/"><u>[New] Quick Fix From Raw Images To High-Quality YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-10-best-travel-youtube-channels-to-follow-for-2024/"><u>[Updated] 10 Best Travel Youtube Channels to Follow for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-elevating-your-videos-reach-top-8-youtube-ranks-unveiled/"><u>[Updated] Elevating Your Video's Reach - Top 8 YouTube Ranks Unveiled</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-expert-advice-on-lighting-your-youtube-content-perfectly-for-2024/"><u>[Updated] Expert Advice on Lighting Your YouTube Content Perfectly for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-high-fidelity-on-the-big-screen-the-4k-monitor-tale-of-lgs-31mu97-b-for-2024/"><u>[Updated] High Fidelity on the Big Screen The 4K Monitor Tale of LG's 31MU97-B for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-maximize-your-youtube-impact-mastering-the-art-of-influential-channels-branding/"><u>[Updated] In 2024, Maximize Your YouTube Impact Mastering the Art of Influential Channels' Branding</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-peak-performers-in-the-world-of-web-videos/"><u>[Updated] Peak Performers in the World of Web Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-sourav-joshis-path-to-wealth-via-youtube/"><u>[Updated] Sourav Joshi's Path to Wealth via YouTube</u></a></li>
+<li><a href="https://win11.techidaily.com/ameliorating-the-non-functional-windows-enter-key/"><u>Ameliorating the Non-Functional Windows Enter Key</u></a></li>
+<li><a href="https://win11.techidaily.com/effective-fix-tackling-winscomrssvc-errors-on-your-pc/"><u>Effective Fix: Tackling WinscomrsSvc Errors on Your PC</u></a></li>
+<li><a href="https://win11.techidaily.com/optimize-pc-power-for-distributed-video-conversion-by-tdarr/"><u>Optimize PC Power for Distributed Video Conversion by Tdarr</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-ios-slideshow-programming-for-series-789-for-2024/"><u>Top iOS Slideshow Programming for Series 7/8/9 for 2024</u></a></li>
 </ul></div>
 

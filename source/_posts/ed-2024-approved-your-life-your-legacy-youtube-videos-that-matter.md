@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Your Life, Your Legacy  YouTube Videos That Matter\""
-date: 2024-10-14T19:03:13.164Z
-updated: 2024-10-15T21:26:11.841Z
+date: 2024-10-18T07:20:54.148Z
+updated: 2024-10-21T01:59:26.451Z
 tags:
   - ai video
   - ai youtube
@@ -51,10 +51,10 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ###  2\.  My YouTube Story
@@ -70,10 +70,10 @@ On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebrat
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\.  Never Have I Ever Q & A
@@ -85,22 +85,15 @@ Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\.  Narrated Autobiopic
 
@@ -117,6 +110,13 @@ YouTube live videos are probably the best ways to interact and share your story 
 ## Custom Your Video with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -141,20 +141,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-clearing-up-your-video-quality-issues/"><u>[New] 2024 Approved Clearing Up Your Video Quality Issues</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-cultivating-commitment-gentle-subscription-strategies/"><u>[New] 2024 Approved Cultivating Commitment Gentle Subscription Strategies</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-expert-tips-on-jump-cuts-for-dynamic-video-editing/"><u>[New] 2024 Approved Expert Tips on Jump Cuts for Dynamic Video Editing</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-legal-ways-to-boost-your-video-watch-count-responsibly/"><u>[New] 2024 Approved Legal Ways to Boost Your Video Watch Count Responsibly</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-streamlining-your-life-with-youtube-tv-subscriptions/"><u>[New] 2024 Approved Streamlining Your Life with YouTube TV Subscriptions</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-tackle-typical-youtube-short-challenges/"><u>[New] 2024 Approved Tackle Typical YouTube Short Challenges</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-honing-skills-for-hiring-best-filmmakers/"><u>[Updated] Honing Skills for Hiring Best Filmmakers</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-integrating-sounds-and-music-into-your-instagram-videos/"><u>2024 Approved Integrating Sounds and Music Into Your Instagram Videos</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-checklist-facebook-and-youtube-video-integration/"><u>2024 Approved The Ultimate Checklist Facebook & YouTube Video Integration</u></a></li>
-<li><a href="https://win-answers.techidaily.com/deciphering-and-correcting-steam-file-permission-problems/"><u>Deciphering and Correcting Steam File Permission Problems</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1723808189788-how-to-fix-unreal-engine-4-crashing-on-pc/"><u>How to Fix ‘Unreal Engine 4 Crashing’ on PC</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-forge-strong-content-partnerships-on-youtube/"><u>How to Forge Strong Content Partnerships on YouTube</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-a-disable-iphone-8-plus-using-macos-finder-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock a disable iPhone 8 Plus using macOS finder</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-10-fastest-growing-youtube-channels-to-inspire-you/"><u>In 2024, 10 Fastest Growing YouTube Channels to Inspire You</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-free-and-easy-video-looping-top-10-online-tools-for-2024/"><u>New Free and Easy Video Looping Top 10 Online Tools for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-savor-the-spectacle-best-practices-for-cooking-channel-titling/"><u>[New] In 2024, Savor the Spectacle Best Practices for Cooking Channel Titling</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ubstitute-filmmaking-gems-at-7-spot/"><u>[New] Substitute Filmmaking Gems at #7 Spot</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-mp3-export-made-easy-select-free-apps-for-iphone-and-youtube/"><u>[Updated] In 2024, MP3 Export Made Easy Select Free Apps for iPhone & YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-stepwise-revelation-of-concealed-youtube-archives/"><u>[Updated] In 2024, Stepwise Revelation of Concealed YouTube Archives</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-captivating-videos-start-here-these-7-royalty-free-audios/"><u>2024 Approved Captivating Videos Start Here These 7 Royalty-Free Audios</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-expedited-guide-to-effective-double-take-technique/"><u>2024 Approved Expedited Guide to Effective Double-Take Technique</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/6-video-styles-for-maximum-viewer-engagement/"><u>6 Video Styles for Maximum Viewer Engagement</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/avoid-wasting-time-on-ineffective-chatgpt-extensions-heres-what-to-use/"><u>Avoid Wasting Time on Ineffective ChatGPT Extensions - Here's What to Use</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-vivo-s18-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/effective-techniques-for-messaging-within-the-mozilla-thunderbird-platform/"><u>Effective Techniques for Messaging Within the Mozilla Thunderbird Platform</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-get-hitman-3-running-smoothly-on-your-computer/"><u>How to Get Hitman 3 Running Smoothly on Your Computer</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-building-buzz-strategies-for-shaping-your-unique-youtubing-image/"><u>In 2024, Building Buzz Strategies for Shaping Your Unique YouTubing Image</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-professional-footage-integrating-watermarks-and-logos-into-yt-videos/"><u>In 2024, Professional Footage Integrating Watermarks and Logos Into YT Videos</u></a></li>
+<li><a href="https://windows11.techidaily.com/move-your-onedrive-step-by-step-for-windows-11/"><u>Move Your OneDrive: Step-by-Step for Windows 11</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/navigating-through-common-youtube-short-difficulties-for-2024/"><u>Navigating Through Common YouTube Short Difficulties for 2024</u></a></li>
 </ul></div>
 

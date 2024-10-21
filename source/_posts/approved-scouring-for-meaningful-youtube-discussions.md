@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Scouring for Meaningful YouTube Discussions\""
-date: 2024-10-12T20:08:19.156Z
-updated: 2024-10-15T22:05:23.174Z
+date: 2024-10-17T19:52:53.608Z
+updated: 2024-10-20T18:40:30.222Z
 tags:
   - ai video
   - ai youtube
@@ -67,10 +67,10 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 You can combine these additional filters to narrow your comments search for YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
@@ -86,10 +86,10 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -124,13 +124,6 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -140,6 +133,13 @@ You can see all the comments you have posted in the Comment History in a few qui
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
@@ -167,10 +167,10 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -194,18 +194,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ialogue-enrichment-system/"><u>[New] Dialogue Enrichment System</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ow-to-stream-google-meet-to-youtube-step-by-step-guide/"><u>[New] How To Stream Google Meet to YouTube [Step-by-Step Guide]</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-novice-networking-affordable-channel-buy-options/"><u>[Updated] 2024 Approved Novice Networking Affordable Channel Buy Options</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-quick-fixes-how-to-screen-record-your-google-chats/"><u>[Updated] 2024 Approved Quick Fixes How to Screen Record Your GooGle Chats</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-smart-money-making-on-youtube-shorts/"><u>[Updated] 2024 Approved Smart Money-Making on Youtube Shorts</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-cost-efficient-drone-buying-guide-find-the-best-deals/"><u>[Updated] Cost-Efficient Drone Buying Guide Find the Best Deals</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-easy-to-follow-steps-for-android-video-capture-for-2024/"><u>[Updated] Easy-to-Follow Steps for Android Video Capture for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-essential-asmr-channel-discoveries/"><u>[Updated] Essential ASMR Channel Discoveries</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-mirthful-browsings-your-ultimate-list-of-top-comedy-vids/"><u>2024 Approved Mirthful Browsings Your Ultimate List of Top Comedy Vids</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/windows-10-m4a-mp3/"><u>無料ツールを使って Windows 10 で M4A ファイルを MP3 へ簡単変換する手順</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/macx-mediatrans-der-bevorzugte-offizielle-medienverschiebungslosung-zum-synchronisieren-von-fotos-videos-and-musik-auf-ihrem-iphoneipad/"><u>MacX MediaTrans: Der Bevorzugte Offizielle Medienverschiebungslösung Zum Synchronisieren Von Fotos, Videos & Musik Auf Ihrem iPhone/iPad</u></a></li>
-<li><a href="https://program-issues.techidaily.com/navigate-the-galaxy-and-secure-elite-fps-drops-a-comprehensive-walkthrough-of-mass-effect-legendary-edition/"><u>Navigate the Galaxy and Secure Elite FPS Drops: A Comprehensive Walkthrough of Mass Effect Legendary Edition</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-the-world-of-modern-devices-with-expert-advice-at-toms-hardware/"><u>Navigating the World of Modern Devices with Expert Advice at Tom’s Hardware</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-conquered-creativity-unleashing-photo-potential-on-snapchat/"><u>[New] Conquered Creativity Unleashing Photo Potential on Snapchat</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ive-into-filmmaking-the-role-of-lenses-in-videos/"><u>[New] Dive Into Filmmaking The Role of Lenses in Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-avoiding-illegal-content-youtube-to-mp4-transfer-safely/"><u>[New] In 2024, Avoiding Illegal Content YouTube to MP4 Transfer Safely</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ioneering-the-past-selecting-top-historical-educational-yts/"><u>[New] Pioneering the Past Selecting Top Historical Educational YTs</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-total-locomotion-survey-2023/"><u>[Updated] 2024 Approved Total Locomotion Survey 2023</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-enjoy-classic-games-anywhere-with-the-top-5-pc-based-gb-emulators/"><u>[Updated] Enjoy Classic Games Anywhere with the Top 5 PC-Based GB Emulators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-banner-brilliance-elevating-your-game-channel-image/"><u>[Updated] In 2024, Banner Brilliance Elevating Your Game Channel Image</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtubings-endgame-secrets-from-top-creators-and-templates/"><u>[Updated] In 2024, YouTubing's Endgame Secrets From Top Creators and Templates</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-elevating-your-youtube-presence-with-customized-subtitles/"><u>2024 Approved Elevating Your YouTube Presence with Customized Subtitles</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-vivo-v29-pro-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Vivo V29 Pro by Name | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/mastering-siris-tone-a-guide-to-altering-siris-vocal-style-for-2024/"><u>Mastering Siris Tone A Guide to Altering Siris Vocal Style for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/uncover-hidden-windows-11-taskbar-investigative-tool/"><u>Uncover Hidden Windows 11 Taskbar Investigative Tool</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/k-the-potential-of-youtube-videos-the-ultimate-chapter-addition-technique/"><u>Unlock the Potential of YouTube Videos The Ultimate Chapter Addition Technique</u></a></li>
 </ul></div>
 
