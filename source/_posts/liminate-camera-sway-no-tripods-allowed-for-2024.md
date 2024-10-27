@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Eliminate Camera Sway  No Tripods, Allowed for 2024\""
-date: 2024-10-15T12:57:18.586Z
-updated: 2024-10-21T12:52:55.708Z
+date: 2024-10-21T07:04:54.603Z
+updated: 2024-10-27T01:48:15.439Z
 tags:
   - ai video
   - ai youtube
@@ -42,10 +42,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -62,20 +62,27 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -93,13 +100,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 4. Put your camera on top of the books.
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
@@ -132,10 +132,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -159,21 +159,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/20645895-new-2024-approved-unlock-brand-potential-access-50-banners-at-no-cost/"><u>[New] 2024 Approved Unlock Brand Potential - Access 50 Banners at No Cost!</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-excellence-unleashed-the-pinnacle-fps-selections/"><u>[New] In 2024, Excellence Unleashed The Pinnacle FPS Selections</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-reimagining-gender-portrayal-in-social-media-images/"><u>[New] In 2024, Reimagining Gender Portrayal in Social Media Images</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-windows-10s-finest-film-and-multimedia-editing-apps-guide-for-2024/"><u>[New] Windows 10'S Finest Film and Multimedia Editing Apps Guide for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/outubes-best-love-stories-perfectly-captured-weddings/"><u>[New] YouTube's Best Love Stories Perfectly Captured Weddings</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-eclipsing-fears-in-your-first-10-videos-for-2024/"><u>[Updated] Eclipsing Fears in Your First 10 Videos for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-deciphering-the-art-of-voice-documentation/"><u>[Updated] In 2024, Deciphering the Art of Voice Documentation</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-ensuring-thumbnails-show-shorts-video-troubleshooting/"><u>[Updated] In 2024, Ensuring Thumbnails Show Shorts Video Troubleshooting</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-step-by-step-methodology-tracking-youtube-traffic-and-income/"><u>[Updated] In 2024, Step-by-Step Methodology Tracking YouTube Traffic & Income</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-take-control-a-compreeved-guide-to-iphoneipad-screen-recordings-on-youtube/"><u>[Updated] In 2024, Take Control A Compreeved Guide to iPhone/iPad Screen Recordings on YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/boost-your-fitness-journey-fitbit-versa-3s-integrated-gps-and-wellness-tools-for-extra-drive/"><u>Boost Your Fitness Journey: Fitbit Versa 3'S Integrated GPS and Wellness Tools for Extra Drive</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/fps-in-gaming-and-film-exploring-benefits-between-30fps-vs-60fps-content/"><u>FPS in Gaming & Film: Exploring Benefits Between 30FPS vs 60FPS Content</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-photo-to-pixellated-panels-pro-windows-and-mac-edition/"><u>In 2024, Photo to Pixellated Panels Pro Windows & Mac Edition</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/leading-pixel-art-software-beyond-procreate-on-pcs/"><u>Leading Pixel-Art Software Beyond Procreate on PCs</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ate-your-way-to-partner-status-via-a-quick-10k-view-achievement/"><u>Navigate Your Way to Partner Status via a Quick 10K View Achievement</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/e-buffering-and-lag-turn-on-av1-in-youtube-settings/"><u>Reduce Buffering & Lag - Turn On AV1 in YouTube Settings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-beginners-roadmap-to-a-thriving-youtube-channel/"><u>[New] The Beginner's Roadmap to a Thriving YouTube Channel</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nveiling-false-numbers-the-risks-of-manipulated-youtube-viewership/"><u>[New] Unveiling False Numbers The Risks of Manipulated YouTube Viewership</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-key-components-to-successful-ad-textual-content-creation/"><u>[Updated] 2024 Approved Key Components to Successful Ad Textual Content Creation</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-friendly-facebook-files-your-free-fb-link-download-aids/"><u>[Updated] Friendly Facebook Files - Your Free FB Link Download Aids</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-expert-tips-on-adding-yt-playlists-to-your-website-content/"><u>[Updated] In 2024, Expert Tips on Adding YT Playlists to Your Website Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-streamlining-your-path-to-personal-youtube-soundscape/"><u>[Updated] In 2024, Streamlining Your Path to Personal Youtube Soundscape</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-an-exclusive-list-of-heartwarming-weddings-youtube-and-vimeo-edition/"><u>2024 Approved An Exclusive List of Heartwarming Weddings - Youtube & Vimeo Edition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-android-freedom-selecting-prime-video-editing-tools/"><u>2024 Approved Android Freedom Selecting Prime Video Editing Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/live-recording-gadgets-for-youtube-content-creators/"><u>Best Live Recording Gadgets for YouTube Content Creators</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/decoding-the-buzz-unveiling-rumored-pricing-release-moment-and-specs-for-the-anticipated-apple-ring-device/"><u>Decoding the Buzz: Unveiling Rumored Pricing, Release Moment and Specs for the Anticipated Apple Ring Device</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/distinguishing-between-nlp-and-ml-insights-into-their-individual-contributions-to-ai/"><u>Distinguishing Between NLP and ML: Insights Into Their Individual Contributions to AI</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/enhance-your-digital-dialogue-the-leading-web-based-text-to-speech-apps/"><u>Enhance Your Digital Dialogue The Leading Web-Based Text-to-Speech Apps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/25258521-how-to-make-a-thumbnail-for-your-youtube-free-easily/"><u>How to Make a Thumbnail for Your YouTube Free Easily!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-moto-g73-5g-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Motorola Moto G73 5G Phone without Any Data Loss</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-exclusive-guide-to-instagrams-hidden-functionality/"><u>In 2024, Exclusive Guide to Instagram's Hidden Functionality</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-do-you-remove-restricted-mode-on-iphone-xr-drfone-by-drfone-ios/"><u>In 2024, How Do You Remove Restricted Mode on iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-interactive-subscription-buttons-filmoras-guide-to-animated-sign-up-bars/"><u>In 2024, Interactive Subscription Buttons - Filmora's Guide to Animated Sign-Up Bars</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-honor-100-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/be-tv-explained-essential-knowledge-for-all-viewers/"><u>YouTube TV Explained Essential Knowledge for All Viewers</u></a></li>
 </ul></div>
 

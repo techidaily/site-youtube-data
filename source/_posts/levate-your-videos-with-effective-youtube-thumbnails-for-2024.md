@@ -1,7 +1,7 @@
 ---
 title: "[New] Elevate Your Videos with Effective YouTube Thumbnails for 2024"
-date: 2024-10-19T20:56:20.444Z
-updated: 2024-10-21T03:21:28.729Z
+date: 2024-10-26T03:19:53.116Z
+updated: 2024-10-26T21:51:39.733Z
 tags:
   - ai video
   - ai youtube
@@ -47,13 +47,6 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
@@ -63,10 +56,17 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -82,10 +82,10 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
@@ -93,6 +93,13 @@ Make sure the images you choose are relevant to the topic of your video.
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -105,13 +112,6 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -134,22 +134,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/arnings-on-youtube-the-crucial-number-of-video-views-for-money-for-2024/"><u>[New] Earnings on YouTube The Crucial Number of Video Views for Money for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-essential-tips-for-harnessing-movie-maker-in-windows-8-systems/"><u>[New] In 2024, Essential Tips for Harnessing Movie Maker in Windows 8 Systems</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-live-link-lifters-annual-archive-access/"><u>[New] Live Link Lifters - Annual Archive Access</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ransform-your-footage-tips-for-youtube-studios-video-editing-for-2024/"><u>[New] Transform Your Footage Tips for YouTube Studio's Video Editing for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-10plus-top-free-youtube-image-extractors/"><u>[Updated] 2024 Approved 10+ Top FREE YouTube Image Extractors</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-efficient-tools-simplifying-the-task-of-feedback-erasure/"><u>[Updated] 2024 Approved Efficient Tools Simplifying the Task of Feedback Erasure</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-digital-cash-creation-a-closer-look-at-vids-vs-videos/"><u>[Updated] In 2024, Digital Cash Creation A Closer Look at Vids Vs. Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-mirrorless-impact-on-professional-video-recording/"><u>[Updated] Mirrorless Impact on Professional Video Recording</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-step-by-step-grab-facebook-videos-on-both-oses-for-2024/"><u>[Updated] Step-by-Step Grab Facebook Videos on Both OSes for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-techniques-for-gradual-audio-reduction-with-lumafusion/"><u>2024 Approved Techniques for Gradual Audio Reduction with Lumafusion</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/biz-youtubes-top-10-for-quick-channel-setup/"><u>Best Biz YouTubes Top 10 for Quick Channel Setup</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-smart-8-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Smart 8</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-the-best-8-platforms-for-effective-youtube-advertising/"><u>In 2024, The Best 8 Platforms for Effective Youtube Advertising</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/inside-out-how-artificial-intelligence-black-boxes-operate/"><u>Inside Out: How Artificial Intelligence Black Boxes Operate</u></a></li>
-<li><a href="https://win11.techidaily.com/step-by-step-guide-combining-columns-effectively-in-microsoft-excel/"><u>Step-by-Step Guide: Combining Columns Effectively in Microsoft Excel</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/and-tricks-for-easily-finding-your-youtube-comments-for-2024/"><u>Tips & Tricks for Easily Finding Your YouTube Comments for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/top-5-affordable-gaming-mice-and-keyboards-99plus/"><u>Top 5 Affordable Gaming Mice & Keyboards $99+</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-academic-history-lovers-guide-to-top-yt-content/"><u>[New] 2024 Approved Academic History Lovers' Guide to Top YT Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-compre-web-resources-for-effortless-youtube-template-access/"><u>[New] In 2024, Compre-Web Resources for Effortless YouTube Template Access</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-elevating-viewers-prime-video-ideas-for-channels/"><u>[New] In 2024, Elevating Viewers Prime Video Ideas for Channels</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pexels-101-finding-the-picture-of-your-dreams/"><u>[New] Pexels 101 Finding the Picture of Your Dreams</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-understanding-the-importance-of-professional-images-as-thumbnails/"><u>[New] Understanding the Importance of Professional Images as Thumbnails</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nlock-11-budget-friendly-creativity-for-youtube-names-for-2024/"><u>[New] Unlock 11 Budget-Friendly Creativity for YouTube Names for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-boost-your-online-presence-by-mastering-video-editing-in-sony-vegas/"><u>[Updated] In 2024, Boost Your Online Presence by Mastering Video Editing in Sony Vegas</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-peak-visionary-suite-feedback/"><u>[Updated] Peak Visionary Suite Feedback</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-navigating-frames-per-second-in-video-recording-the-3060-dilemma/"><u>2024 Approved Navigating Frames Per Second in Video Recording - The 30/60 Dilemma</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-optimal-gameplay-tools-on-the-big-screen/"><u>2024 Approved Optimal Gameplay Tools on the Big Screen</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-unlocking-the-secrets-to-high-clickthrough-rates-in-thumbnails/"><u>2024 Approved Unlocking the Secrets to High Clickthrough Rates in Thumbnails</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ng-the-top-10-vloggers-fears-strategies-for-success/"><u>Busting the Top 10 Vloggers' Fears Strategies for Success</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/explore-googles-critical-reviews-of-battery-operated-nest-doorbell-devices/"><u>Explore Google's Critical Reviews of Battery Operated Nest Doorbell Devices</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/meilleurs-3-remedes-pour-lerreur-0x80070005-memoire-insuffisante/"><u>Meilleurs 3 Remèdes Pour L'Erreur 0X80070005 : Mémoire Insuffisante</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolving-civilization-vi-civ-exception-access-violations-for-the-upcoming-2024-release/"><u>Resolving Civilization VI (CIV) Exception Access Violations for the Upcoming 2024 Release</u></a></li>
+<li><a href="https://fox-place.techidaily.com/seamless-music-shift-from-spotify-to-tidal-discover-two-easy-export-strategies-for-your-playlists/"><u>Seamless Music Shift From Spotify to Tidal: Discover Two Easy Export Strategies for Your Playlists</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, DIY Photography Support Systems"
-date: 2024-10-14T05:08:33.297Z
-updated: 2024-10-21T08:01:32.453Z
+date: 2024-10-19T19:12:45.242Z
+updated: 2024-10-26T22:35:51.723Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,13 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -56,32 +63,31 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -109,6 +115,13 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -131,13 +144,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -159,18 +165,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/hannel-elevation-reach-youtube-affiliate-level-with-10k-views/"><u>[New] Channel Elevation Reach YouTube Affiliate Level with 10K Views</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/limb-the-popularity-ladder-essential-youtube-seo-practices-uncovered-for-2024/"><u>[New] Climb the Popularity Ladder Essential YouTube SEO Practices Uncovered for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ntegrative-design-embedding-youtube-in-slides/"><u>[New] Integrative Design Embedding YouTube in Slides</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-quick-tips-for-uploading-content-on-twitter/"><u>[Updated] In 2024, Quick Tips for Uploading Content on Twitter</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-sync-your-views-iphones-looping-feature/"><u>[Updated] In 2024, Sync Your Views IPhone's Looping Feature</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-screen-recorder-showcase-apowersofts-place-in-the-market/"><u>2024 Approved Screen Recorder Showcase Apowersoft's Place in the Market</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/youtube-banner-size-and-channel-art-dimension-the-ultimate-guide/"><u>Best YouTube Banner Size and Channel Art Dimension (The Ultimate Guide)</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-erase-iphone-6s-data-permanently-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase iPhone 6s Data Permanently | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/resolving-the-mingwm10dll-file-not-detected-step-by-step-solutions/"><u>Resolving the 'mingwm10.dll' File Not Detected: Step-by-Step Solutions</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-strategies-to-address-and-fix-critical-ntldr-error-messages/"><u>Step-by-Step Strategies to Address and Fix Critical NTLDR Error Messages</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nsiders-guide-to-frame-by-frame-video-examination-free-for-2024/"><u>The Insider's Guide to Frame-by-Frame Video Examination (Free) for 2024</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/windows-7-bad-pool-header-solved/"><u>Windows 7 Bad Pool Header [SOLVED]</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/usb-samsung-magician/"><u>うまく機能しないUSB: Samsung Magicianによる対処法を学ぶ</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-streamlining-discovery-the-key-to-effective-video-titling/"><u>[New] 2024 Approved Streamlining Discovery The Key to Effective Video Titling</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-harnessing-skypes-voice-free-mp3-exclusive/"><u>[New] Harnessing Skype's Voice - Free MP3 Exclusive</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-live-stream-over-the-network-with-vlc-media-player/"><u>[New] How to Live Stream Over the Network with VLC Media Player</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-discover-youtubes-free-text-translations-and-downloads/"><u>[Updated] 2024 Approved Discover YouTube's Free Text Translations & Downloads</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-elevate-your-mac-experience-leading-speech-to-text-software-reviewed/"><u>[Updated] 2024 Approved Elevate Your Mac Experience Leading Speech-to-Text Software Reviewed</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-asus-proart-pa32u-4k-hdr-professional-monitor-review/"><u>[Updated] ASUS ProArt PA32U 4K HDR Professional Monitor Review</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-text-that-moves-two-fascinating-techniques-revealed/"><u>[Updated] In 2024, Text That Moves Two Fascinating Techniques Revealed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/cial-forecasting-in-the-world-of-youtube-snippet-creation/"><u>Financial Forecasting in the World of YouTube Snippet Creation</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-samsung-galaxy-xcover-7-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Samsung Galaxy XCover 7 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-videosnatch-quality-inspector/"><u>In 2024, VideoSnatch Quality Inspector</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/hing-winning-steps-for-an-epic-youtube-gaming-channel-for-2024/"><u>Launching Winning Steps for an Epic YouTube Gaming Channel for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/llama-2-the-next-level-in-automation-tools/"><u>Llama 2: The Next Level in Automation Tools</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/revamp-your-experience-how-macos-15-enhances-your-apple-macbook-with-cutting-edge-features-digital-review/"><u>Revamp Your Experience: How macOS 15 Enhances Your Apple MacBook with Cutting-Edge Features | Digital Review</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Xiaomi Redmi K70E | Dr.fone</u></a></li>
 </ul></div>
 
