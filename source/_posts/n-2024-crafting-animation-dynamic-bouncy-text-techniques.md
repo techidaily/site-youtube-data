@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Crafting Animation  Dynamic, Bouncy Text Techniques\""
-date: 2024-10-24T16:52:07.290Z
-updated: 2024-10-27T05:43:47.480Z
+date: 2024-10-31T03:04:08.432Z
+updated: 2024-11-01T16:53:24.249Z
 tags:
   - ai video
   - ai youtube
@@ -76,10 +76,10 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -95,10 +95,10 @@ Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -128,16 +128,10 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -155,10 +149,10 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -182,22 +176,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-access-your-favorites-anytime-the-leading-6-free-video-downloaders/"><u>[New] 2024 Approved Access Your Favorites Anytime The Leading 6 Free Video Downloaders</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-earning-more-utilizing-youtubes-income-tools-on-all-devices/"><u>[New] 2024 Approved Earning More Utilizing YouTube's Income Tools on All Devices</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-elevate-your-youtube-presence-filmmaking-with-filmora/"><u>[New] 2024 Approved Elevate Your YouTube Presence Filmmaking with Filmora</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-insider-tips-maximizing-youtube-edits-with-finalcut-pro/"><u>[New] 2024 Approved Insider Tips Maximizing YouTube Edits with FinalCut Pro</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-prime-guidelines-youtube-respect-and-usage/"><u>[New] 2024 Approved Prime Guidelines YouTube Respect & Usage</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-step-by-step-guide-to-custom-youtube-thumbnail-sizes/"><u>[New] 2024 Approved Step-by-Step Guide to Custom YouTube Thumbnail Sizes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-step-by-step-methodology-assembling-youtube-playlists/"><u>[New] 2024 Approved Step-by-Step Methodology Assembling YouTube Playlists</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-fb-video-conversion-wizardry-turning-hd-to-high-quality-mp4-for-free/"><u>[Updated] In 2024, FB Video Conversion Wizardry – Turning HD to High-Quality MP4, For Free</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-to-music-directing-videos-to-mp3-outputs-for-2024/"><u>[Updated] Instagram to Music Directing Videos to MP3 Outputs for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-precisionsync-analyst-perspectives/"><u>2024 Approved PrecisionSync Analyst Perspectives</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/best-3-realme-gt-5-240w-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Realme GT 5 (240W) Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-realme-c33-2023-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Realme C33 2023 is off? | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/downloading-from-vimeo-made-simple-software-free-or-not-in-2024/"><u>Downloading From Vimeo Made Simple Software-Free or Not, In 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/easy-guide-mastering-the-art-of-streaming-and-watching-mpeg-files-on-your-iphone/"><u>Easy Guide: Mastering the Art of Streaming and Watching MPEG Files on Your iPhone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-business-buying-non-real-youtube-supporters/"><u>Risky Business Buying Non-Real YouTube Supporters</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/screen-snap-shots-made-easy-free-on-windows/"><u>Screen Snap Shots Made Easy – Free on Windows</u></a></li>
-<li><a href="https://windows11.techidaily.com/uncovering-and-correcting-cant-access-mail-errors-in-windows-11-mail-app/"><u>Uncovering and Correcting Can't Access Mail Errors in Windows 11 Mail App</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-streamlining-the-editing-process-elevating-your-youtube-content-with-pc/"><u>[New] In 2024, Streamlining the Editing Process Elevating Your YouTube Content with PC</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-youtube-mastery-elevating-your-channel-with-strategic-spotlight-techniques/"><u>[Updated] 2024 Approved YouTube Mastery Elevating Your Channel with Strategic Spotlight Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-designing-the-ideal-youtube-playlist-for-you/"><u>[Updated] In 2024, Designing the Ideal YouTube Playlist for You</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-enjoy-your-favorite-songs-anytime-convert-youtube-to-mp3-now/"><u>[Updated] In 2024, Enjoy Your Favorite Songs Anytime Convert YouTube to MP3 Now</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-infinite-inspiration-cost-free-youtube-theming/"><u>[Updated] In 2024, Infinite Inspiration Cost-Free YouTube Theming</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-mastering-youtubes-creative-commons-licensing-guide/"><u>2024 Approved Mastering YouTube’s Creative Commons Licensing Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-prime-recording-option-elevate-your-youtube-channel/"><u>2024 Approved Prime Recording Option Elevate Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ced-google-slides-techniques-adding-youtube-media-for-2024/"><u>Advanced Google Slides Techniques Adding YouTube Media for 2024</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/celebrating-juneteenth-strategies-from-top-tech-firms-revealed-on-zdnet/"><u>Celebrating Juneteenth: Strategies From Top Tech Firms Revealed on ZDNet</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-silent-youtube-browsing-for-iphones-and-androids/"><u>In 2024, Silent YouTube Browsing for iPhones and Androids</u></a></li>
+<li><a href="https://network-issues.techidaily.com/nvidia-patch-rtx210-win11-driver-update/"><u>NVIDIA Patch: RTX210 Win11 Driver Update</u></a></li>
+<li><a href="https://win-answers.techidaily.com/step-by-step-fix-for-battlenet-launcher-malfunction-on-windows-pcs/"><u>Step-by-Step Fix for Battle.net Launcher Malfunction on Windows PCs</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unleashing-productivity-on-the-move-discover-the-msi-pro-mp161e2-portable-monitor/"><u>Unleashing Productivity on the Move: Discover the MSI Pro MP161E2 Portable Monitor</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unraveling-photoshops-magic-with-image-curving/"><u>Unraveling Photoshop’s Magic with Image Curving</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Samsung Galaxy A05? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/be-video-animation-tools-and-techniques-for-efficient-gif-making-for-2024/"><u>YouTube Video Animation Tools and Techniques for Efficient Gif Making for 2024</u></a></li>
 </ul></div>
 

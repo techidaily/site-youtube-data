@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Embracing Resilience Against Online Detractors for 2024"
-date: 2024-09-06T15:02:22.906Z
-updated: 2024-09-07T15:02:22.906Z
+date: 2024-10-27T01:47:27.557Z
+updated: 2024-11-01T23:09:05.135Z
 tags:
   - ai video
   - ai youtube
@@ -14,36 +14,18 @@ keywords: "\"Online Resilience Tips,Digital Detractor Management,Stay Strong Web
 thumbnail: https://thmb.techidaily.com/91e7f02bd957e18d2516616e2ae6cdb5e18d026273686f4e3b0840225091d98b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Embracing Resilience Against Online Detractors
 
 # How To Deal with YouTube Trolls and Negative Comments
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -72,26 +54,17 @@ thumbnail: https://thmb.techidaily.com/91e7f02bd957e18d2516616e2ae6cdb5e18d02627
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -100,4 +73,28 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-pro-streamers-compendium-essential-livestream-software-and-hardware-for-success/"><u>[New] In 2024, Pro Streamer's Compendium Essential Livestream Software and Hardware for Success</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ics-and-more-discovering-the-audio-essential-that-matches-your-yt-vision-for-2024/"><u>[New] Mics & More Discovering the Audio Essential That Matches Your YT Vision for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlocking-youtube-mastery-of-video-segmentation-for-2024/"><u>[New] Unlocking YouTube Mastery of Video Segmentation for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-crafting-engaging-youtube-video-layouts-for-2024/"><u>[Updated] Crafting Engaging YouTube Video Layouts for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-streamlining-video-dispatch-to-facebook-from-youtube/"><u>[Updated] In 2024, Streamlining Video Dispatch to Facebook From YouTube</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-rev-up-your-earnings-a-deep-dive-into-vimeo-profits/"><u>[Updated] Rev Up Your Earnings A Deep Dive Into Vimeo Profits</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-step-by-step-fbx-capture-for-gamers-for-2024/"><u>[Updated] Step-by-Step FBX Capture For Gamers for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-rotation-video-setup/"><u>[Updated] Ultimate Rotation Video Setup</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/anticipating-the-official-chatgpt-desktop-release-check-out-our-top-free-open-source-ai-chatbot/"><u>Anticipating the Official ChatGPT Desktop Release? Check Out Our Top Free, Open-Source AI Chatbot</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/e-a-youtube-live-expert-strategies-and-insights/"><u>Become a YouTube Live Expert Strategies and Insights</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/convert-video-formats-flawlessly-use-movavis-gratis-tool-for-mpegm1v-streaming/"><u>Convert Video Formats Flawlessly - Use Movavi's Gratis Tool for MPEG/M1V Streaming</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-samsung-galaxy-a25-5g-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Samsung Galaxy A25 5G phone? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209531334-9781785357671-kitchen-witchcraft/"><u>Kitchen Witchcraft | Free Book</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-your-youtube-audience-the-detailed-guide/"><u>Tailoring Your YouTube Audience - The Detailed Guide</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

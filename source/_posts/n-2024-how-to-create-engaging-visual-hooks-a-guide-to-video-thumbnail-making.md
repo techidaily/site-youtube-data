@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, How to Create Engaging Visual Hooks  A Guide to Video Thumbnail Making\""
-date: 2024-10-21T04:08:17.834Z
-updated: 2024-10-26T16:37:43.790Z
+date: 2024-10-28T03:31:06.584Z
+updated: 2024-11-02T01:09:30.753Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,13 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
@@ -56,17 +63,10 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -74,13 +74,6 @@ An example of a standard layout could be you in the middle of the screen wearing
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
 
@@ -93,6 +86,13 @@ Make sure the images you choose are relevant to the topic of your video.
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -107,10 +107,10 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -134,15 +134,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-streamline-your-vlog-with-video-length-optimization/"><u>[New] 2024 Approved Streamline Your Vlog with Video Length Optimization</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-visual-branding-in-small-business-marketing/"><u>[New] 2024 Approved Visual Branding in Small Business Marketing</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-weighing-your-options-choosing-between-tiktok-and-youtube-shorts/"><u>[New] 2024 Approved Weighing Your Options Choosing Between TikTok and YouTube Shorts</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-accelerated-content-acquisition-with-funimate/"><u>[New] Accelerated Content Acquisition with Funimate</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-unleash-your-time-potential-with-gratuitous-clock-tools/"><u>[New] Unleash Your Time Potential with Gratuitous Clock Tools</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-honor-play-7t-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Honor Play 7T without App | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/best-storing-solution-for-sony-a7s-ii-for-2024/"><u>Best Storing Solution for Sony A7S II for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/overcoming-compatibility-challenges-microsoft-wireless-screen-mirroring-in-windows-10-fixed/"><u>Overcoming Compatibility Challenges: Microsoft Wireless Screen Mirroring in Windows 10 [Fixed]</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-with-stars-the-finest-historical-channels-for-students-and-enthusiasts/"><u>Study with Stars The Finest Historical Channels for Students & Enthusiasts</u></a></li>
-<li><a href="https://media-tips.techidaily.com/top-two-techniques-for-creating-high-quality-animated-gifs-from-pdf-files/"><u>Top Two Techniques for Creating High-Quality Animated GIFs From PDF Files</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-cutting-edge-essential-editing-tips-for-youtube-experts/"><u>[New] In 2024, The Cutting Edge Essential Editing Tips for YouTube Experts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-elevate-your-gaming-experience-with-fbx-recording-tips/"><u>[Updated] 2024 Approved Elevate Your Gaming Experience with FBX Recording Tips</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-fbx-recorder-essentials-for-players-for-2024/"><u>[Updated] FBX Recorder Essentials For Players for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-7-creative-thumbnails-free-tools-for-youtube/"><u>[Updated] In 2024, 7 Creative Thumbnails Free Tools for YouTube</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-future-ready-inhabitants-of-the-metaverse-your-device-blueprint/"><u>[Updated] In 2024, Future-Ready Inhabitants of the Metaverse - Your Device Blueprint</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mr-beasts-financial-reach-for-2024/"><u>[Updated] Mr. Beast's Financial Reach for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-unmatched-warfare-discovering-the-prime-7-total-war-battles-for-2024/"><u>[Updated] Unmatched Warfare Discovering the Prime 7 Total War Battles for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-novel-vlog-talk-points-everyday/"><u>In 2024, Novel Vlog Talk Points Everyday</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/maximizing-impact-making-an-engaging-podcast-trailer/"><u>Maximizing Impact Making an Engaging Podcast Trailer</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/resisting-insta-imposters-protect-your-profiles-prestige/"><u>Resisting Insta Imposters Protect Your Profile's Prestige</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-timeline-to-babel-like-multilingualism-fact-or-fiction/"><u>The Timeline to Babel-Like Multilingualism: Fact or Fiction?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/be-milestone-mastery-breaking-into-the-millions/"><u>Youtube Milestone Mastery Breaking Into the Millions</u></a></li>
 </ul></div>
 

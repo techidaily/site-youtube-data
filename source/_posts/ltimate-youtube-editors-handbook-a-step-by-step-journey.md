@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate YouTube Editor's Handbook  A Step-by-Step Journey\""
-date: 2024-10-22T04:41:51.756Z
-updated: 2024-10-27T02:33:09.330Z
+date: 2024-10-28T20:54:57.973Z
+updated: 2024-11-02T00:28:19.881Z
 tags:
   - ai video
   - ai youtube
@@ -59,10 +59,10 @@ Below is a video tutorial about how to add text and titles to video in Filmora, 
 For more information on intros, check out our post on [How to Make a YouTube Intro?](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Part 2: Cuts
@@ -85,6 +85,13 @@ In the same vlog that Jake Paul gets chased down by his brother (above), twenty-
 
 ![Talladega Nights](https://media.giphy.com/media/3o7aTBRWaXiqticjBu/giphy.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Part 3: Transform
 
 #### 1. Zoom
@@ -101,13 +108,6 @@ Camera shake is a video effect that makes the original clip appear like it was f
 
 A lot of comedy YouTubers change the color and levels of their videos in order to emphasize different moods. One common thing YouTubers do when they talk about anything slightly sad is to gradually fade out the colors in their talking head shots. In a cheesy way, the black and white look can emphasize a feeling of emptiness. For his “sad” reactions, PewDiePie often jump cuts into a black and white, slowed down clip of his sad face while playing some sad music in the background. To emphasize a darker message, some YouTubers increase the amount of shadows in their video. In the video below, while his daughter is delivering a darker message from 0:32 to 0:50, La Guardia Cross gradually adds more shadows around his daughter’s face through what appears to be a vignette effect.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Part 4: Transitions
 
 #### 1. Wipe
@@ -117,13 +117,6 @@ Many YouTubers transition from one scene into the next using a wipe transition. 
 #### 2. Zoom
 
 The zoom transition is quite similar to the wipe transition, except it uses a zoom effect. Many of the top YouTubers combine this transition with a lower-pitched “woosh” sound effect.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Part 5: Visual Elements
 
@@ -148,10 +141,10 @@ Slowing down footage is another way YouTubers like to manipulate the passage of 
 **![Slow Motion](https://media.giphy.com/media/hEZfnQRnS4eBO/giphy.gif)**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Part 7: Audio
@@ -186,6 +179,19 @@ For those who want to make their YouTube videos better, I recommend Wondershare 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -209,16 +215,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-advanced-steps-to-record-silent-videos/"><u>[New] 2024 Approved Advanced Steps to Record Silent Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-content-creation-battleground-choosing-between-vimeo-youtube-dailymotion/"><u>[New] 2024 Approved Content Creation Battleground Choosing Between Vimeo, YouTube, DailyMotion</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-syncing-youtube-audio-to-film-compositions/"><u>[Updated] In 2024, Syncing YouTube Audio to Film Compositions</u></a></li>
-<li><a href="https://howto.techidaily.com/android-screen-stuck-general-realme-narzo-60-5g-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Realme Narzo 60 5G Partly Screen Unresponsive | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-crafting-youtube-entrance-videos-with-the-top-tools/"><u>In 2024, Crafting YouTube Entrance Videos with the Top Tools</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-enhance-video-visibility-with-effective-thumbnail-scaling/"><u>In 2024, Enhance Video Visibility with Effective Thumbnail Scaling</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-how-user-generated-feedback-influences-video-ranks/"><u>In 2024, How User-Generated Feedback Influences Video Ranks</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-how-to-create-endless-video-on-iphone/"><u>In 2024, How-To Create Endless Video on iPhone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-instant-techniques-to-shuffle-youtube-song-sequences/"><u>In 2024, Instant Techniques to Shuffle YouTube Song Sequences</u></a></li>
-<li><a href="https://blog-min.techidaily.com/top-12-gratis-mac-dvd-ripping-programme-202/"><u>Top 12 Gratis Mac DVD Ripping Programme 202</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-unlocking-the-potential-of-bandicam-your-ultimate-guide/"><u>[New] 2024 Approved Unlocking the Potential of Bandicam – Your Ultimate Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-capturing-desktop-anytime-on-windows-for-2024/"><u>[New] Capturing Desktop, Anytime on Windows for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-uncharted-film-hits-of-2023/"><u>[New] In 2024, Uncharted Film Hits of 2023</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-mastering-youtube-video-replays-your-comprehensive-tutorial/"><u>[Updated] 2024 Approved Mastering YouTube Video Replays Your Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-navigating-youtubes-rules-the-safe-way/"><u>[Updated] In 2024, Navigating YouTube's Rules The Safe Way</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-streamline-your-youtube-shorts-thumbnail-process/"><u>[Updated] Streamline Your YouTube Shorts Thumbnail Process</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-googles-goldmine-a-simplified-three-step-blueprint-for-calculating-subscriber-earning-potential/"><u>2024 Approved Google's Goldmine A Simplified Three-Step Blueprint for Calculating Subscriber Earning Potential</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/dable-mcb-theme-images-for-channels/"><u>Affordable MCB Theme Images for Channels</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-methodical-decrescendo-techniques-for-logic-pro-mixers/"><u>In 2024, Methodical Decrescendo Techniques for Logic Pro Mixers</u></a></li>
+<li><a href="https://discover-able.techidaily.com/nec-pc/"><u>NEC PC システム復元ガイド: 詳細なステップによる設定</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/online-mov-to-m4r-file-converter-by-movavi-quick-and-easy-upload-method-no-cost-involved/"><u>Online MOV to M4R File Converter by Movavi - Quick & Easy Upload Method, No Cost Involved</u></a></li>
+<li><a href="https://program-issues.techidaily.com/optimizing-cyberpunk-2077-for-lower-cpu-consumption-fixed/"><u>Optimizing Cyberpunk 2077 for Lower CPU Consumption - Fixed!</u></a></li>
+<li><a href="https://win-answers.techidaily.com/quick-solution-for-battlefield-5-launch-failures/"><u>Quick Solution for Battlefield 5 Launch Failures</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/techniques-to-halt-live-streams-in-qt-player/"><u>Techniques to Halt Live Streams in QT Player</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/for-effortless-sharing-of-musical-selections-for-2024/"><u>Tips for Effortless Sharing of Musical Selections for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Cutting Edge Techniques  Pushing Boundaries in YouTube Cinematography\""
-date: 2024-09-11T06:23:23.010Z
-updated: 2024-09-12T06:23:23.010Z
+date: 2024-10-31T17:35:34.115Z
+updated: 2024-11-01T23:53:46.863Z
 tags:
   - ai video
   - ai youtube
@@ -27,20 +27,6 @@ thumbnail: https://thmb.techidaily.com/19a61f5995d579c8b7ad201fc517afd84cc338957
  We have mentioned before about [the equipment you should have to start your YouTube video shooting](https://tools.techidaily.com/wondershare/filmora/download/), however, being methodical in your approach to the video making process and knowing exactly what and where you are going to stage and record will increase the quality of the content. Focus on the technical aspects of your YouTube video before you actually start shooting and strive to be well prepared for all the challenges a day on the set may bring.
 
  These and other useful tips may help you make better videos for your YouTube channel, so let's explore different ways of improving your video making skills.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 10 Tips for Shooting Better YouTube Videos
 
@@ -74,20 +60,6 @@ thumbnail: https://thmb.techidaily.com/19a61f5995d579c8b7ad201fc517afd84cc338957
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Posting vertically oriented videos to your YouTube channel will make you look unprofessional because portrait mode is never used for capturing videos. YouTubers who record their videos with Smartphones are more likely to fall into this trap, but all you need to do to avoid this is remember to hold the device horizontally.
 
  By switching to portrait mode, you'll be cropping the frame in a way, so you might unknowingly end up removing parts of the shot you wanted to record.
@@ -104,20 +76,6 @@ thumbnail: https://thmb.techidaily.com/19a61f5995d579c8b7ad201fc517afd84cc338957
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 #### 8. Keep The Shot in Focus
 
  You can always keep the shot in focus by simply enabling the autofocus feature, but if you do so you won't be able to control where the focus is going to be. Pulling focus manually is an art that takes years to master, and you have to keep practicing it as much as you can in order to become good at it.
@@ -127,20 +85,6 @@ thumbnail: https://thmb.techidaily.com/19a61f5995d579c8b7ad201fc517afd84cc338957
 #### 9. Put The Camera on a Tripod
 
 ![Camera tripod ](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  The footage you produce should be smooth and free of camera shakes. All video cameras pick up vibrations easily, so even the slightest movement or impact can ruin a shot. Putting the camera on a tripod is one of the best ways to stabilize the shot and avoid camera shaking.
 
@@ -164,34 +108,17 @@ thumbnail: https://thmb.techidaily.com/19a61f5995d579c8b7ad201fc517afd84cc338957
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -200,4 +127,28 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-hubsan-h501s-exploration-the-ultimate-fpv-experience/"><u>[New] 2024 Approved Hubsan H501S Exploration The Ultimate FPV Experience</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/levate-small-screen-experience-with-these-leading-and-affordable-tools-to-download-youtubes-tiny-videos/"><u>[New] Elevate Small Screen Experience with These Leading & Affordable Tools to Download YouTubes' Tiny Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-slomo-capture-application-assessment-expert-opinions/"><u>[New] In 2024, SloMo Capture Application Assessment - Expert Opinions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-turn-the-clock-back-reverse-video-mastery-in-instagram/"><u>[New] In 2024, Turn the Clock Back Reverse Video Mastery in Instagram</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-unlock-potential-in-your-screen-recording-with-obs/"><u>[New] In 2024, Unlock Potential in Your Screen Recording with OBS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-monetization-metrics-viewers-contribution-to-earnings/"><u>[Updated] 2024 Approved Monetization Metrics Viewers' Contribution to Earnings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-vimeo-vs-youtube-which-is-better/"><u>[Updated] In 2024, Vimeo vs YouTube Which Is Better?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/70573190-updated-top-tier-video-transcription-aid-automated/"><u>[Updated] Top-Tier Video Transcription Aid, Automated!</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-how-to-and-where-download-unboxing-video-background-music/"><u>2024 Approved How To & Where Download Unboxing Video Background Music</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-optimal-video-intros-selecting-the-top-16-to-increase-views/"><u>2024 Approved Optimal Video Intros Selecting the Top 16 to Increase Views</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ssing-your-creative-potential-an-exhaustive-tutorial-for-youtube-video-submission/"><u>Harnessing Your Creative Potential An Exhaustive Tutorial for YouTube Video Submission</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/tailoring-customer-experiences-in-chatgpt-through-strategic-user-persona-development/"><u>Tailoring Customer Experiences in ChatGPT Through Strategic User Persona Development</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685487-9781644117170-the-royal-path-of-shakti/"><u>The Royal Path of Shakti | Free Book</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/transforming-your-iphone-screen-at-dusk-enabling-the-dark-theme-easily/"><u>Transforming Your iPhone Screen at Dusk: Enabling the Dark Theme Easily</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

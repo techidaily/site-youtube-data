@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Digital Detox  Ignoring Negativity on YouTube\""
-date: 2024-09-06T15:06:50.982Z
-updated: 2024-09-07T15:06:50.982Z
+date: 2024-10-29T16:15:13.808Z
+updated: 2024-11-01T20:24:56.907Z
 tags:
   - ai video
   - ai youtube
@@ -14,48 +14,18 @@ keywords: "Digital Detox Tips,Positive YouTubing,Screen Time Reduction,Mental We
 thumbnail: https://thmb.techidaily.com/190bc8b4a2b2c75fb28f94e31b443bd5a1a2add3f40bf2451de84693ef89aead.jpeg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Digital Detox: Ignoring Negativity on YouTube
 
 # How To Deal with YouTube Trolls and Negative Comments
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -84,26 +54,17 @@ thumbnail: https://thmb.techidaily.com/190bc8b4a2b2c75fb28f94e31b443bd5a1a2add3f
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -112,4 +73,35 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-maximize-ms-edge-usage-understanding-and-using-picture-in-picture/"><u>[New] In 2024, Maximize MS Edge Usage Understanding and Using Picture-in-Picture</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-perfect-start-leading-free-video-openers-listed/"><u>[Updated] 2024 Approved Perfect Start Leading Free Video Openers Listed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-ideal-tools-for-saving-your-online-video-presence/"><u>[Updated] Ideal Tools for Saving Your Online Video Presence</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-critical-factors-for-an-effective-4k-camera-upgrade/"><u>[Updated] In 2024, Critical Factors for an Effective 4K Camera Upgrade</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-triple-tactic-tracker-how-to-scrutinize-your-subscriber-earnings-on-googles-platform-youtube/"><u>2024 Approved Triple Tactic Tracker How to Scrutinize Your Subscriber Earnings on Google's Platform, YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/pwise-approach-to-add-youtube-videos-into-slate-for-2024/"><u>A Stepwise Approach to Add YouTube Videos Into Slate for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/atic-brilliance-for-video-enthusiasts-for-2024/"><u>Chromatic Brilliance for Video Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/hering-digital-dominance-a-detailed-examination-of-youtube-engagement-metrics-for-2024/"><u>Deciphering Digital Dominance A Detailed Examination of YouTube Engagement Metrics for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-realme-c55-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Realme C55 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-in-game-capture-clarified/"><u>In 2024, In-Game Capture Clarified</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pixel-magic-transforming-still-images-to-video-with-pixiz/"><u>In 2024, Pixel Magic Transforming Still Images to Video with Pixiz</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-tecno-pova-6-pro-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Tecno Pova 6 Pro 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/league-of-legends-troubles-master-these-easy-fixes-for-a-seamless-gaming-experience/"><u>League of Legends Troubles? Master These Easy Fixes for a Seamless Gaming Experience!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/g-tides-of-streamers-a-guide-to-building-a-successful-chatter-for-2024/"><u>Rising Tides of Streamers A Guide to Building a Successful Chatter for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-dell-2330d-and-2330dn-monochrome-laser-printer-drivers/"><u>Update Dell 2330D & 2330DN Monochrome Laser Printer Drivers</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

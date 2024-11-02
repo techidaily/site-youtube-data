@@ -1,7 +1,7 @@
 ---
 title: "\"Cutting the Excess  A Guide to Shortening YouTube Videos\""
-date: 2024-10-23T05:44:17.188Z
-updated: 2024-10-27T10:32:15.746Z
+date: 2024-10-26T01:11:50.364Z
+updated: 2024-11-02T01:54:27.680Z
 tags:
   - ai video
   - ai youtube
@@ -59,13 +59,6 @@ In this way, you don’t need to take down the original video, edit it and re-up
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Method 1: Trim on Timeline
 
 YouTubers who don’t want to rely on YouTube’s video editing capabilities can trim their footage with Filmora (to be honest, the Editor in YouTube platform has limited features). Filmora video editing software for PC and Mac computers offers a few different tools for trimming videos. After you’ve created a new project in Filmora, you should import a video clip into the editor by clicking on the **Import** drop-down menu and select the **Import Media Files** option. Each file you add to a project will be displayed in the **Media tab**, and you can just **drag and drop** it to a video track on the timeline.
@@ -75,10 +68,10 @@ All you have to do in order to trim a video after you’ve placed it on the time
 ![Trim YouTube Videos with Filmora Trimmer  Tool](https://images.wondershare.com/filmora/guide/trim-sides.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Method 2: Using Filmora Split Tool
@@ -98,16 +91,10 @@ The **Instant Cutter Tool** enables you to quickly trim or merge high-resolution
 ![Trim YouTube Videos with Filmora Instant Cutter Tool](https://images.wondershare.com/filmora/article-images/instant-cutter-filmora-1.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Using Online Video Editing Platforms to Trim YouTube Videos
@@ -116,6 +103,13 @@ In case you’re looking for a tool that lets you save extracts of scenes from Y
 
 ![Trim YouTube Videos online ](https://images.wondershare.com/filmora/article-images/yt-cutter-youtube-trimmer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This online video editing platform is remarkably easy to use since you just have to **copy** **the link to the YouTube video** you’d like to trim into **YT Cutter’s URL box** and then select how long the new video should be. Click on the **Start and End buttons** to set the duration of the video and click on the **Download button** to choose if you want to create **a video, GIF or an audio file**. The trimmed YouTube video will be available for download as soon as the platform processes it, and you just need to specify a folder on your hard drive before clicking on **the Save button**.
 
 There’re many [online video trimmers](https://tools.techidaily.com/wondershare/filmora/download/) available on the market, some of them are totally free to use, check our guide about [How to Trim Videos for Free Online](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -123,16 +117,10 @@ There’re many [online video trimmers](https://tools.techidaily.com/wondershare
  **Read More to Get :** [How to Download YouTube Videos without Any Software Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -162,19 +150,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-boosting-engagement-perfect-time-stamping-techniques-for-videos/"><u>[New] 2024 Approved Boosting Engagement Perfect Time-Stamping Techniques for Videos</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-dominate-digital-dialogue-the-top-10-masterful-igtv-practices-for-branding-success/"><u>[New] 2024 Approved Dominate Digital Dialogue The Top 10 Masterful IGTV Practices for Branding Success</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-expert-tips-extracting-audio-from-youtube-video-playback/"><u>[New] 2024 Approved Expert Tips Extracting Audio From YouTube Video Playback</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-step-into-the-spotlight-learning-youtube-vlogger-etiquette/"><u>[New] 2024 Approved Step Into the Spotlight Learning YouTube Vlogger Etiquette</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-right-sound-the-right-mic-top-recommendations-for-diverse-online-presence/"><u>[New] 2024 Approved The Right Sound, The Right Mic Top Recommendations for Diverse Online Presence</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-transforming-cityscapes-into-sustainable-havens-of-life/"><u>[New] 2024 Approved Transforming Cityscapes Into Sustainable Havens of Life</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-transform-tales-gratuitous-enhancements-across-platforms-for-2024/"><u>[Updated] Transform Tales Gratuitous Enhancements Across Platforms for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ai-date-coach-chatgpt-for-romance/"><u>AI Date Coach: ChatGPT for Romance</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/comprehensive-evaluation-of-fujifilm-instax-mini-99-the-ultimate-guide-to-an-iconic-polaroid-alternative/"><u>Comprehensive Evaluation of Fujifilm Instax Mini 99 – The Ultimate Guide to an Iconic Polaroid Alternative</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-honor-x8b-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Honor X8b to New Phone | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-beyond-expectations-the-latest-lg-tv-bp550-review/"><u>In 2024, Beyond Expectations The Latest LG TV BP550 Review</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-handheld-smooth-movies-maker/"><u>In 2024, Handheld Smooth Movies Maker</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-itel-p55t-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Itel P55T | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-this-top-music-reaction-videos-of-2023/"><u>Watch This! Top Music Reaction Videos of 2023</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-expressive-communicator-investigation-edition-8/"><u>[New] Expressive Communicator Investigation, Edition 8</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-journey-around-the-world-on-youtube-including-you/"><u>[New] In 2024, Journey Around the World on YouTube, Including You</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-rip-and-save-the-best-youtube-download-software/"><u>[New] In 2024, Rip & Save The Best YouTube Download Software</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-lenovo-streamlined-screen-recording-guide/"><u>[New] Lenovo Streamlined Screen Recording Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/innacle-of-presence-a-strategic-approach-for-live-video-graphics-for-2024/"><u>[New] Pinnacle of Presence A Strategic Approach for Live Video Graphics for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ix-offbeat-sources-for-customized-video-theme-elements-for-2024/"><u>[New] Six Offbeat Sources for Customized Video Theme Elements for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-elevating-your-social-media-game-horizontal-videos-on-igtv/"><u>[Updated] 2024 Approved Elevating Your Social Media Game Horizontal Videos on IGTV</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-fast-techniques-for-reordering-youtube-video-queues/"><u>[Updated] In 2024, Fast Techniques for Reordering YouTube Video Queues</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-premier-screener-for-capturing-high-quality-videos/"><u>[Updated] In 2024, Premier Screener for Capturing High-Quality Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-securing-your-youtube-footage-a-quick-walkthrough/"><u>[Updated] In 2024, Securing Your YouTube Footage A Quick Walkthrough</u></a></li>
+<li><a href="https://fox-access.techidaily.com/elevate-your-videography-mastering-the-dimensions/"><u>Elevate Your Videography Mastering the Dimensions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ng-up-for-a-leisurely-view-three-methods-to-tame-video-speed-on-youtube-60-chars-minor-exception-due-to-title-length-but-offers-comprehensive-insight-f/"><u>Gearing Up for a Leisurely View Three Methods to Tame Video Speed on YouTube (60 Chars, Minor Exception Due to Title Length but Offers Comprehensive Insight) for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-put-multiple-pictures-on-insta-story-a-simple-guide-for-2024/"><u>How to Put Multiple Pictures on Insta Story - a Simple Guide for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-x-with-a-mask-on-by-drfone-ios/"><u>How to Unlock iPhone X with a Mask On</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/sh-creativity-crafting-your-own-youtube-shorts-thumbnails-for-2024/"><u>Unleash Creativity Crafting Your Own YouTube Shorts Thumbnails for 2024</u></a></li>
 </ul></div>
 

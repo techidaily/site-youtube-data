@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Rapid Rendering of Epic Battle Royale Tiles"
-date: 2024-09-06T15:05:40.710Z
-updated: 2024-09-07T15:05:40.710Z
+date: 2024-10-31T18:46:35.287Z
+updated: 2024-11-01T17:47:55.033Z
 tags:
   - ai video
   - ai youtube
@@ -20,12 +20,6 @@ thumbnail: https://thmb.techidaily.com/4db798dc8e85e2daadf391573bc5ef81d7d7a8b53
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Ollie Mattison
 
  Mar 27, 2024• Proven solutions
@@ -40,12 +34,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 ![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 02:** If you are using a console, the game will only store 10 recent gameplays, but if you are using a PC, it will store 100 recent gameplays in this section. From all these gameplays, select the one that you want to use for the Thumbnail. Once you choose gameplay, you can control everything in it. The angle, speed, and camera mode.
 
 ![make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
@@ -62,12 +50,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 ![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 06:** Now, let's separate the background and character. Go to the Effects, then AI Portrait, select Human Segmentation, and drop it into the screenshot.
 
 ![make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
@@ -76,12 +58,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 ![make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 08:** It will remove the background of the screenshot.
 
 ![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
@@ -90,32 +66,14 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 ![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 10:** To add titles in the Thumbnail, go to the Titles tab. Here you can find several categories of titles. Find your preferred title and drop it above all the layers. You can choose titles, lower thirds, and other texts depending upon your need and requirement.
 
 ![make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 11:** We can make this Fortnite Thumbnail look more attractive by adding elements such as stickers and icons. Filmora contains a wide range of stickers. To access them, navigate to the Elements tab. Here you can find so many categories of elements. Choose any elements according to your need and drop them in the timeline above all other layers. If you cannot find a suitable sticker, you can download one from the internet and use it by importing it into Filmora.
 
 ![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 12:** Once you are satisfied with the final results, you can take the screenshot of the Thumbnail using the Snapshot icon located below the preview panel. It will create a screenshot in the media panel of Filmora.
 
 ![make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
@@ -124,12 +82,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 ![make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Conclusion
 
 With Filmora, there are no limits. You can use your imagination to create amazing Fortnite thumbnails or thumbnails for other purposes. This article is just a demo teaching you how you use Filmora X to develop free and astounding thumbnails. Explore other options and elements of Filmora to take your thumbnails to another level.
@@ -142,14 +94,11 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,4 +107,33 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/rom-fan-to-earner-understanding-view-requirements/"><u>[New] From Fan to Earner Understanding View Requirements</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-surging-views-selecting-best-hashtags-for-yt/"><u>[New] In 2024, Surging Views Selecting Best Hashtags for YT</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-upload-mp3-quickly-step-by-step-to-youtube-broadcasting/"><u>[New] In 2024, Upload MP3 Quickly Step-by-Step to YouTube Broadcasting</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/electing-the-right-gear-a-filmmakers-checklist/"><u>[New] Selecting the Right Gear A Filmmaker's Checklist</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nveiling-8-best-tools-for-youtube-to-avi-conversion-for-2024/"><u>[New] Unveiling 8 Best Tools for YouTube to AVI Conversion for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-maximize-viewership-with-innovative-youtube-thumbnail-ideas/"><u>[Updated] 2024 Approved Maximize Viewership with Innovative YouTube Thumbnail Ideas</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovative-iphone-and-ipad-video-players-the-10-best-options/"><u>2024 Approved Innovative iPhone & iPad Video Players The 10 Best Options</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-child-prodigy-who-conquered-currency-with-content/"><u>2024 Approved The Child Prodigy Who Conquered Currency with Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/re-unlimited-stock-images-via-top-4-youtube-sources-for-2024/"><u>Acquire Unlimited Stock Images via Top 4 YouTube Sources for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/clearing-out-the-suggestions-for-you-section-on-instagram-a-step-by-step-guide/"><u>Clearing Out the 'Suggestions for You' Section on Instagram - A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effective-methods-for-addressing-pixel-color-issues-and-contorted-images-on-your-desktop-monitor/"><u>Effective Methods for Addressing Pixel Color Issues and Contorted Images on Your Desktop Monitor</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhanced-user-experience-with-automated-conversion-tracking-the-power-of-cookiebot/"><u>Enhanced User Experience with Automated Conversion Tracking - The Power of Cookiebot</u></a></li>
+<li><a href="https://win-forum.techidaily.com/exploring-major-networks-connect-with-facebook-twitter-instagram-and-youtube/"><u>Exploring Major Networks: Connect with Facebook, Twitter, Instagram and Youtube</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exploring-the-history-and-functionality-of-googles-hangouts-platform/"><u>Exploring the History and Functionality of Google's Hangouts Platform</u></a></li>
+<li><a href="https://fox-links.techidaily.com/fourfold-precision-in-color-capture-with-blade-cameras/"><u>Fourfold Precision in Color Capture with Blade Cameras</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-tips-and-tricks-for-joining-friends-live-on-tiktok/"><u>In 2024, Tips & Tricks for Joining Friends' LIVE on TikTok</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211314330-9781440507236-secret-america/"><u>Secret America | Free Book</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ey-to-video-marketing-dominance-youtubes-seo-secrets/"><u>The Key to Video Marketing Dominance YouTube's SEO Secrets</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/goodbye-to-dullness-the-ultimate-list-of-funny-youtubers/"><u>Wave Goodbye to Dullness The Ultimate List of Funny YouTubers</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

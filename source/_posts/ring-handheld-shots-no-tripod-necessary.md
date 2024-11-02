@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Handheld Shots  No Tripod Necessary\""
-date: 2024-10-26T08:24:47.957Z
-updated: 2024-10-27T04:22:03.560Z
+date: 2024-10-28T03:34:42.175Z
+updated: 2024-11-01T17:44:13.772Z
 tags:
   - ai video
   - ai youtube
@@ -55,22 +55,15 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
@@ -95,10 +88,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -110,10 +103,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -138,6 +131,13 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -159,24 +159,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-from-reality-to-virtuality-best-practices-for-recording-gameplay-worlds/"><u>[New] 2024 Approved From Reality to Virtuality Best Practices for Recording Gameplay Worlds</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/reak-down-the-essentials-of-youtube-sharing-on-facebook-for-2024/"><u>[New] Break Down The Essentials of YouTube Sharing on Facebook for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-navigating-the-digital-space-with-ease-via-onestream-platform/"><u>[New] Navigating the Digital Space with Ease via OneStream Platform</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-20plus-amazing-youtube-shortcuts-you-should-know-for-2024/"><u>[Updated] 20+ Amazing YouTube Shortcuts You Should Know for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-easy-paths-to-profitable-youtube-business-channels-top-10-list/"><u>[Updated] 2024 Approved Easy Paths to Profitable YouTube Business Channels, Top 10 List</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-vlc-video-recording-performance-study/"><u>[Updated] VLC Video Recording Performance Study</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-from-raw-footage-to-polished-content-youtube-studio-edition/"><u>2024 Approved From Raw Footage to Polished Content YouTube Studio Edition</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-mastery-over-moments-jake-pauls-youtube-saga/"><u>2024 Approved Mastery Over Moments Jake Paul's YouTube Saga</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-top-6-defensive-mc-home-designs/"><u>2024 Approved Top 6 Defensive MC Home Designs</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/banishing-deceptive-messages-the-ultimate-solution-for-removing-the-notorious-google-chrome-error/"><u>Banishing Deceptive Messages: The Ultimate Solution for Removing the Notorious Google Chrome Error</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/boost-productivity-and-ease-10-most-effective-ai-pdf-tools/"><u>Boost Productivity & Ease: 10 Most Effective AI PDF Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/comparing-oculus-quest-privacy-in-meta-and-facebook-realms/"><u>Comparing Oculus Quest Privacy in Meta & Facebook Realms</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/effortless-guide-how-to-get-mp3-files-onto-your-android-phone/"><u>Effortless Guide: How to Get MP3 Files Onto Your Android Phone</u></a></li>
-<li><a href="https://win-info.techidaily.com/erstellen-sie-ein-erecovery-management-usb-fur-ihren-acer-computer-einfache-schritte-detailliert-erklart/"><u>Erstellen Sie Ein eRecovery-Management-USB Für Ihren Acer Computer – Einfache Schritte Detailliert Erklärt</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-secrets-to-superior-youtube-videos-mastering-post-upload-editing/"><u>In 2024, Secrets to Superior YouTube Videos Mastering Post-Upload Editing</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-thumbnail-artistry-for-engaging-youtube-channels/"><u>In 2024, Thumbnail Artistry for Engaging YouTube Channels</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ize-video-views-with-these-top-5-link-shrinkers/"><u>Optimize Video Views with These Top 5 Link Shrinkers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ior-scrutinizer-of-top-8-rankings-tracker-for-2024/"><u>Superior Scrutinizer of Top 8 Rankings Tracker for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transform-films-activate-xp-movie-maker-now-for-2024/"><u>Transform Films, Activate XP Movie Maker Now for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-chromatic-brilliance-for-video-enthusiasts/"><u>[Updated] 2024 Approved Chromatic Brilliance for Video Enthusiasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-prowl-without-interrups-find-the-best-7-android-adblock-tools/"><u>[Updated] 2024 Approved Prowl Without Interrups Find the Best 7 Android AdBlock Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-cut-the-clutter-advanced-techniques-with-youtube-studio-editor/"><u>[Updated] Cut the Clutter Advanced Techniques with YouTube Studio Editor</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-streamlining-your-verification-process-on-yt-for-2024/"><u>[Updated] Streamlining Your Verification Process on YT for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/amd-to-revolutionize-mobile-computing-zen-5-chip-brings-desktops-115w-strength-in-a-portable-package-teased-by-the-mighty-ryzen-strix-halo-with-16-cores-and80/"><u>AMD to Revolutionize Mobile Computing: Zen 5 Chip Brings Desktop's 115W Strength in a Portable Package, Teased by the Mighty Ryzen Strix Halo with 16 Cores & RDNA iGPU</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/t-ratios-decoded-youtube-edition-a-quick-reference-guide/"><u>Aspect Ratios Decoded YouTube Edition – A Quick Reference Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/beating-the-bug-the-comprehensible-guide-for-resolving-error-0x800700e9-in-xbox-game-pass-and-windows-11/"><u>Beating the Bug: The Comprehensible Guide for Resolving Error 0X800700E9 in Xbox Game Pass & Windows 11</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/building-a-compelling-cinematic-snippet/"><u>Building a Compelling Cinematic Snippet</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/el-success-infusing-personality-into-templates-for-2024/"><u>Channel Success Infusing Personality Into Templates for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-add-titlestext-to-video-on-microsoft-photos-in-windows-10-for-2024/"><u>How to Add Titles/Text to Video on Microsoft Photos in Windows 10 for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-harmonious-audio-pathway-guidebook/"><u>In 2024, Harmonious Audio Pathway Guidebook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/master-your-gaming-auditory-experience-with-this-best-free-app-valorant-edition-for-2024/"><u>Master Your Gaming Auditory Experience with This Best Free App – Valorant Edition for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-mac-video-editor-reviews-the-best-of/"><u>New Mac Video Editor Reviews The Best Of</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-10-fixes-for-when-your-iphone-cant-access-cellular-data/"><u>Top 10 Fixes for When Your iPhone Can't Access Cellular Data</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unlock-the-power-of-connectivity-10-ways-to-solve-iphone-calling-difficulties/"><u>Unlock the Power of Connectivity: 10 Ways to Solve iPhone Calling Difficulties</u></a></li>
 </ul></div>
 

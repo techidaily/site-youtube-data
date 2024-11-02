@@ -1,7 +1,7 @@
 ---
 title: "Affordable Tactics for Combining Media with Literature"
-date: 2024-10-21T21:24:20.377Z
-updated: 2024-10-26T23:00:59.454Z
+date: 2024-10-31T19:38:18.300Z
+updated: 2024-11-02T03:29:20.499Z
 tags:
   - ai video
   - ai youtube
@@ -62,25 +62,32 @@ Besides presentation software, you can also use video editing software products 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
@@ -88,13 +95,6 @@ Proceed to select a font and adjust the text size before deciding if you want to
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -109,10 +109,10 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -136,16 +136,15 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-comparing-micro-video-formats-the-battle-of-tiktok-and-youtube-shorts/"><u>[New] 2024 Approved Comparing Micro-Video Formats The Battle of TikTok and YouTube Shorts</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-elevate-your-youtube-content-seo-methods-revealed/"><u>[New] 2024 Approved Elevate Your YouTube Content SEO Methods Revealed</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-diving-into-the-essence-of-verified-instagramselfies/"><u>[Updated] In 2024, Diving Into the Essence of Verified Instagramselfies</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-the-ancient-art-of-role-playing-evolutionary-trajectory/"><u>[Updated] In 2024, The Ancient Art of Role-Playing Evolutionary Trajectory</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-realme-narzo-60x-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Realme Narzo 60x 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-to-save-youtube-playback-as-a-free-screencast/"><u>Learn to Save YouTube Playback as a Free Screencast</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-audiovisual-symphony-top-tunes-to-accompany-every-style-of-video-content-for-2024/"><u>New Audiovisual Symphony Top Tunes to Accompany Every Style of Video Content for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/seamless-subtitle-synchronization-discover-the-top-3-proven-methods/"><u>Seamless Subtitle Synchronization: Discover the Top 3 Proven Methods!</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-method-image-alchemy-into-engaging-youtube-thumbnail-pics/"><u>Swift Method Image Alchemy Into Engaging YouTube Thumbnail Pics</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/techniques-faciles-pour-convertir-du-contenu-audio-modmidi-en-format-wav-sans-frais-conseils-et-astuces-de-movavi/"><u>Techniques Faciles Pour Convertir Du Contenu Audio MOD/MIDI en Format WAV Sans Frais, Conseils Et Astuces De Movavi</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-value-pick-petcams-blend-of-quality-and-price/"><u>Top Value Pick: Petcam's Blend of Quality and Price</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-simplify-your-tech-life-capture-and-store-youtube-streaming-effortlessly-for-2024/"><u>[New] Simplify Your Tech Life Capture and Store YouTube Streaming Effortlessly for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-snapit-share-it-in-order-on-ig-for-2024/"><u>[New] SnapIt, Share It in Order on IG for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-elevate-your-content-pc-video-editing-for-effective-youtube-presentations/"><u>[Updated] 2024 Approved Elevate Your Content PC Video Editing for Effective YouTube Presentations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-become-a-livestream-king-the-best-webcams-for-youtube-stars/"><u>[Updated] In 2024, Become a Livestream King The Best Webcams for YouTube Stars</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-expand-your-viewership-horizon-on-youtube/"><u>[Updated] In 2024, Expand Your Viewership Horizon on Youtube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-epic-soundscape-trending-audio-for-cutting-edge-youtube-short-videos/"><u>2024 Approved Epic Soundscape Trending Audio for Cutting-Edge YouTube Short Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-livestream-luminaries-clash/"><u>2024 Approved Livestream Luminaries Clash</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-restore-windows-11-spotlight-feature-when-it-stops-functioning/"><u>How To Restore Windows 11 'Spotlight' Feature When It Stops Functioning</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/strategies-for-improved-video-zoom-during-virtual-gatherings-google-meet-for-2024/"><u>Strategies for Improved Video Zoom During Virtual Gatherings (Google Meet) for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-honor-magic-6-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Honor Magic 6 without Them Knowing | Dr.fone</u></a></li>
 </ul></div>
 

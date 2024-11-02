@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Fast Track  A Step by Step Guide for Swiftly Deleting Comments on YouTube\""
-date: 2024-10-22T04:51:30.224Z
-updated: 2024-10-27T07:50:53.926Z
+date: 2024-10-26T05:35:39.934Z
+updated: 2024-11-01T19:01:12.745Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -63,10 +70,10 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
@@ -80,13 +87,6 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
 
@@ -122,6 +122,13 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -131,27 +138,26 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -182,21 +188,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-downloading-dynamism-techniques-for-preserving-online-lives/"><u>[New] Downloading Dynamism Techniques for Preserving Online Lives</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-reviving-your-visual-story-adding-instagrams-flavor-to-old-photosvideos-for-2024/"><u>[Updated] Reviving Your Visual Story Adding Instagram's Flavor to Old Photos/Videos for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-beat-hopping-boundaries-linking-service-playlists-together/"><u>2024 Approved Beat Hopping Boundaries Linking Service Playlists Together</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-cant-access-video-feature-on-sony-a6400-camera/"><u>2024 Approved Can't Access Video Feature on Sony A6400 Camera</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-wave-goodbye-to-costs-with-our-50-free-banners-offer/"><u>2024 Approved Wave Goodbye to Costs with Our 50 Free Banners Offer</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatgpt-on-windows-not-possible-how-to-spot-and-avoid-the-impostor-software/"><u>ChatGPT on Windows? Not Possible – How to Spot and Avoid the Impostor Software</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-vivo-v30-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Vivo V30 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Vivo V30 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-boosting-engagement-from-the-start-premium-paid-free-intra-creators/"><u>In 2024, Boosting Engagement From the Start Premium, Paid-Free Intra Creators</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-brief-beatcasts-role-of-the-melody/"><u>In 2024, Brief Beatcasts Role of the Melody</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-captivating-content-top-three-channel-growth-strategies/"><u>In 2024, Captivating Content Top Three Channel Growth Strategies</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-chorus-of-creators-guidelines-for-sharing-sounds-online/"><u>In 2024, Chorus of Creators Guidelines for Sharing Sounds Online</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-enhance-visibility-must-have-youtube-seo-tactics-explained/"><u>In 2024, Enhance Visibility Must-Have YouTube SEO Tactics Explained</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-enhancing-comments-with-emojis-on-youtube/"><u>In 2024, Enhancing Comments with Emojis on YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-harness-the-power-of-your-mobile-content-on-youtube-starting-now/"><u>In 2024, Harness the Power of Your Mobile Content on YouTube, Starting Now</u></a></li>
-<li><a href="https://common-error.techidaily.com/windows-11-farewell-optimizing-your-computers-shutdown-performance/"><u>Windows 11 Farewell: Optimizing Your Computer's Shutdown Performance</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-the-complete-mac-powered-guide-to-ootd-videography/"><u>[New] 2024 Approved The Complete Mac-Powered Guide to OOTD Videography</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/lavorful-follows-top-food-vloggers-to-track-for-2024/"><u>[New] Flavorful Follows Top Food Vloggers to Track for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-elegant-presents-made-easy-your-guide-to-shopping-for-personalized-packaging/"><u>[New] In 2024, Elegant Presents Made Easy Your Guide to Shopping for Personalized Packaging</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/riple-tactic-for-tracking-youtube-income-a-step-by-step-approach/"><u>[New] Triple Tactic for Tracking YouTube Income A Step-by-Step Approach</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-find-hotspots-for-online-video-dialogue/"><u>[Updated] Find Hotspots for Online Video Dialogue</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-insta-photography-enhancement-hacks-for-professionals/"><u>[Updated] In 2024, Insta-Photography Enhancement Hacks for Professionals</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-livestream-elite-top-equipment-for-youtube-content-creators/"><u>[Updated] Livestream Elite Top Equipment For YouTube Content Creators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/exploring-the-new-frontier-with-the-apple-watch-series-9-an-unbiased-evaluation/"><u>Exploring the New Frontier with the Apple Watch Series 9: An Unbiased Evaluation</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-tecno-spark-20-pro-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Tecno Spark 20 Pro Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-tips-to-navigate-the-world-of-free-iphoneipad-edits/"><u>In 2024, Tips to Navigate the World of Free iPhone/iPad Edits</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/g-a-mark-with-google-slides-by-adding-youtube-videos/"><u>Making a Mark with Google Slides by Adding YouTube Videos</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/manipulating-windows-files-disabling-read-only-status/"><u>Manipulating Windows Files: Disabling Read-Only Status</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-samsung-galaxy-a05-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Samsung Galaxy A05 Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/atory-guidelines-youtube-video-recording-for-2024/"><u>Regulatory Guidelines YouTube Video Recording for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-infinix-gt-10-pro-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Infinix GT 10 Pro to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-tips-solving-the-problem-of-your-ps5-dualsense-not-charging/"><u>Troubleshooting Tips: Solving the Problem of Your PS5 DualSense Not Charging</u></a></li>
 </ul></div>
 

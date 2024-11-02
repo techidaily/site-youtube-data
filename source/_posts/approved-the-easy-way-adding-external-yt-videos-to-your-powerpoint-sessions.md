@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Easy Way  Adding External YT Videos to Your PowerPoint Sessions\""
-date: 2024-10-22T06:47:55.544Z
-updated: 2024-10-26T22:35:05.616Z
+date: 2024-10-31T22:05:40.334Z
+updated: 2024-11-01T21:09:30.335Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,13 @@ After understanding the benefits of have a video embedded to your presentation, 
 
 The four most used methods of getting this done are discussed in detailed in the following sections:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Using YouTube Video’s URL
 
 Because every YouTube video has a URL (Uniform Resource Locator) that is unique for that particular clip, PowerPoint allows you to use it to embed the footage to any of its slides. The process is simple, and you can follow the steps given below to get this done:
@@ -53,34 +60,13 @@ Open your default web browser, go to the YouTube video you want to embed to Powe
 
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-via-url.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Launch PowerPoint if it is not already open, go to the slide you want to embed the YouTube video to, click **Insert** from menu bar present above the Ribbon, click **Video** from the **Media** section at the right end of the Ribbon, click **Online Video** from the list that appears, in the **Enter the URL for the online video** field on the **Online Video** box, paste the URL that you copied earlier, and click **Insert** to **insert YouTube video into PowerPoint**.
 
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-url-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Position the Player**
 
 Once the video is added to the PowerPoint slide, drag its frame and reposition it to a suitable location.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2: Embed a YouTube Video with Embed Code (For Microsoft PowerPoint 2016)
 
@@ -133,10 +119,10 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## YouTube Embedding Supported PowerPoint Version Checklist
@@ -153,6 +139,13 @@ That said, the following table gives a clear picture of which version of Microso
 | PowerPoint 2013             | No                     | No                                           | Yes                                          | No                                  |
 | PowerPoint 2010             | No                     | No (Adobe Flash Player Support Discontinued) | No (Adobe Flash Player Support Discontinued) | No                                  |
 | PowerPoint 365/2019 for Mac | Yes                    | No                                           | No                                           | No                                  |
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Frequently Asked Questions About Embedding YouTube Videos in PowerPoint
 
@@ -178,6 +171,13 @@ Although the above sections explain **how to embed a YouTube video in PowerPoint
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -199,22 +199,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-insights-into-income-average-earnings-per-advertisement-playback/"><u>[New] 2024 Approved Insights Into Income Average Earnings per Advertisement Playback?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-personal-narratives-for-online-connection-and-growth/"><u>[New] 2024 Approved Personal Narratives for Online Connection and Growth</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-reduce-buffering-and-lag-turn-on-av1-in-youtube-settings/"><u>[New] 2024 Approved Reduce Buffering & Lag - Turn On AV1 in YouTube Settings</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-ultimate-guide-to-generating-ideal-youtube-titles-on-a-shoestring/"><u>[New] 2024 Approved The Ultimate Guide to Generating Ideal YouTube Titles on a Shoestring</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-truth-behind-the-illusion-buying-non-existent-youtube-backers/"><u>[New] 2024 Approved Truth Behind the Illusion Buying Non-Existent YouTube Backers</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-lullabies-and-lightheartedness-asmr-sleep-helpers-for-2024/"><u>[New] Lullabies and Lightheartedness ASMR Sleep Helpers for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-is-it-illegal-to-archive-your-youtube-watch-history/"><u>[Updated] 2024 Approved Is It Illegal to Archive Your YouTube Watch History?</u></a></li>
-<li><a href="https://fox-that.techidaily.com/cant-use-ringsilent-switch-master-unmute-tricks-on-your-iphone/"><u>Can't Use Ring/Silent Switch? Master Unmute Tricks on Your iPhone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-realme-11x-5g-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on Realme 11X 5G</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-endless-creativity-discover-the-best-in-cheap-online-video-downloading-for-2024/"><u>Enjoy Endless Creativity Discover the Best in Cheap, Online Video Downloading for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-vivo-y100a-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Vivo Y100A</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-amplify-content-with-free-audio-samples/"><u>In 2024, Amplify Content with Free Audio Samples!</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-prolific-iphone-photography-cutting-edge-app-selection-guide/"><u>In 2024, Prolific iPhone Photography Cutting-Edge App Selection Guide</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-samsung-galaxy-s24-ultra-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Samsung Galaxy S24 Ultra</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/navigating-the-best-lipo-cells-for-quality-flight-time-for-2024/"><u>Navigating the Best LiPo Cells for Quality Flight Time for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-unwanted-youtube-suggested-videos-for-2024/"><u>Quash Unwanted YouTube Suggested Videos for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-pixel-watch-3-upgrade-addressing-key-concerns-in-googles-smartwatch-lineup-analysis-by-zdnet/"><u>The Pixel Watch 3 Upgrade: Addressing Key Concerns in Google's Smartwatch Lineup | Analysis by ZDNET</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nnovative-techniques-for-compelling-youtube-beginnings/"><u>[New] Innovative Techniques for Compelling YouTube Beginnings</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-insta-story-magic-embedding-youtube-links-like-a-pro/"><u>[New] Insta Story Magic Embedding YouTube Links Like a Pro</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/umpstart-to-partner-elevation-secure-10k-views-in-minutes-in-2024/"><u>[New] Jumpstart to Partner Elevation Secure 10K Views in Minutes, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-essential-free-resources-for-youtube-intros/"><u>[Updated] 2024 Approved Essential Free Resources for YouTube Intros</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-gameplay-chronicles-proven-techniques-for-recording-your-sims-epic-saga-in-sims-4/"><u>[Updated] In 2024, Gameplay Chronicles Proven Techniques for Recording Your Sim's Epic Saga in Sims 4</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-maximize-view-count-best-yt-thumbnail-sizes-for-2024/"><u>[Updated] Maximize View Count Best YT Thumbnail Sizes for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-second-screen-craftsman/"><u>2024 Approved Second-Screen Craftsman</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-smart-choice-instagram-video-dimensions-and-formats/"><u>2024 Approved The Smart Choice Instagram Video Dimensions and Formats</u></a></li>
+<li><a href="https://win-top.techidaily.com/configuring-instant-cleanup-how-to-purge-ageing-backups-past-x-days/"><u>Configuring Instant Cleanup: How to Purge Ageing Backups Past X Days</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/creative-templates-in-flutter-using-argon-pro-for-elite-uiux-download-now/"><u>Creative Templates in Flutter Using Argon Pro for Elite UI/UX - Download Now!</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-pros-and-cons-ios-screen-recorder-apps/"><u>In 2024, Pros and Cons IOS Screen Recorder Apps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/revolutionize-your-lighting-game-with-cost-effective-yn560iv-speedy-flash/"><u>Revolutionize Your Lighting Game with Cost-Effective YN560IV Speedy Flash</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/simple-solutions-to-unstick-device-driver-related-bugs-in-windows-10/"><u>Simple Solutions to Unstick Device Driver-Related Bugs in Windows 10</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unlocking-potential-chatgpts-6-innovative-uses-in-analytics/"><u>Unlocking Potential: ChatGPT's 6 Innovative Uses in Analytics</u></a></li>
 </ul></div>
 

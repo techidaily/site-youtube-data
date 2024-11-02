@@ -1,7 +1,7 @@
 ---
 title: "[New] Controlling Who Can Leave a Comment on Your YouTube Videos"
-date: 2024-10-23T05:41:38.711Z
-updated: 2024-10-26T19:47:20.829Z
+date: 2024-11-01T01:07:55.024Z
+updated: 2024-11-01T17:27:59.214Z
 tags:
   - ai video
   - ai youtube
@@ -96,10 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -123,26 +123,13 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -160,6 +147,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -175,10 +169,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -202,16 +196,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-best-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>[New] 2024 Approved Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-circumnavigating-youtubes-block-list/"><u>[New] 2024 Approved Circumnavigating YouTube's Block List</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-harnessing-the-benefits-with-creative-commons-licenses/"><u>[New] 2024 Approved Harnessing the Benefits with Creative Commons Licenses</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-seo-guide-how-to-improve-search-rankings-for-your-youtube-videos/"><u>[New] 2024 Approved YouTube SEO Guide How to Improve Search Rankings For Your YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-digital-riches-transitioning-youtube-earnings-to-currency-for-2024/"><u>[New] Digital Riches Transitioning YouTube Earnings to Currency for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-streaming-spectacle-how-twitch-stacks-up-against-youtube/"><u>[New] Streaming Spectacle How Twitch Stacks Up Against YouTube</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-next-level-techniques-outperforming-fbx-recording/"><u>2024 Approved Next-Level Techniques Outperforming FBX Recording</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-itel-p55plus-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Itel P55+ Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/harness-the-power-of-youtube-and-facebook-streaming-old-video-content/"><u>Harness the Power of YouTube & Facebook Streaming Old Video Content</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Nokia G22? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-guide-to-correcting-hidden-shorts-on-youtube/"><u>Quick Guide to Correcting Hidden Shorts on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rafting-content-masterpieces-with-these-essential-youtube-tips/"><u>[New] Crafting Content Masterpieces with These Essential YouTube Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eader-of-sensory-media-creation-for-2024/"><u>[New] Leader of Sensory Media Creation for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-self-viewer-alert-on-facebook-chats-steps-to-resolve-for-2024/"><u>[New] Self-Viewer Alert on Facebook Chats Steps to Resolve for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outubes-copyright-rules-simplified-a-non-legal-guide-for-2024/"><u>[New] YouTube's Copyright Rules Simplified A Non-Legal Guide for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-mastering-the-art-of-clearing-youtubes-stored-videos/"><u>[Updated] 2024 Approved Mastering the Art of Clearing YouTube's Stored Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-perfecting-your-pics-for-maximum-youtube-views/"><u>[Updated] In 2024, Perfecting Your Pics for Maximum YouTube Views</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-premium-download-experience-best-youtube-playlist-extractors-reviewed/"><u>[Updated] In 2024, Premium Download Experience Best YouTube Playlist Extractors Reviewed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-setting-up-a-sports-channel-from-scratch-mac-style-for-2024/"><u>[Updated] Setting up a Sports Channel From Scratch, Mac-Style for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-comprehensive-overview-of-final-cut-pro-techniques/"><u>2024 Approved Comprehensive Overview of Final Cut Pro Techniques</u></a></li>
+<li><a href="https://win11.techidaily.com/effortless-exit-strategies-for-windows-s-mode/"><u>Effortless Exit Strategies for Windows' 'S Mode'</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exiting-chatgpts-shadow-for-fresh-experienences/"><u>Exiting ChatGPT's Shadow for Fresh Experienences</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/guide-downloading-and-managing-apps-on-samsung-smarttv-platforms/"><u>Guide: Downloading and Managing Apps on Samsung SmartTV Platforms</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-bebops-feathered-wings-unleashed-in-the-parrot-review/"><u>In 2024, Bebop's Feathered Wings Unleashed in the Parrot Review</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-ultimate-guide-to-using-sticker-queries-on-instagram/"><u>In 2024, The Ultimate Guide to Using Sticker Queries on Instagram</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-technical-hurdles-in-baldurs-gate-iii-for-a-seamless-pc-gaming-experience/"><u>Overcoming Technical Hurdles in Baldur’s Gate III for a Seamless PC Gaming Experience</u></a></li>
 </ul></div>
 
