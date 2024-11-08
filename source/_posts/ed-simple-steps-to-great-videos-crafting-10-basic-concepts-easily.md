@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Simple Steps to Great Videos  Crafting 10 Basic Concepts Easily\""
-date: 2024-09-06T15:01:36.404Z
-updated: 2024-09-07T15:01:36.404Z
+date: 2024-11-05T21:54:27.947Z
+updated: 2024-11-07T23:09:12.686Z
 tags:
   - ai video
   - ai youtube
@@ -20,12 +20,6 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -53,24 +47,12 @@ Let the world know who you are and what you do. If you are planning on starting 
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Vlog About Your Day
 
 Anything that happens during your day can become a topic for your YouTube vlog. Traffic jams, treacherous pets who keep stealing your shoes, or the ridiculous amount of things you had to do in a single day can all become topics for videos you upload to your YouTube channel. Being candid and spontaneous is a sure way to grab the attention of a viewer, but limiting the duration of a vlog to a few minutes is key to ensuring that viewers watch the video until the end.
 
 Strive to make visually dynamic videos, because just sitting or standing and talking in front of a camera for a few minutes isn't going to create much on-screen action.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Express An Opinion
 
 Social media culture has enabled us to receive news instantly and react to it in any way we want. If you didn't like the latest update of your favorite video game, or if you’re excited about a line of makeup that’s coming out soon, make a video about it and share your opinion with the community that follows you on YouTube.
@@ -79,18 +61,19 @@ Opinion videos are great conversation starters. Expressing an opinion through a 
 
 You can express your opinions on virtually any topic, but being respectful while doing so is for the best if you don’t want to find yourself in a YouTube feud.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Review Anything
 
 Everywhere around you, there are items you can review. The Apple Watch and the latest season of Game of Thrones are equally good choices for a review video. However, when creating review videos you need to make sure that all the factual information you have is accurate, which is why it is much better to make review videos about topics you know a lot about.
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
@@ -104,11 +87,12 @@ There were over two billion smartphone users worldwide in 2017, and this number 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 7\. Make a Slideshow
 
 There's no need to constantly produce new videos because you can just take some royalty-free music and create a slideshow from your old or new photos. The slideshow format will certainly allow you to try something different on your YouTube channel, while the photos you use in the slideshow can create a clear picture of who you are and what you do for your viewers.
@@ -121,18 +105,6 @@ Education is our only hope for a better world so if you know how to do something
 
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. 10 Things About You
 
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
@@ -147,6 +119,13 @@ Don't try to fake a rant, because they only work if they are natural. Scripting 
 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Start Editing Videos with Beginner-friendly Software
 
 If you start your YouTube channel but have no video editing experience, Wondershare Filmora will definitely help you get over the problems. Download Filmora now!
@@ -156,25 +135,23 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,4 +160,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-heroes-journey-compilation-a-selection-of-top-10-adventure-games/"><u>[New] Heroes' Journey Compilation A Selection of Top 10 Adventure Games</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-elevate-your-video-presence-mastery-of-channel-art-and-banner-sizes/"><u>[New] In 2024, Elevate Your Video Presence Mastery of Channel Art and Banner Sizes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-overcoming-anxiety-in-your-camera-lens-youtube-wisdom/"><u>[New] In 2024, Overcoming Anxiety in Your Camera Lens YouTube Wisdom</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-innovating-your-teaching-with-interactive-screencasts/"><u>[Updated] 2024 Approved Innovating Your Teaching with Interactive Screencasts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-ion-air-pro-3-visionary-revolutionizing-action-video/"><u>[Updated] 2024 Approved ION Air Pro 3 Visionary - Revolutionizing Action Video</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/52686734-updated-in-2024-spark-creativity-with-costless-auditory-extras/"><u>[Updated] In 2024, Spark Creativity with Costless Auditory Extras!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-supercharge-your-media-download-sounds-for-editing/"><u>[Updated] In 2024, Supercharge Your Media Download Sounds for Editing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-optimize-attention-strategies-for-shorts-on-youtube-for-2024/"><u>[Updated] Optimize Attention Strategies for Shorts on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/g-subtitles-a-step-by-step-youtube-video-approach/"><u>Adding Subtitles A Step-by-Step YouTube Video Approach</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rative-analysis-of-tiktok-and-youtube-shorts-for-individual-content-for-2024/"><u>Comparative Analysis of TikTok & YouTube Shorts for Individual Content for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-hp-stream-14-an-honest-look-at-a-cost-effective-windows-laptop-choice/"><u>Exploring the HP Stream 14: An Honest Look at a Cost-Effective Windows Laptop Choice</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016670842-fixing-the-non-functional-mic-in-your-dota-2-game-ultimate-solutions/"><u>Fixing the Non-Functional Mic in Your Dota 2 Game – Ultimate Solutions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/how-to-burn-video-to-dvd-on-mac/"><u>How to Burn Video to DVD on Mac</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/how-to-enable-shadow-copy-feature-on-windows-111087-for-efficient-data-backup/"><u>How to Enable Shadow Copy Feature on Windows 11/10/8/7 for Efficient Data Backup</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-z-flip-5-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy Z Flip 5 Phone without Google Account?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-simplified-guide-to-iphone-screen-adjustment/"><u>In 2024, Simplified Guide to iPhone Screen Adjustment</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/5-gaming-capture-utilities/"><u>Top 15 Gaming Capture Utilities</u></a></li>
+</ul></div>
 

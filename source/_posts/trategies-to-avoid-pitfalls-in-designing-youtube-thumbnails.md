@@ -1,7 +1,7 @@
 ---
 title: "[New] Strategies to Avoid Pitfalls in Designing YouTube Thumbnails"
-date: 2024-09-06T15:01:34.427Z
-updated: 2024-09-07T15:01:34.427Z
+date: 2024-11-05T19:17:54.349Z
+updated: 2024-11-07T19:47:29.499Z
 tags:
   - ai video
   - ai youtube
@@ -20,12 +20,6 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -45,12 +39,6 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -66,23 +54,18 @@ Using patterns for the background of your channel banner can help your channel l
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: Should I Use My Face?
 
 Whether you should use your face on your channel banner depends on what your channel is about. If you have a channel focused on beauty, fashion, fitness, or family vlogs then it’s a good idea to include your face. It comes off personable and helps viewers relate to you. If you have a channel that is about something like gaming, tech reviews, or book reviews then it isn’t necessary to include your face because the focus of your content isn’t you as a personality.
@@ -100,20 +83,22 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
 
@@ -135,12 +120,6 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -181,20 +160,24 @@ Now that you know how to make a good YouTube banner, what will you do next?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -203,4 +186,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/etting-the-most-out-of-live-sports-on-youtube-tv/"><u>[New] Getting the Most Out of Live Sports on YouTube TV</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-counteract-bot-visitors-for-real-audience-growth/"><u>[New] In 2024, Counteract Bot Visitors for Real Audience Growth</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-ultimate-list-of-11-affordable-channel-titles-makers/"><u>[New] In 2024, The Ultimate List of 11 Affordable Channel Titles Makers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-iphone-2024-the-ultimate-selfie-kit-for-8-standouts/"><u>[New] Iphone 2024 The Ultimate Selfie Kit for #8 Standouts</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-mastering-mp4-downloading-vimeo-videos-easily/"><u>[New] Mastering MP4 Downloading Vimeo Videos Easily</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-beyond-audience-counting-the-intricacies-of-youtubes-metrics/"><u>[Updated] 2024 Approved Beyond Audience Counting The Intricacies of YouTube’s Metrics</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-the-essence-of-a-memorable-video-conclusion-in-vimeo/"><u>[Updated] 2024 Approved The Essence of a Memorable Video Conclusion in Vimeo</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-learn-vfx-for-free-mastering-the-art-of-background-substitution-through-4-innovative-video-tutorials/"><u>[Updated] In 2024, Learn VFX for Free Mastering the Art of Background Substitution Through 4 Innovative Video Tutorials</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-uncover-8-effective-youtube-promotion-methods/"><u>[Updated] In 2024, Uncover 8 Effective YouTube Promotion Methods</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtube-paid-content-guide-mastering-membership-for-monetization/"><u>[Updated] YouTube Paid Content Guide Mastering Membership for Monetization</u></a></li>
+<li><a href="https://win-guides.techidaily.com/1728463472717-ssd/"><u>「一つ一つご丁寧解説: 別の外付けSSDへ移行する方法【ガイド】」</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-transforming-raw-footage-into-youtube-gold-via-sony-vegas/"><u>2024 Approved Transforming Raw Footage Into YouTube Gold via Sony Vegas</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-infinix-hot-40-pro-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Infinix Hot 40 Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-fujitsu-scansnap-ix1600-assessment-the-ultimate-workstation-scanner/"><u>Comprehensive Fujitsu ScanSnap iX1600 Assessment: The Ultimate Workstation Scanner</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-8-hit-virtual-reality-titles-for-oculus-enthusiasts/"><u>In 2024, 8 Hit Virtual Reality Titles for Oculus Enthusiasts</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-motorola-moto-g34-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Motorola Moto G34 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-parody-pointers-from-script-to-screenplay/"><u>In 2024, Parody Pointers From Script to Screenplay</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-branding-via-curated-social-media-chronicles/"><u>Personal Branding via Curated Social Media Chronicles</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-solve-shadowplays-recording-issues-on-your-windows-pc/"><u>Troubleshooting: Solve ShadowPlay's Recording Issues on Your Windows PC</u></a></li>
+</ul></div>
 

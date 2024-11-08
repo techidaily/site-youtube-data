@@ -1,7 +1,7 @@
 ---
 title: "[New] Fresh Vlog Discussion Ideas Each Day for 2024"
-date: 2024-09-06T15:01:32.068Z
-updated: 2024-09-07T15:01:32.068Z
+date: 2024-11-01T00:53:11.589Z
+updated: 2024-11-07T16:59:56.677Z
 tags:
   - ai video
   - ai youtube
@@ -14,24 +14,12 @@ keywords: "Daily Vlog Ideas,Fresh Content Tips,Creativity for Videos,Vlog Concep
 thumbnail: https://thmb.techidaily.com/ab68550bed8939ff878aaece9b28e90d8b0465006aaa80a48dab2ef20ecc47cd.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Fresh Vlog Discussion Ideas Each Day
 
 # Daily Vlogging Ideas: What to Talk about While Vlogging?
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -44,12 +32,6 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -63,17 +45,18 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Snapshots of Your Day
 
@@ -92,11 +75,12 @@ It does not matter what it is that is making you have this strong reaction (unle
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -122,16 +106,24 @@ You could also just flick the camera on and tell the full story of your day like
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -139,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -155,4 +144,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ecoding-the-language-of-asmr-videos-for-2024/"><u>[New] Decoding the Language of ASMR Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/fficient-video-categorization-with-tags-for-2024/"><u>[New] Efficient Video Categorization with Tags for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-captivating-crafting-writing-intriguing-youtube-descriptions-with-templates/"><u>[New] In 2024, Captivating Crafting Writing Intriguing Youtube Descriptions with Templates</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aintain-uninterrupted-youtube-experience-on-phones/"><u>[New] Maintain Uninterrupted YouTube Experience on Phones</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aximize-impact-sharing-youtube-videos-on-social-media-fb-for-2024/"><u>[New] Maximize Impact Sharing YouTube Videos on Social Media (FB) for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/remium-notebooks-select-the-best-for-professional-edits/"><u>[New] Premium Notebooks Select the Best for Professional Edits</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-premier-screen-captures-no-cost-pubg-sets/"><u>[Updated] 2024 Approved Premier Screen Captures No-Cost PUBG Sets</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-fb-audio-clip-converter-direct-to-mp3-mode-for-2024/"><u>[Updated] FB Audio Clip Converter Direct to MP3 Mode for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-explore-the-top-10-youtube-to-mp3-services/"><u>[Updated] In 2024, Explore the Top 10 YouTube-to-MP3 Services</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ranking-apples-most-valuable-gif-tools-for-2024/"><u>[Updated] Ranking Apple's Most Valuable GIF Tools for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/kindle-voyage-review-advantages-and-disadvantages-is-it-worth-your-purchase/"><u>Kindle Voyage Review: Advantages & Disadvantages - Is It Worth Your Purchase?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-long-distance-wifi-routers-a-comprehensive-guide/"><u>Leading Long-Distance WiFi Routers : A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/stream-to-youtube-with-obs-step-by-step-guide-for-beginners-for-2024/"><u>Live Stream to Youtube with OBS Step by Step Guide for Beginners for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/microsoft-uncovers-new-trends-in-stealthy-credit-card-theft-techniques-by-cybercriminals-on-the-rise/"><u>Microsoft Uncovers New Trends in Stealthy Credit Card Theft Techniques by Cybercriminals on the Rise</u></a></li>
+<li><a href="https://driver-error.techidaily.com/mouse-disconnecting-a-common-issue-with-wireless-devices/"><u>Mouse Disconnecting: A Common Issue with Wireless Devices</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-xiaomi-14-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Xiaomi 14 | Dr.fone</u></a></li>
+</ul></div>
 

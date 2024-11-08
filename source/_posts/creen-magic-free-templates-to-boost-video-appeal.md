@@ -1,7 +1,7 @@
 ---
 title: "\"End-Screen Magic  Free Templates to Boost Video Appeal\""
-date: 2024-10-28T02:10:29.371Z
-updated: 2024-11-02T01:37:13.284Z
+date: 2024-11-06T19:31:28.426Z
+updated: 2024-11-07T20:26:24.611Z
 tags:
   - ai video
   - ai youtube
@@ -96,22 +96,15 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
@@ -120,22 +113,16 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
@@ -150,10 +137,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -161,6 +148,13 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -183,19 +177,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-an-insiders-view-on-creating-effective-slug-lines/"><u>[New] 2024 Approved An Insider's View on Creating Effective Slug Lines</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-elevating-youtube-live-with-high-quality-webcam-cameras/"><u>[New] In 2024, Elevating YouTube Live with High-Quality Webcam Cameras</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nstant-classics-days-highest-youtube-rankings/"><u>[New] Instant Classics Day’s Highest YouTube Rankings</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/outube-streams-optimal-webm-converters-ranked-for-2024/"><u>[New] YouTube Streams Optimal WebM Converters Ranked for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-free-online-music-archives-copyright-free-gaming-tunes/"><u>[Updated] Free Online Music Archives (Copyright-Free Gaming Tunes)</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-cultivating-a-brand-identity-youtube-visibility-without-spending/"><u>[Updated] In 2024, Cultivating a Brand Identity YouTube Visibility without Spending</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-dial-in-the-ideal-aspect-ratio-for-stunning-youtube-videos/"><u>2024 Approved Dial in the Ideal Aspect Ratio for Stunning YouTube Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-exclusive-rescue-regaining-fb-passwords/"><u>2024 Approved Exclusive Rescue Regaining FB Passwords</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-routines-for-volume-balancing-in-fl-studio/"><u>2024 Approved Expert Routines for Volume Balancing in FL Studio</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/addressing-win1011-kernel-error-41/"><u>Addressing Win10/11 Kernel Error 41</u></a></li>
-<li><a href="https://os-tips.techidaily.com/affordable-popsockets-iphone-case-with-built-in-magsafe-wallet-at-a-great-value/"><u>Affordable PopSockets iPhone Case with Built-In MagSafe Wallet at a Great Value</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/beginners-blueprint-for-launching-a-vlog-series-on-product-critiques-for-2024/"><u>Beginner's Blueprint for Launching a Vlog Series on Product Critiques for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-14-by-drfone-ios/"><u>New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone 14</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/inting-your-signature-style-and-marketplace-role/"><u>Pinpointing Your Signature Style & Marketplace Role</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-comprehensive-guide-to-advanced-screen-capture-via-adobe-captive/"><u>[Updated] 2024 Approved Comprehensive Guide to Advanced Screen Capture via Adobe Captive</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-financial-flip-understanding-1-million-views-payoff/"><u>[Updated] 2024 Approved The Financial Flip Understanding 1 Million Views Payoff</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-ensemble-dynamics-crafting-collaborative-content-for-musicians-for-2024/"><u>[Updated] Ensemble Dynamics Crafting Collaborative Content for Musicians for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-humor-havens-discovering-comedy-gems-on-youtube/"><u>[Updated] Humor Havens Discovering Comedy Gems on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-boosting-youtube-traffic-perfecting-titles-and-tags-for-max-views/"><u>[Updated] In 2024, Boosting YouTube Traffic Perfecting Titles & Tags for Max Views</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-professionals-choice-top-10-ig-video-editing-platforms/"><u>[Updated] In 2024, Professionals' Choice Top 10 IG Video Editing Platforms</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-perfect-your-titling-skills-with-our-best-practices/"><u>[Updated] Perfect Your Titling Skills with Our Best Practices</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-top-earning-youtube-star-globally/"><u>[Updated] Top Earning YouTube Star Globally</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-icon-and-logo-havens-a-guide-to-6-unique-online-resources/"><u>2024 Approved Icon & Logo Havens A Guide to 6 Unique Online Resources</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-video-venue-selection-finding-the-right-platform/"><u>2024 Approved Video Venue Selection Finding the Right Platform</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722966826260-easy-installation-of-updated-nahimic-sound-drivers-fast-results/"><u>Easy Installation of Updated Nahimic Sound Drivers - Fast Results!</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-ranking-the-top-value-video-resources-online/"><u>In 2024, Ranking the Top Value Video Resources Online</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-transform-your-facebook-vids-to-mp3-easy-and-fast/"><u>In 2024, Transform Your Facebook Vids to MP3 - Easy & Fast</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ize-views-with-these-top-20-thumbnail-fonts-for-2024/"><u>Maximize Views with These Top 20 Thumbnail Fonts for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-to-your-own-custom-arranged-music-library-on-youtube/"><u>Navigating to Your Own Custom-Arranged Music Library on Youtube</u></a></li>
+<li><a href="https://games-able.techidaily.com/unboxing-lenovos-best-legion-go-features-at-ifa-2-written-by-alex-johnson-mba/"><u>Unboxing Lenovo's Best Legion Go Features at IFA 2 Written by Alex Johnson, MBA</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/universal-unlock-pattern-for-oneplus-ace-2v-by-drfone-android/"><u>Universal Unlock Pattern for OnePlus Ace 2V</u></a></li>
 </ul></div>
 

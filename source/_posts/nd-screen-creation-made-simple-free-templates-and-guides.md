@@ -1,7 +1,7 @@
 ---
 title: "\"[New] End Screen Creation Made Simple - Free Templates & Guides\""
-date: 2024-10-29T06:09:18.885Z
-updated: 2024-11-01T19:31:54.800Z
+date: 2024-11-04T19:55:34.832Z
+updated: 2024-11-07T20:40:04.623Z
 tags:
   - ai video
   - ai youtube
@@ -90,18 +90,18 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
@@ -113,6 +113,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
@@ -121,27 +128,20 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -150,10 +150,10 @@ If you're looking for other options to design your end screen, make sure to also
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -177,16 +177,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-explore-interaction-tips-for-uploading-videos-from-twitter-snapchat/"><u>[New] 2024 Approved Explore Interaction Tips for Uploading Videos From Twitter (Snapchat)</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-video-game-youtube-production-mastery/"><u>[New] In 2024, Elevate Your Video Game YouTube Production Mastery</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-essence-of-plot-weaving/"><u>[New] In 2024, Essence of Plot Weaving</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-symbiotic-relationship-between-cities-and-ecology/"><u>[New] The Symbiotic Relationship Between Cities and Ecology</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-crafting-cross-social-media-content-strategy-with-youtube-and-fb/"><u>[Updated] 2024 Approved Crafting Cross-Social Media Content Strategy with YouTube & FB</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-from-free-to-paid-the-transition-to-youtubes-elite-service/"><u>[Updated] From Free to Paid The Transition to YouTube's Elite Service</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-nail-the-next-best-thing-youtube-studio-editing-mastery/"><u>[Updated] In 2024, Nail the Next Best Thing YouTube Studio Editing Mastery</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-secrets-of-sending-short-videos-to-youtube-tech-for-mobile-and-laptops-for-2024/"><u>[Updated] Secrets of Sending Short Videos to YouTube - Tech for Mobile & Laptops for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-youtubes-image-files-made-simple-online-desktop-and-terminal-steps-for-2024/"><u>[Updated] Youtube’s Image Files Made Simple Online, Desktop & Terminal Steps for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/leveraging-data-key-performance-indicators-for-igtv-videos-for-2024/"><u>Leveraging Data Key Performance Indicators for IGTV Videos for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unlocking-iphone-resetting-secrets-how-to-access-and-eject-recovery-mode/"><u>Unlocking iPhone Resetting Secrets: How to Access & Eject Recovery Mode</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-now-updated-acer-trackpad-software-for-smooth-windows-10-experience/"><u>[Download Now] Updated Acer TrackPad Software for Smooth Windows 10 Experience</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ecoming-a-top-youtuber-with-gaming-livestreams/"><u>[New] Becoming a Top YouTuber with Gaming Livestreams</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-best-slideshow-apps-iphone-series-8-series-12-for-2024/"><u>[New] Best Slideshow Apps (iPhone Series 8-Series 12) for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/reating-engaging-youtube-openings-and-closers-for-free-for-2024/"><u>[New] Creating Engaging YouTube Openings & Closers for Free for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/remier-artist-blending-images-and-harmony/"><u>[New] Premier Artist Blending Images & Harmony</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-youtubes-tagging-system-unveiled/"><u>[Updated] 2024 Approved YouTube's Tagging System Unveiled</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-comprehensive-guide-to-embedding-youtube-playlists-online-for-2024/"><u>[Updated] Comprehensive Guide to Embedding YouTube Playlists Online for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-conquer-profits-on-the-go-youtube-studio-monetization-explained-for-2024/"><u>[Updated] Conquer Profits On-the-Go YouTube Studio Monetization Explained for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-masterclass-navigating-zooms-video-broadcasting-features-for-2024/"><u>[Updated] Masterclass Navigating Zoom's Video Broadcasting Features for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-decoding-youtubes-mystery-a-sequential-exploration-guide/"><u>2024 Approved Decoding YouTube's Mystery A Sequential Exploration Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-legality-query-personal-savings-of-youtube-videos/"><u>2024 Approved Legality Query Personal Savings of YouTube Videos</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-the-ultimate-review-of-wirecast-and-similar-programs/"><u>2024 Approved The Ultimate Review of WireCast & Similar Programs</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-zero-cost-window-recording-techniques-3-methods/"><u>2024 Approved Zero-Cost Window Recording Techniques 3 Methods</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/add-a-snapshot-to-your-instagram-story/"><u>Add a Snapshot to Your Instagram Story</u></a></li>
+<li><a href="https://driver-install.techidaily.com/get-the-best-graphics-support-on-windows-with-new-rx-570-drivers/"><u>Get the Best Graphics Support on Windows with New RX 570 Drivers</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/january-12th-robert-oppenheimer-an-american-physicist-known-for-his-role-in-creating-the-atomic-bomb-and-contributing-to-quantum-mechanics-his-work-has-left667/"><u>January 12Th - Robert Oppenheimer, an American Physicist Known for His Role in Creating the Atomic Bomb and Contributing to Quantum Mechanics. His Work Has Left a Lasting Impact on Science and Technology</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-the-legal-landscape-of-youtube-guidelines-for-2024/"><u>Navigating the Legal Landscape of YouTube Guidelines for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/um-sound-picks-for-content-creators/"><u>Premium Sound Picks for Content Creators</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-picks-selecting-the-ultimate-prebuilt-gaming-machine-tailored-to-you/"><u>Top Picks: Selecting the Ultimate Prebuilt Gaming Machine Tailored to You</u></a></li>
 </ul></div>
 

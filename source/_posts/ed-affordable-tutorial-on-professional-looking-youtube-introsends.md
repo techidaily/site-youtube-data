@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Affordable Tutorial on Professional Looking YouTube Intros/Ends"
-date: 2024-10-30T18:06:15.981Z
-updated: 2024-11-02T03:30:36.141Z
+date: 2024-11-02T00:35:49.511Z
+updated: 2024-11-07T20:19:48.191Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,16 +125,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -158,24 +152,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-masterful-archive-of-twitter-animations-at-your-fingertips/"><u>[New] In 2024, Masterful Archive of Twitter Animations at Your Fingertips</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-top-12-best-tycoon-games-guaranteed-to-hook-you/"><u>[New] In 2024, Top 12 Best Tycoon Games Guaranteed to Hook You</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/avigating-youtube-networking-creating-powerful-channel-backlinks-for-2024/"><u>[New] Navigating YouTube Networking Creating Powerful Channel Backlinks for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ersonal-growth-reflections-for-digital-platforms/"><u>[New] Personal Growth Reflections for Digital Platforms</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-peak-performers-in-the-world-of-web-videos/"><u>[Updated] 2024 Approved Peak Performers in the World of Web Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-constructing-captivating-conclusions-for-2024/"><u>[Updated] Constructing Captivating Conclusions for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-streamline-content-discovery-leveraging-youtubes-featured-channel-guide-for-2024/"><u>[Updated] Streamline Content Discovery Leveraging Youtube's Featured Channel Guide for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-sound-selection-for-social-media-stars/"><u>[Updated] Ultimate Sound Selection for Social Media Stars</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-digital-dominion-1-to-10-most-watched-youtube-videos-in-a-day/"><u>2024 Approved Digital Dominion #1 to #10 Most Watched YouTube Videos in a Day</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-your-step-by-step-equipment-plan-for-youtube-beginnings/"><u>2024 Approved Your Step-by-Step Equipment Plan for YouTube Beginnings</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/best-graphics-cards-for-4k-video-editing-and-rendering/"><u>Best Graphics Cards for 4K Video Editing and Rendering</u></a></li>
-<li><a href="https://win11.techidaily.com/effective-methods-to-enhance-laptop-response-time-post-extended-setup/"><u>Effective Methods to Enhance Laptop Response Time Post-Extended Setup</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1722886495520-gain-control-over-your-system-by-rectifying-the-gsdll32dll-not-found-problems-easily/"><u>Gain Control Over Your System by Rectifying the gsdll32.dll Not Found Problems Easily!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-y100i-power-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Y100i Power 5G</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-constructive-steps-to-personalized-google-vr-headset/"><u>In 2024, Constructive Steps to Personalized Google VR Headset</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-unlock-free-tunes-steps-for-youtube-content-creators/"><u>In 2024, Unlock Free Tunes Steps for YouTube Content Creators</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/leveraging-technology-for-efficient-team-discussions-slack-filmora-strategy/"><u>Leveraging Technology for Efficient Team Discussions Slack-Filmora Strategy</u></a></li>
-<li><a href="https://techidaily.com/three-solutions-to-hard-reset-poco-x6-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Poco X6? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/be-snippet-income-breakdown-whats-your-profit-share/"><u>YouTube Snippet Income Breakdown What's Your Profit Share?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-photoshop-picmaster-guide-and-assessment/"><u>[New] Photoshop PicMaster Guide & Assessment</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ransform-your-music-library-best-free-software-choices-for-youtube-to-mp3-for-2024/"><u>[New] Transform Your Music Library Best Free Software Choices for YouTube-to-MP3 for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unresolved-problem-viewing-videos-on-sony-a6400/"><u>[New] Unresolved Problem Viewing Videos on Sony A6400</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-achieve-spectacular-colors-in-adobe-photos/"><u>[Updated] Achieve Spectacular Colors in Adobe PHOTOS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-elevate-your-content-strategy-premier-ranks-apps-explored/"><u>[Updated] Elevate Your Content Strategy - Premier Ranks Apps Explored</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-flavorful-faves-top-online-chefs-and-culinary-stars-for-2024/"><u>[Updated] Flavorful Faves Top Online Chefs & Culinary Stars for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-maximize-youtube-traffic-top-viewing-times/"><u>[Updated] In 2024, Maximize YouTube Traffic Top Viewing Times</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-reel-in-riches-a-guide-to-earning-on-youtube-shorts/"><u>[Updated] Reel In Riches A Guide to Earning on YouTube Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-your-online-identity-unlocked-establishing-a-new-youtube-chanel-today-for-2024/"><u>[Updated] Your Online Identity Unlocked Establishing a New YouTube Chanel Today for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-xiaomi-redmi-12-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Xiaomi Redmi 12 5G to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-unlocking-youtube-success-top-video-strategies-to-explode-views/"><u>In 2024, Unlocking YouTube Success Top Video Strategies to Explode Views</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/latest-guide-on-ipad-23-and-apple-iphone-13-pro-max-icloud-activation-lock-bypass-by-drfone-ios/"><u>Latest Guide on iPad 2/3 and Apple iPhone 13 Pro Max iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/making-maven-the-tale-of-jake-pauls-youtube-triumph-for-2024/"><u>Meme-Making Maven The Tale of Jake Paul's Youtube Triumph for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/revolutionize-your-movie-experience-with-free-apps-for-2024/"><u>Revolutionize Your Movie Experience with Free Apps for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-pick-the-most-compatible-dvd-players-with-any-tv-ideal-for-mac-users/"><u>Top Pick: The Most Compatible DVD Players with Any TV, Ideal for Mac Users</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-for-restoring-asus-webcam-functionality-under-windows-10/"><u>Troubleshooting Steps for Restoring ASUS Webcam Functionality Under Windows 10</u></a></li>
 </ul></div>
 

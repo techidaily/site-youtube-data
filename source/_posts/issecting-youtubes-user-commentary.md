@@ -1,7 +1,7 @@
 ---
 title: "[New] Dissecting YouTubes' User Commentary"
-date: 2024-09-06T15:01:34.258Z
-updated: 2024-09-07T15:01:34.258Z
+date: 2024-11-06T00:36:35.024Z
+updated: 2024-11-07T19:08:37.422Z
 tags:
   - ai video
   - ai youtube
@@ -14,30 +14,12 @@ keywords: "YouTube User Feedback Analysis,Video Content Reactions Study,Subscrib
 thumbnail: https://thmb.techidaily.com/97d4b7a24e4095203ce78f6219b92226bf67916637140e7062297e96c3a2c8b5.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Dissecting YouTubes' User Commentary
 
 # How to Search Comments on YouTube Quickly?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -49,18 +31,6 @@ Are you trying to search for something on a document or a web page? You know how
 
 So, if you want to search YouTube comments quickly, what can you do? We will show you in this blog.
 
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Using the Built-in YouTube Studio Feature to Search Comments
 
 How does the built-in YouTube Studio Feature make searching comments on YouTube easier?
@@ -91,6 +61,13 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -102,6 +79,13 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -130,29 +114,18 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -189,31 +162,23 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -222,4 +187,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dissecting-mr-beasts-fortune-portfolio/"><u>[New] 2024 Approved Dissecting Mr. Beast's Fortune Portfolio</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-effortless-tutorial-for-top-notch-yt-video-thumbnails/"><u>[New] 2024 Approved Effortless Tutorial for Top-Notch YT Video Thumbnails</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ollaborative-listening-made-simple-on-youtube-for-2024/"><u>[New] Collaborative Listening Made Simple on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/iscover-your-top-10-choice-of-editors-for-youtube-short-videos-for-2024/"><u>[New] Discover Your Top 10 Choice of Editors for YouTube Short Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ow-much-money-do-youtubers-make-per-view/"><u>[New] How Much Money Do YouTubers Make Per View</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-exploring-youtubes-financial-blueprint-for-short-form-video-success/"><u>[New] In 2024, Exploring YouTube's Financial Blueprint for Short-Form Video Success</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-starting-off-determining-your-creative-passion/"><u>[New] In 2024, Starting Off Determining Your Creative Passion</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-comprehensive-blueprint-for-youtube-earnings-enhancement/"><u>[New] In 2024, The Comprehensive Blueprint for YouTube Earnings Enhancement</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nleash-youtube-potential-with-imaginative-splitscreens-for-2024/"><u>[New] Unleash YouTube Potential with Imaginative Splitscreens for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-elevate-your-video-game-select-top-20-thumbnail-fonts-for-2024/"><u>[Updated] Elevate Your Video Game Select Top 20 Thumbnail Fonts for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtubes-shorts-a-deep-dive-into-content-creation-and-revenue-for-2024/"><u>[Updated] YouTube's Shorts A Deep Dive Into Content Creation and Revenue for 2024</u></a></li>
+<li><a href="https://win-community.techidaily.com/easy-guide-transferring-the-windows-operating-system-to-a-portable-usb-device/"><u>Easy Guide: Transferring the Windows Operating System to a Portable USB Device</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-lava-storm-5g-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Lava Storm 5G in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-maximizing-your-broadcast-obs-on-android-devices/"><u>In 2024, Maximizing Your Broadcast OBS on Android Devices</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/siri-enhancement-on-the-horizon-apples-ai-boost-planned-details-uncovered/"><u>Siri Enhancement on the Horizon: Apple's AI Boost Planned , Details Uncovered</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/streamline-document-generation-using-chatgpt-powered-by-microsoft-word/"><u>Streamline Document Generation Using ChatGPT Powered by Microsoft Word</u></a></li>
+</ul></div>
 

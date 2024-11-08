@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Captivating YT Cover Art for Maximum Traffic\""
-date: 2024-09-06T15:01:36.368Z
-updated: 2024-09-07T15:01:36.368Z
+date: 2024-11-04T16:57:17.655Z
+updated: 2024-11-07T19:46:58.462Z
 tags:
   - ai video
   - ai youtube
@@ -20,12 +20,6 @@ thumbnail: https://thmb.techidaily.com/a84f233e2df716933c1def7036ee5f60e5a298fe7
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Dec 30, 2022• Proven solutions
@@ -38,12 +32,6 @@ Making better YouTube thumbnails will help you get more views, and knowing the b
 2. [**Tips for Perfect Thumbnails**](#perfect)
 3. [**Making Better Thumbnails for YouTube**](#better)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **1\. What's the ideal YouTube thumbnail Size and Dimension?**
 
 An essential thing that every YouTube video developer needs to know is about the selection of the right side of the thumbnail for any video. As per the guidelines circulated by Google itself, the most appropriate size for the thumbnail image is 1280x720 pixels, where the recommended minimal pixel width is 640 pixels. Generally, the 16:9 ratio is considered as an ideal choice for Most of YouTube previews and players.
@@ -55,11 +43,12 @@ Here is one interesting thing that you need to know; the thumbnail of videos app
 [ How to Download YouTube Thumbnail in 3 Ways \[Online/Win/Mac\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **2\. Tips for Perfect Thumbnails**
 
 So, if you are ready to add thumbnails to your videos, then it is time to learn a few essential tips to do this task with improved impact. You need to ignore the blurry details and boost the eye-catching ones. Here are a few essential tips for developing the best videos with an impressive selection of thumbnail images:
@@ -83,17 +72,12 @@ Window users are advised to access Windows Key with Print Screen option to get t
 Once you are ready with your video specific still image, then simply get it uploaded on YouTube using the edit video page.
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Making Better Thumbnails for YouTube
 
 The best part is to access some photo editing software tool to edit your image the way you like. You can use an advanced tool like Photoshop or a free online tool like Canva.
@@ -125,39 +109,32 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +143,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-financial-motives-in-consumer-video-evaluations/"><u>[New] 2024 Approved Financial Motives in Consumer Video Evaluations?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-tailoring-titles-and-tags-for-top-youtube-performance/"><u>[New] 2024 Approved Tailoring Titles and Tags for Top YouTube Performance</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ree-end-credits-maker-the-1-video-closers-guide-for-2024/"><u>[New] Free End Credits Maker - The #1 Video Closers Guide for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-mastering-youtubes-short-form-content-key-tips-revealed/"><u>[New] In 2024, Mastering YouTube's Short-Form Content Key Tips Revealed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-merging-youtube-with-imovie-a-soundtrack-journey/"><u>[New] In 2024, Merging Youtube with iMovie A Soundtrack Journey</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ndulge-with-top-youtube-movies-guides/"><u>[New] Indulge with Top YouTube Movies Guides</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-making-text-dance-2-creative-animation-strategies/"><u>[Updated] 2024 Approved Making Text Dance 2 Creative Animation Strategies</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-mastering-facebook-live-capturing-your-broadcasts/"><u>[Updated] 2024 Approved Mastering Facebook Live Capturing Your Broadcasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-dodge-digital-watchers-accelerating-view-count-growth-for-2024/"><u>[Updated] Dodge Digital Watchers Accelerating View Count Growth for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-making-your-slides-come-alive-with-youtube-in-ppt-for-2024/"><u>[Updated] Making Your Slides Come Alive with YouTube in PPT for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-rhythmic-beak-boogie/"><u>2024 Approved Rhythmic Beak Boogie</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/efficiency-in-exporting-photos-from-device-to-share-via-snapchat-for-2024/"><u>Efficiency in Exporting Photos From Device to Share via Snapchat for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/guide-sharing-gameplay-footage-from-your-ps5-console/"><u>Guide: Sharing Gameplay Footage From Your PS5 Console</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-vivo-y100a-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Vivo Y100A?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-quick-fixes-how-to-shorten-youtube-videos-easily/"><u>In 2024, Quick Fixes How to Shorten YouTube Videos Easily</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-warframes-freeze-frames-optimizing-your-gameplay-experience/"><u>Overcoming Warframe's Freeze Frames: Optimizing Your Gameplay Experience</u></a></li>
+</ul></div>
 

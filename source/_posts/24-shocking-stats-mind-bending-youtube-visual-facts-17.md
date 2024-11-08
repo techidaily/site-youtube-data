@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Shocking Stats  Mind-Bending Youtube Visual Facts ('17)\""
-date: 2024-09-06T15:01:38.455Z
-updated: 2024-09-07T15:01:38.455Z
+date: 2024-10-31T22:21:53.899Z
+updated: 2024-11-07T19:06:05.387Z
 tags:
   - ai video
   - ai youtube
@@ -14,30 +14,12 @@ keywords: "\"Youtube Trends '17,Fact Visual YouTube,Shocking Data Chart,Video Fa
 thumbnail: https://thmb.techidaily.com/53f3a3394ff2579b0b4baf68462fcda182f1a767bab5dec28fa2cd5b42632e26.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Shocking Stats: Mind-Bending Youtube Visual Facts ('17)
 
 # Infographic - Mind Numbing YouTube Facts,Figures and Statistics
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -48,18 +30,6 @@ In 2017, more than 500 hours of video content are being uploaded to [YouTube](ht
 
 ![mind blowing youtube stats facts 2017](https://filmora.wondershare.com/youtube-video-editing/mind-blowing-youtube-stats-facts-2017.jpg)
 
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 It’s hard to pick highlights from such an interesting and comprehensive read, but a couple of key stats shine out.
 
 * **YouTube has just 0,5 billion users less than Facebook**
@@ -86,32 +56,17 @@ Let us know what you think about these interesting facts about YouTube in the co
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -120,4 +75,32 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-stand-out-in-the-stream-top-name-generators-reviewed/"><u>[New] 2024 Approved Stand Out in the Stream Top Name Generators Reviewed</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-superior-transmitters-and-decoders-for-livestreams/"><u>[New] Superior Transmitters and Decoders for Livestreams</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-tips-for-youtube-thumbnail-size-aspect-ratio-included/"><u>[Updated] 2024 Approved Tips for YouTube Thumbnail Size [Aspect Ratio Included]</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-breathtaking-cinematography-with-5-best-slow-motion-cameras-for-2024/"><u>[Updated] Breathtaking Cinematography with 5 Best Slow-Motion Cameras for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-chime-into-chats-whatsapp-status-soundtracks-for-2024/"><u>[Updated] Chime Into Chats WhatsApp Status Soundtracks for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-dish-to-screen-your-recipe-video-blueprint/"><u>[Updated] Dish to Screen Your Recipe Video Blueprint</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-tapping-into-asmrs-potential-for-self-improvement/"><u>2024 Approved Tapping Into ASMR's Potential for Self-Improvement</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-understanding-and-proficiently-implementing-cc-rights/"><u>2024 Approved Understanding and Proficiently Implementing CC Rights</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ethical-strategies-for-finding-someones-contact-details-online-without-violating-privacy-laws/"><u>Ethical Strategies for Finding Someone's Contact Details Online Without Violating Privacy Laws</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ity-at-a-click-discovering-15-comical-youtubers-work-for-2024/"><u>Hilarity at a Click Discovering 15 Comical YouTubers' Work for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/revive-the-past-embrace-future-with-pi-in-game-development/"><u>Revive the Past, Embrace Future with Pi in Game Development</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210926290-9781903353370-vocation/"><u>Vocation | Free Book</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

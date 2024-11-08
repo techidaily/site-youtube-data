@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Novel Vlog Talk Points Everyday"
-date: 2024-09-06T15:01:31.985Z
-updated: 2024-09-07T15:01:31.985Z
+date: 2024-11-03T22:41:52.881Z
+updated: 2024-11-07T20:29:55.692Z
 tags:
   - ai video
   - ai youtube
@@ -14,30 +14,12 @@ keywords: "Daily Vlog Tips,Novel Insights Log,Essential Vlog Concepts,Common Vlo
 thumbnail: https://thmb.techidaily.com/f34f1e15652c4e288fb8fde812b08aadacd96fb0989998d476930eca7a23cc9b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Novel Vlog Talk Points Everyday
 
 # Daily Vlogging Ideas: What to Talk about While Vlogging?
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -50,12 +32,6 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -76,16 +52,24 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
 
@@ -114,25 +98,27 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
@@ -145,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -161,4 +144,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-finding-cost-effective-buys-on-gopros/"><u>[New] 2024 Approved Finding Cost-Effective Buys on GoPros</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-rotating-reality-in-visuals-the-art-of-spinning-images-for-instagram-triumphs/"><u>[New] 2024 Approved Rotating Reality in Visuals The Art of Spinning Images for Instagram Triumphs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/chieving-virality-on-youtube-essential-steps-demystified-for-2024/"><u>[New] Achieving Virality on YouTube Essential Steps Demystified for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-amplify-views-effortlessly-discovering-the-best-20-youtube-techniques/"><u>[New] In 2024, Amplify Views Effortlessly Discovering the Best 20 YouTube Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-ultimate-pp-playbook-for-silent-scene-transitions/"><u>[New] In 2024, The Ultimate PP Playbook for Silent Scene Transitions</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-social-video-marketing-insights-for-small-business-infographic/"><u>[New] Social Video Marketing Insights for Small Business [Infographic]</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-chasing-channel-currency-the-updated-youtube-partner-guide/"><u>[Updated] Chasing Channel Currency The Updated Youtube Partner Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-conveniently-remove-downloaded-youtube-media-for-lightweight-devices/"><u>[Updated] Conveniently Remove Downloaded YouTube Media for Lightweight Devices</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-edit-with-ease-10-video-to-mp3-tools-of-the-trade-for-2024/"><u>[Updated] Edit with Ease #10 Video-to-Mp3 Tools of the Trade for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-integrating-moving-images-into-non-paid-content/"><u>2024 Approved Integrating Moving Images Into Non-Paid Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/al-dollars-earn-from-youtubers-in-8-ways-for-2024/"><u>Digital Dollars Earn From YouTubers in 8 Ways for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-youtube-triumphs-how-to-turn-your-cell-phone-into-an-editing-machine/"><u>In 2024, YouTube Triumphs How to Turn Your Cell Phone Into an Editing Machine</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-the-solution-overcoming-stability-hurdles-in-ring-of-elysium-gaming/"><u>Mastering the Solution: Overcoming Stability Hurdles in Ring of Elysium Gaming</u></a></li>
+<li><a href="https://win-community.techidaily.com/solving-issues-with-disk-partitioning-errors-a-comprehensive-guide/"><u>Solving Issues with Disk Partitioning Errors - A Comprehensive Guide</u></a></li>
+<li><a href="https://driver-install.techidaily.com/the-art-of-drives-manual-tweaks-for-xp-users/"><u>The Art of Drives: Manual Tweaks for XP Users</u></a></li>
+</ul></div>
 

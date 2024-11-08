@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Art of Framing  Making an Effective YouTube Introductory Vids\""
-date: 2024-09-06T15:01:31.399Z
-updated: 2024-09-07T15:01:31.399Z
+date: 2024-11-02T18:07:50.544Z
+updated: 2024-11-07T22:35:00.437Z
 tags:
   - ai video
   - ai youtube
@@ -14,18 +14,6 @@ keywords: "YouTube Intro Vids Tips,Effective Intro Frame Setup,Engaging Video Fr
 thumbnail: https://thmb.techidaily.com/656378bfa436826a8517a6c678576be78969ead53968b002df8bcb5d506324cf.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Art of Framing: Making an Effective YouTube Introductory Vids
 
 Do you want to know how to get more subscribers? Do you want your channel to be popular among those YouTube stars? Ok, we got you!
@@ -42,6 +30,13 @@ In other words, a YouTube trailer is necessary for your channel. It will give th
 
 **Note:** also, the trailer will be visible for non-subscribed viewers who come to your channel for the first time. So as first impressions matter, they need to be creative and engaging.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. Don't know where to start?
 
 So you want to create a trailer and need help figuring out where to start? What if there are templates that will help you make your trailer and simplifies your work? Yes! [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) will make your way easy and give you unlimited effects.
@@ -56,18 +51,6 @@ Your first step will be to find a way to engage your audience so that they will 
 
 ![a good startup of a trailer](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-1.gif)
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **For example**
 
 Step1 Ask a **question**.
@@ -93,11 +76,18 @@ You can add a quick introduction about yourself and your backstory. It will crea
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Note:** keep in mind to make a short intro. Please don't spend too much time on it. And remember, it's all about the audience.
 
 ##### Step3 Show, not just tell
@@ -113,11 +103,18 @@ Here, you should explain to your audience the purpose of your channel and what t
 ![an example of a creative trailer](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Determine the style of your video**
 
 You can refer to the most popular style in your area. Then, making the possibilities endless, you name it!
@@ -190,18 +187,6 @@ Make a short intro, depending on the content and your presence on the screen. Ag
 
 ![self-introduction example](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-2.gif)
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 You can add a quick introduction about yourself and your backstory. It will create a sense of personal attachment to the channel and help you engage better with the audience.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
@@ -220,12 +205,6 @@ Here, you should explain to your audience the purpose of your channel and what t
 
 ![an example of a creative trailer](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Determine the style of your video**
 
 You can refer to the most popular style in your area. Then, making the possibilities endless, you name it!
@@ -243,17 +222,12 @@ Schedules are vital if you want regularly engaging viewers. The audience will be
 ![video posts schedules](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-4.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### Step6 Call to action
 
 What is a Video CTA? A CTA is an action you want your target audience to do after watching a trailer. And that is to subscribe to your YouTube channel.
@@ -287,8 +261,6 @@ Alright! Following the steps mentioned above, you will be able to create a good 
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -297,4 +269,19 @@ Alright! Following the steps mentioned above, you will be able to create a good 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/etting-the-most-out-of-live-sports-on-youtube-tv/"><u>[New] Getting the Most Out of Live Sports on YouTube TV</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-counteract-bot-visitors-for-real-audience-growth/"><u>[New] In 2024, Counteract Bot Visitors for Real Audience Growth</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-digital-cash-kings-leading-youtube-creators/"><u>[Updated] 2024 Approved Digital Cash Kings Leading YouTube Creators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-essential-tactics-for-youtube-short-troubleshooting/"><u>[Updated] Essential Tactics for YouTube Short Troubleshooting</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-luminous-techniques-for-engaging-vlogs/"><u>[Updated] In 2024, Luminous Techniques for Engaging Vlogs</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/accelerate-performance-solutions-for-fast-and-efficient-samsung-t5-uploaddownload-speeds/"><u>Accelerate Performance: Solutions for Fast and Efficient Samsung T5 Upload/Download Speeds</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/advanced-technology-showcase-reviewing-the-top-5-slow-motion-cameras/"><u>Advanced Technology Showcase Reviewing the Top 5 Slow-Motion Cameras</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/fixing-aomei-backupper-coding-mistakes-for-smooth-recovery-processes/"><u>Fixing AOMEI Backupper Coding Mistakes for Smooth Recovery Processes</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-how-to-add-captions-to-youtube-videos/"><u>In 2024, How To Add Captions to YouTube Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-parody-pointers-from-script-to-screenplay/"><u>In 2024, Parody Pointers From Script to Screenplay</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-perfecting-iphone-photography-mastery-of-macro-and-close-up-details/"><u>In 2024, Perfecting iPhone Photography Mastery of Macro and Close-Up Details</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676426-9798885406161-like-the-days-of-the-heavens-above-the-earth/"><u>Like The Days of the Heavens above the Earth | Free Book</u></a></li>
+</ul></div>
 

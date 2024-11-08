@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering the Art of Thumbnail Design  Tips and Pitfalls for 2024\""
-date: 2024-09-06T15:01:39.091Z
-updated: 2024-09-07T15:01:39.091Z
+date: 2024-11-05T17:52:37.396Z
+updated: 2024-11-07T22:48:40.720Z
 tags:
   - ai video
   - ai youtube
@@ -14,24 +14,12 @@ keywords: "Thumbnails Design Tips,Thumbnail Pitfall Avoidance,Thumbnail Creation
 thumbnail: https://thmb.techidaily.com/8ab6ea565c08148258cccefd3c4e69bde02c4b3dbfe57b65bd55e5629cfc57b6.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mastering the Art of Thumbnail Design: Tips and Pitfalls
 
 # How To Make Good YouTube Banner - Dos and Don’ts
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -51,12 +39,6 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -70,6 +52,13 @@ When choosing great photos for your background, pick ones that are high quality 
 Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Should I Use My Face?
 
@@ -86,6 +75,13 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 #### _Don’t: Use Outdated Pictures_
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: What Should I Write on My Banner?
 
@@ -112,11 +108,12 @@ Including social media icons in your channel art lets people know where they can
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -129,12 +126,6 @@ YouTubers that use tag lines are using their channel as a platform to carry out 
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: How Can I Make My Channel Art Look Good?
 
 #### _Do: Create Consistent Branding_
@@ -156,17 +147,12 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 Now that you know how to make a good YouTube banner, what will you do next?
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
@@ -181,14 +167,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -197,4 +180,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-3-ways-to-record-lectures-on-mac/"><u>[New] In 2024, 3 Ways to Record Lectures on Mac</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-formulating-attractive-instagram-post-headlines/"><u>[New] In 2024, Formulating Attractive Instagram Post Headlines</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-profit-potential-unlocked-how-to-enroll-in-youtubes-membership/"><u>[New] In 2024, Profit Potential Unlocked How to Enroll in YouTube's Membership</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-perfecting-the-art-of-capturing-spoken-words-digitally/"><u>[New] Perfecting the Art of Capturing Spoken Words Digitally</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-elevate-your-videos-with-complimentary-banners-here-for-2024/"><u>[Updated] Elevate Your Videos with Complimentary Banners, Here for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exploring-the-monetization-framework-of-tseries-via-youtube/"><u>[Updated] In 2024, Exploring the Monetization Framework of TSeries via YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mastering-video-visibility-settings-on-youtube-for-2024/"><u>[Updated] Mastering Video Visibility Settings on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-maximize-screen-time-top-10-free-youtube-playlist-extractors/"><u>[Updated] Maximize Screen Time Top 10 Free YouTube Playlist Extractors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-10-strategies-for-educators-starting-their-own-youtube-series/"><u>2024 Approved 10 Strategies for Educators Starting Their Own YouTube Series</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-incorporating-youtubes-video-content-on-your-domain/"><u>2024 Approved Incorporating YouTube's Video Content on Your Domain</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-iphone-guide-jpegpng-to-pdf-conversion-techniques/"><u>2024 Approved IPhone Guide JPEG/PNG to PDF Conversion Techniques</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-visual-snipping-strategy-in-windows-11s-photos-app/"><u>2024 Approved Visual Snipping Strategy in Windows 11'S Photos App</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-iphone-13-without-passcode-now-drfone-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock iPhone 13 Without Passcode Now | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/o-succeed-youtubes-powerful-business-channel-list-for-2024/"><u>How to Succeed YouTube's Powerful Business Channel List for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-sync-side-by-side-application-settings-on-win10/"><u>How to Sync Side-by-Side Application Settings on Win10</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-youthful-youtube-ventures-crafting-creative-videos-on-a-mac/"><u>In 2024, Youthful YouTube Ventures Crafting Creative Videos on a Mac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-of-text-from-speech-applications-202/"><u>The Ultimate Selection of Text-From-Speech Applications, 202</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/form-your-content-strategy-with-tubebuddy-for-2024/"><u>Transform Your Content Strategy with TubeBuddy for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshoot-a-nonfunctional-razer-headset-mic-with-these-simple-fixes/"><u>Troubleshoot a Nonfunctional Razer Headset Mic with These Simple Fixes</u></a></li>
+</ul></div>
 

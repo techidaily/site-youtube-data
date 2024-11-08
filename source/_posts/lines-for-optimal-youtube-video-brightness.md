@@ -1,7 +1,7 @@
 ---
 title: "Guidelines for Optimal YouTube Video Brightness"
-date: 2024-10-31T22:13:20.359Z
-updated: 2024-11-01T20:09:39.551Z
+date: 2024-11-05T17:55:18.291Z
+updated: 2024-11-07T17:52:28.295Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,13 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1.  Window Lighting
 
 The best thing about window lighting is that it’s free. The worst thing about it is that it’s uncontrollable. The amount of light you get in your video can vary with all the changes in the weather.
@@ -66,13 +73,6 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
@@ -82,16 +82,10 @@ If you rather not deal with all the window and home lighting challenges, you can
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
@@ -101,10 +95,10 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
@@ -127,14 +121,14 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -157,19 +151,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-segmentviewer-study-notes/"><u>[New] 2024 Approved SegmentViewer Study Notes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-global-earning-maestro-of-video-content/"><u>[New] In 2024, Global Earning Maestro of Video Content</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-pro-gamers-audio-gold-5-essential-sound-devices/"><u>[New] In 2024, Pro Gamers' Audio Gold 5 Essential Sound Devices</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-mastering-macos-producing-high-quality-ootd-tiktoks/"><u>[New] Mastering MacOS Producing High-Quality OOTD TikToks</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-break-through-bot-barriers-rising-from-the-crowd-for-2024/"><u>[Updated] Break Through Bot Barriers Rising From the Crowd for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-all-you-need-to-know-about-the-youtube-shorts-fund/"><u>[Updated] In 2024, All You Need to Know About the YouTube Shorts Fund</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-navigating-facebook-sharing-of-youtube-videos/"><u>[Updated] In 2024, Navigating Facebook Sharing of YouTube Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-locating-your-own-playlists-on-youtube/"><u>[Updated] Locating Your Own Playlists on Youtube</u></a></li>
-<li><a href="https://win-latest.techidaily.com/1-how-to-transfer-sms-from-android-phone-to-windows-desktop-effortlessly/"><u>1. How to Transfer SMS From Android Phone to Windows Desktop Effortlessly</u></a></li>
-<li><a href="https://win-docs.techidaily.com/complete-step-by-step-guide-to-restoring-your-ipad-using-icloud-or-itunes-backups/"><u>Complete Step-by-Step Guide to Restoring Your iPad Using iCloud or iTunes Backups</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-oppo-reno-10-pro-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Oppo Reno 10 Pro 5G to iPod | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1716769545766-in-2024-how-many-seconds-is-a-20mb-video/"><u>In 2024, How Many Seconds Is a 20Mb Video?</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unleash-the-potential-of-ai-on-ios-merging-chatgpt-functionality-with-apples-siri/"><u>Unleash the Potential of AI on iOS: Merging ChatGPT Functionality with Apple's Siri</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/unrivaled-script-authority-place-for-2024/"><u>Unrivaled Script Authority Place for 2024</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/debo-borrar-mi-ssd-antes-de-hacer-una-copia-de-seguridad-y-restaurarla/"><u>¿Debo Borrar Mi SSD Antes De Hacer Una Copia De Seguridad Y Restaurarla?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/iscovering-the-top-8-truly-efficient-advancement-services-for-2024/"><u>[New] Discovering the Top 8 Truly Efficient Advancement Services for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-evaluating-best-youtube-extractors-available-on-android/"><u>[New] In 2024, Evaluating Best YouTube Extractors Available on Android</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-ultimate-tutorial-looping-techniques-for-maximum-watcher-satisfaction/"><u>[New] In 2024, Ultimate Tutorial Looping Techniques for Maximum Watcher Satisfaction</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/onthly-earnings-from-youtube-for-creators/"><u>[New] Monthly Earnings From YouTube for Creators</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-cerebral-channels-top-educational-yt-networks/"><u>[Updated] 2024 Approved Cerebral Channels Top Educational YT Networks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-comprehensive-list-of-8-prime-youtube-to-avi-tools-for-2024/"><u>[Updated] Comprehensive List of 8 Prime YouTube-to-AVI Tools for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-basic-gamers-guide-to-outstanding-video-editing-software/"><u>[Updated] In 2024, Basic Gamers' Guide to Outstanding Video Editing Software</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-growth-odyssey-of-ajey-nagar-on-youtube/"><u>[Updated] In 2024, The Growth Odyssey of Ajey Nagar on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-recording-your-iphoneipad-whats-new/"><u>2024 Approved Recording Your iPhone/iPad What's New</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ng-into-youtubes-complex-calculation-of-viewer-stats-for-2024/"><u>Delving Into YouTube's Complex Calculation of Viewer Stats for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/discover-the-ultimate-picks-top-4-no-cost-4k-movies-apps-for-your-computer-and-macos/"><u>Discover the Ultimate Picks: Top 4 No-Cost 4K Movies Apps for Your Computer and MacOS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ver-top-asmr-for-iosandroid-devices-for-2024/"><u>Discover Top ASMR for iOS/Android Devices for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-google-pixel-7a-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Google Pixel 7a Lock Screen Clock in Seconds</u></a></li>
 </ul></div>
 

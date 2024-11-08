@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Self-Filmed Flair  Tips for Captivating Solo Videos\""
-date: 2024-10-29T17:07:13.582Z
-updated: 2024-11-01T22:04:40.865Z
+date: 2024-11-04T21:36:11.771Z
+updated: 2024-11-07T16:52:36.359Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,10 @@ We’ve summarized the key points about setting up talking head style video shot
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -79,13 +79,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -93,6 +86,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -110,6 +110,13 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
@@ -117,20 +124,13 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -153,20 +153,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-brush-up-skills-unveiling-the-ultimate-8-iphone-drawing-tools/"><u>[New] Brush Up Skills Unveiling the Ultimate 8 iPhone Drawing Tools</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/onfirming-youtube-pro-rated-earnings-for-2024/"><u>[New] Confirming YouTube Pro-Rated Earnings for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-directing-content-flow-uploading-imovie-films-to-youtube/"><u>[New] In 2024, Directing Content Flow Uploading IMovie Films to YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/aming-your-channel-with-flair-and-individuality-for-2024/"><u>[New] Naming Your Channel with Flair and Individuality for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-boosting-your-yt-subs-a-complete-strategy-guide-for-2024/"><u>[Updated] Boosting Your YT Subs A Complete Strategy Guide for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-expert-guide-to-creating-compact-engaging-youtube-content/"><u>[Updated] Expert Guide to Creating Compact, Engaging YouTube Content</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-excellence-index-photoplustune-recording-software/"><u>[Updated] In 2024, Excellence Index Photo+Tune Recording Software</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-initiating-into-the-world-of-facebook-video-content-creation/"><u>[Updated] In 2024, Initiating Into the World of Facebook Video Content Creation</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ting-your-place-in-youtube-by-mastering-creative-studio-techniques-for-2024/"><u>Cementing Your Place in YouTube by Mastering Creative Studio Techniques for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/future-of-flexible-phones-what-to-expect-from-the-new-google-pixel-fold-price-guess-release-window-hardware-info-and-buzzed-theories/"><u>Future of Flexible Phones: What to Expect From the New Google Pixel Fold - Price Guess, Release Window, Hardware Info, and Buzzed Theories</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-on-your-apple-iphone-7-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card on Your Apple iPhone 7 Apple ID and Apple Pay</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Vivo X Fold 2 | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-pulse-picking-playlists-hot-tracks-for-viral-youtube-shorts/"><u>In 2024, Pulse-Picking Playlists Hot Tracks for Viral YouTube Shorts</u></a></li>
-<li><a href="https://win-dash.techidaily.com/installing-logitech-m525-mouse-firmware-and-utilities-download-now/"><u>Installing Logitech M525 Mouse Firmware and Utilities – Download Now</u></a></li>
-<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-huawei-p60-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-transforming-viewers-into-vendors-ajey-nagars-earnings-excellence-on-youtube/"><u>[Updated] In 2024, Transforming Viewers Into Vendors Ajey Nagar’s Earnings Excellence on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-how-to-watch-deleted-youtube-videos-online-in-2-ways/"><u>2024 Approved How to Watch Deleted YouTube Videos Online in 2 Ways</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-navigating-the-world-of-youtube-editing-using-finalcut-pro/"><u>2024 Approved Navigating the World of YouTube Editing Using FinalCut Pro</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-optimizing-content-editing-youtube-descriptions-and-titles-for-growth/"><u>2024 Approved Optimizing Content Editing YouTube Descriptions & Titles for Growth</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-investment-in-streaming-comparative-evaluation/"><u>Best Investment in Streaming Comparative Evaluation</u></a></li>
+<li><a href="https://win-premium.techidaily.com/conversione-libera-online-dei-file-td-a-mp4-con-movavi-passaggi-facili-da-seguire/"><u>Conversione Libera Online Dei File TD a MP4 Con Movavi: Passaggi Facili Da Seguire</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-htc-u23-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock HTC U23 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-transform-footage-into-visual-art-with-youtube-studio/"><u>In 2024, Transform Footage Into Visual Art with YouTube Studio</u></a></li>
+<li><a href="https://extra-information.techidaily.com/joint-ventures-in-content-creation-for-youtube-audiences/"><u>Joint Ventures in Content Creation for YouTube Audiences</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-easy-nft-creation-a-novices-manual-for-2024/"><u>Mastering Easy NFT Creation A Novice's Manual for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ly-earnings-from-youtube-as-a-content-creator-for-2024/"><u>Monthly Earnings From YouTube as a Content Creator for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/step-by-step-guide-to-converting-dvd-media-files-into-mp4m4v-format-on-mac/"><u>Step-by-Step Guide to Converting DVD Media Files Into MP4/M4V Format on Mac</u></a></li>
 </ul></div>
 
