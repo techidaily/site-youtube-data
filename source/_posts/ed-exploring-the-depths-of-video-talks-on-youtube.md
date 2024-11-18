@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Exploring the Depths of Video Talks on YouTube"
-date: 2024-08-28T13:37:23.727Z
-updated: 2024-08-29T13:37:23.727Z
+date: 2024-11-10T20:35:00.286Z
+updated: 2024-11-18T05:57:34.772Z
 tags:
   - ai video
   - ai youtube
@@ -61,6 +61,13 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -74,8 +81,12 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -103,8 +114,18 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -112,8 +133,12 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -124,14 +149,8 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -155,23 +174,17 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +193,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-essentials-of-mobile-based-youtube-channel-creation-for-personalbusiness-use/"><u>[Updated] 2024 Approved The Essentials of Mobile-Based YouTube Channel Creation for Personal/Business Use</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-unveiling-tiktoks-hidden-secrets-top-7-emoji-exploration-guide/"><u>[Updated] 2024 Approved Unveiling TikTok's Hidden Secrets Top 7 Emoji Exploration Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-a-beginners-guide-to-youtube-seo-keywords-for-2024/"><u>[Updated] A Beginner's Guide to YouTube SEO Keywords for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-best-of-the-best-15-4k-video-capture-units/"><u>[Updated] Best of the Best #15 4K Video Capture Units</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-animating-elegance-self-designed-tricks-and-effects/"><u>[Updated] In 2024, Animating Elegance Self-Designed Tricks & Effects</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-best-solutions-to-record-video-without-sound/"><u>[Updated] In 2024, Best Solutions to Record Video Without Sound</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-how-to-make-the-most-out-of-spotifys-advertising-features/"><u>[Updated] In 2024, How to Make the Most Out of Spotify's Advertising Features</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-master-the-map-locating-youtube-studio-content-architects-toolbox/"><u>2024 Approved Master the Map Locating YouTube Studio, Content Architect’s Toolbox</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-pioneering-the-next-level-of-streaming-setups/"><u>2024 Approved Pioneering the Next Level of Streaming Setups</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-top-talent-spotlights-inspiring-recruitment-chronicles-1-10/"><u>2024 Approved Top Talent Spotlights Inspiring Recruitment Chronicles #1-10</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/expert-tutorial-on-utilizing-googles-automatic-speech-transcription/"><u>Expert Tutorial on Utilizing Google's Automatic Speech Transcription</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-saved-the-day-downloading-youtube-playlists-made-easy/"><u>In 2024, Saved the Day! Downloading YouTube Playlists Made Easy</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Tecno Phantom V Fold? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/quick-tips-for-securely-acquiring-terrifying-movie-downloads/"><u>Quick Tips for Securely Acquiring Terrifying Movie Downloads</u></a></li>
+<li><a href="https://games-able.techidaily.com/reinstate-your-disappeared-wordle-streak-seamlessly/"><u>Reinstate Your Disappeared Wordle Streak Seamlessly</u></a></li>
+</ul></div>
 

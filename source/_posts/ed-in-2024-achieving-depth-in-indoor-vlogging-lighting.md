@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Achieving Depth in Indoor Vlogging Lighting"
-date: 2024-11-04T21:00:02.218Z
-updated: 2024-11-07T16:15:35.058Z
+date: 2024-11-15T09:36:32.984Z
+updated: 2024-11-18T03:59:49.883Z
 tags:
   - ai video
   - ai youtube
@@ -49,13 +49,20 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -85,10 +92,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -98,10 +105,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -109,13 +116,6 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,22 +138,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-historical-explorations-10-must-see-educational-channels-on-yt/"><u>[New] 2024 Approved Historical Explorations - 10 Must-See Educational Channels on YT</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-how-to-loop-videos-on-iphone/"><u>[New] 2024 Approved How to Loop Videos on iPhone?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-leveraging-google-meet-for-youtube-streaming-a-step-by-step-process/"><u>[New] 2024 Approved Leveraging Google Meet for YouTube Streaming A Step-by-Step Process</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-peak-traffic-times-for-stellar-video-performance/"><u>[New] 2024 Approved Peak Traffic Times for Stellar Video Performance</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-step-by-step-guide-to-youtube-playlist-in-html/"><u>[New] 2024 Approved Step-by-Step Guide to YouTube Playlist in HTML</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-list-of-the-best-marriage-videos-celebrations-captured-online-8-for-2024/"><u>[New] A List of the Best Marriage Videos - Celebrations Captured Online (8) for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-easy-and-fast-convert-youtube-music-into-mp3-mac-version-for-2024/"><u>[New] Easy & Fast Convert YouTube Music Into MP3, Mac Version for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unveiling-the-best-practices-for-linktree-on-tiktok-profiles/"><u>[Updated] 2024 Approved Unveiling the Best Practices for Linktree on TikTok Profiles</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-quick-guide-how-to-download-windows-movie-maker-6/"><u>[Updated] Quick Guide How to Download Windows Movie Maker 6</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-oppo-a2-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Oppo A2 | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-crafting-videos-top-10-text-styling-hacks/"><u>2024 Approved Crafting Videos Top 10 Text Styling Hacks</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-principles-for-youtube-participants/"><u>Adept Principles for YouTube Participants</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/exploring-free-superior-webm-video-playback-solutions/"><u>Exploring Free, Superior WebM Video Playback Solutions</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-inspirations-for-streaming-topics-for-2024/"><u>Fresh Inspirations for Streaming Topics for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/from-beginner-to-pro-essential-steps-in-recording-with-logitech-cameras-for-2024/"><u>From Beginner to Pro Essential Steps in Recording with Logitech Cameras for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-what-is-public-domain-art/"><u>In 2024, What Is Public Domain Art</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/macbook-air-or-ipad-pro-determining-the-superior-option-for-personal-use-gadgetpundit/"><u>MacBook Air or iPad Pro: Determining the Superior Option for Personal Use | GadgetPundit</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-streamline-slack-collaboration-with-best-10-free-tools/"><u>[New] In 2024, Streamline Slack Collaboration with Best 10 Free Tools</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-behind-the-scenes-with-vlc-player-features/"><u>[Updated] Behind the Scenes with VLC Player Features</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-optimize-viewership-with-proficient-timestamp-placement-on-youtube/"><u>[Updated] Optimize Viewership with Proficient Timestamp Placement on YouTube</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1-understanding-movavis-comprehensive-refund-guidelines/"><u>1. Understanding Movavi's Comprehensive Refund Guidelines</u></a></li>
+<li><a href="https://blog-min.techidaily.com/download-winxdvd-suite-for-ultimate-dvd-ripping-and-smartphone-video-transfer-features-official-source/"><u>Download WinXDVD Suite for Ultimate DVD Ripping and Smartphone Video Transfer Features - Official Source</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-ios-system-of-iphone-15-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS System of iPhone 15 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-channel-aspirations-reach-and-secure-10k-views-for-youtube-partner-perks/"><u>In 2024, Channel Aspirations – Reach and Secure 10K Views for YouTube Partner Perks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-dive-into-youtubes-best-practices-for-playlist-design/"><u>In 2024, Dive Into Youtube's Best Practices for Playlist Design</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-elevate-your-channelenas-expensive-check-out-our-11-free-name-generators-guide/"><u>In 2024, Elevate Your Channel'enas Expensive? Check Out Our 11 Free Name Generators Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-elevate-your-team-with-expert-talent-selections/"><u>In 2024, Elevate Your Team with Expert Talent Selections</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-engage-more-viewers-unveiling-top-youtube-font-secrets/"><u>In 2024, Engage More Viewers Unveiling Top YouTube Font Secrets</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-languages-journey-two-years-spectacular-ambitions/"><u>Mondly Languages' Journey: Two Years, Spectacular Ambitions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Nokia G310? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Transforming Viewership  Engaging End Screens Tutorials\""
-date: 2024-08-28T13:35:43.519Z
-updated: 2024-08-29T13:35:43.519Z
+date: 2024-11-13T03:43:36.646Z
+updated: 2024-11-17T22:10:48.301Z
 tags:
   - ai video
   - ai youtube
@@ -85,6 +85,13 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
@@ -105,9 +112,23 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -121,6 +142,13 @@ If you're looking for other options to design your end screen, make sure to also
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -129,14 +157,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,10 +170,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-intro-to-discovering-youtube-studio-content-creators-dreamland/"><u>[New] An Intro to Discovering YouTube Studio Content Creator's Dreamland</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-view-facebook-videos-with-apple-remote/"><u>[New] How to View Facebook Videos with Apple Remote</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/roubleshooting-shorts-the-non-displaying-thumbnail/"><u>[New] Troubleshooting Shorts The Non-Displaying Thumbnail</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unveiling-the-mysteries-of-ig-metrics-an-essential-toolkit-for-marketers-for-2024/"><u>[New] Unveiling the Mysteries of IG Metrics An Essential Toolkit for Marketers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-dancing-to-the-tune-youtubes-hottest-music-video-responses-23-for-2024/"><u>[Updated] Dancing to the Tune YouTube's Hottest Music Video Responses, '23 for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-beyond-the-basics-transformative-tactics-for-facebook-advertising/"><u>[Updated] In 2024, Beyond the Basics Transformative Tactics for Facebook Advertising</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-strengthen-your-content-identity-inserting-watermarklogo-in-videos/"><u>[Updated] In 2024, Strengthen Your Content Identity Inserting Watermark/Logo in Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-optimal-screen-recorder-selection-for-youtube-professionals/"><u>2024 Approved Optimal Screen Recorder Selection for YouTube Professionals</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/craftsmanship-in-podcast-visuals-the-essentials-for-2024/"><u>Craftsmanship in Podcast Visuals The Essentials for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/screen-to-share-mastering-youtubes-thumbnail-artistry/"><u>From Screen to Share Mastering YouTubes' Thumbnail Artistry</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-high-def-phones-with-vlogging-extras/"><u>In 2024, High-Def Phones with Vlogging Extras</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/reimagining-action-recording-with-intova-edge-x-for-2024/"><u>Reimagining Action Recording with Intova Edge X for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/cket-views-with-these-effective-youtube-methods-for-2024/"><u>Skyrocket Views with These Effective YouTube Methods for 2024</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-realme-c67-4g-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Realme C67 4G Reset Code | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unboxing-the-kobo-nia-is-it-a-strong-contender-in-the-kindle-arena/"><u>Unboxing the Kobo Nia - Is It a Strong Contender in the Kindle Arena?</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->

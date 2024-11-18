@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step  Establishing a Signature Persona on YouTube\""
-date: 2024-08-28T13:36:18.094Z
-updated: 2024-08-29T13:36:18.094Z
+date: 2024-11-17T08:24:05.085Z
+updated: 2024-11-18T05:12:42.562Z
 tags:
   - ai video
   - ai youtube
@@ -46,8 +46,18 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 Competing on YouTube is all about offering value. Viewers should be able to find something on your channel that they can’t find anywhere else. This doesn’t mean you need to bend over backwards trying to[invent brand new video ideas that nobody has ever tried before](https://www.filmora.io/community-blog/how-to-be-original-on-youtube-289.html) – it just means you need to focus on building your unique brand. That is what will make viewers subscribe to you instead of just watching one of your videos and then clicking away.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The Elevator Pitch
 
 If you had 20 seconds – a short elevator ride – to describe your channel in a way that would make someone want to subscribe, what would you say?
@@ -65,8 +75,12 @@ You need to be able to do that when you talk about your channel.
 Work on developing an elevator pitch for your channel. It will help you define your brand for yourself, and it’ll be useful if you make a channel trailer.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Start Building Your Brand
 
 Building a brand should be intentional. You need to be yourself, but it’s not enough to just ‘be’. You need to create yourself.
@@ -78,8 +92,12 @@ You will notice patterns. There will be things you do in your video that people 
 Banners and thumbnails are also a part of your brand. [More on that here](https://www.filmora.io/community-blog/how-to-make-youtube-banners-and-thumbnails-316.html).
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Being Consistent
 
 The key to branding is consistency. People need to be able to set expectations.
@@ -101,22 +119,23 @@ When you intentionally create your personal brand on YouTube, you take charge of
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -125,4 +144,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-building-a-thriving-igtv-following-the-ultimate-guide-for-2024/"><u>[New] Building a Thriving IGTV Following The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/slrs-rivalry-with-mirrorless-for-video-artistry-for-2024/"><u>[New] DSLR's Rivalry with Mirrorless for Video Artistry for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-expert-advice-on-screen-recorders-for-zoom-meetings/"><u>[New] Expert Advice on Screen Recorders for Zoom Meetings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-rapid-learning-path-for-keying-mastery/"><u>[New] In 2024, Rapid Learning Path for Keying Mastery</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-best-software-to-start-your-youtube-videos-off-strongly-for-2024/"><u>[New] The Best Software to Start Your YouTube Videos Off Strongly for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-elevate-your-messaging-game-with-hidden-whatsapp-secrets/"><u>[Updated] 2024 Approved Elevate Your Messaging Game with Hidden WhatsApp Secrets</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/73583194-updated-learn-youtube-video-ad-building-at-no-cost/"><u>[Updated] Learn YouTube Video Ad Building at No Cost!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-streamline-your-viewing-experience-youtube-ad-block-strategies/"><u>[Updated] Streamline Your Viewing Experience - YouTube Ad-Block Strategies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unlock-youtube-potential-with-tubebuddy-strategies-for-2024/"><u>[Updated] Unlock YouTube Potential with TubeBuddy Strategies for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-iphones-ultimate-live-photography-potential/"><u>[Updated] Unlocking iPhone's Ultimate Live Photography Potential</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1725286196668-ai/"><u>「音声/録音から雑音をクリアにします - AIが活用された無料のフリーソフトとアプリ」</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-financial-worth-one-million-youtube-eyes/"><u>2024 Approved The Financial Worth One Million YouTube Eyes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-secrets-of-captivating-audiences-in-your-videos/"><u>2024 Approved The Secrets of Captivating Audiences in Your Videos</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-verifying-ad-revenue-on-yt-a-step-by-step-tutorial/"><u>2024 Approved Verifying Ad Revenue on YT A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/bring-back-your-windows-10-bluetooth-effective-solutions-that-work-instantly/"><u>Bring Back Your Windows 10 Bluetooth: Effective Solutions That Work Instantly!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ver-top-6-short-video-download-sites-free/"><u>Discover Top 6 Short Video Download Sites (FREE)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/swift-snapfile-reinstatement-guide-for-2024/"><u>Swift Snapfile Reinstatement Guide for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-41-amazing-apple-products-on-sale-during-the-festive-season-find-your-perfect-gift/"><u>Top 41 Amazing Apple Products on Sale During the Festive Season - Find Your Perfect Gift!</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/tout-savoir-pour-convertir-votre-video-mov-en-son-wav-sur-la-plateforme-movavi-sans-depenser-dargent/"><u>Tout Savoir Pour Convertir Votre Vidéo MOV en Son WAV Sur La Plateforme Movavi, Sans Dépenser D'argent !</u></a></li>
+</ul></div>
 

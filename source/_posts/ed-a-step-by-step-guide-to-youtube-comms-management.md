@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Step-by-Step Guide to YouTube Comms Management\""
-date: 2024-08-28T13:35:56.178Z
-updated: 2024-08-29T13:35:56.178Z
+date: 2024-11-14T19:08:10.268Z
+updated: 2024-11-17T21:13:47.376Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -113,8 +120,12 @@ From under the **Audience** section in the right window of the **Video details**
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -132,8 +143,12 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -149,22 +164,29 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +195,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/utting-the-cord-on-costs-select-best-free-yt-title-makers/"><u>[New] Cutting the Cord on Costs - Select Best-Free YT Title Makers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/arnings-epicenter-tech-gaming-on-youtube-for-2024/"><u>[New] Earnings Epicenter Tech Gaming on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-deciphers-for-digital-content-creators-youtubes-keyword-techniques/"><u>[New] In 2024, Deciphers for Digital Content Creators YouTube's Keyword Techniques</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-maximum-payload-heavy-lift-drones/"><u>[New] Mastering Maximum Payload Heavy Lift Drones</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/avigating-youtubes-rules-the-safe-way/"><u>[New] Navigating YouTube's Rules The Safe Way</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-5-critical-equipment-items-to-start-your-channel-right/"><u>[Updated] In 2024, 5 Critical Equipment Items to Start Your Channel Right</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-step-by-step-guide-to-scripting-engaging-youtube-videos/"><u>[Updated] In 2024, Step-by-Step Guide to Scripting Engaging YouTube Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-top-auditory-alteration-aids-for-streamers-and-clips/"><u>[Updated] Top Auditory Alteration Aids for Streamers and Clips</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-weaving-a-web-of-sound-youtube-music-and-video-integration-guide-for-2024/"><u>[Updated] Weaving a Web of Sound YouTube Music & Video Integration Guide for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-2022s-golden-age-for-ice-dancing-showcases/"><u>2024 Approved 2022'S Golden Age for Ice Dancing Showcases</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/critical-insights-preparing-for-the-right-console-investment-decision/"><u>Critical Insights: Preparing for the Right Console Investment Decision</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-tecno-phantom-v-flip-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Tecno Phantom V Flip Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-motorola-edge-2023-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Motorola Edge 2023 Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-illustrate-laughter-memes-in-adobe/"><u>In 2024, Illustrate Laughter Memes in Adobe</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-urban-ecosystem-fostering-resilience-through-green-policies/"><u>In 2024, The Urban Ecosystem Fostering Resilience Through Green Policies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ourneys-a-curated-list-of-the-best-humor-vids-online-for-2024/"><u>Joy Journeys A Curated List of the Best Humor Vids Online for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/outriders-performance-optimization-eliminating-lag-on-your-console-or-pc/"><u>Outriders Performance Optimization: Eliminating Lag on Your Console or PC</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-vivo-y78-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Vivo Y78 5G IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/l-voyages-free-thematic-tools-for-youtube-for-2024/"><u>Visual Voyages Free Thematic Tools for YouTube for 2024</u></a></li>
+</ul></div>
 

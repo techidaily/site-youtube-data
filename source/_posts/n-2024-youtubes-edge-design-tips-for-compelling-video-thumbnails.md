@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, YouTube's Edge  Design Tips for Compelling Video Thumbnails\""
-date: 2024-08-28T13:37:17.360Z
-updated: 2024-08-29T13:37:17.360Z
+date: 2024-11-15T06:12:20.893Z
+updated: 2024-11-17T17:49:59.665Z
 tags:
   - ai video
   - ai youtube
@@ -51,8 +51,12 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -60,17 +64,24 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
 
 Make sure the images you choose are relevant to the topic of your video.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
@@ -78,9 +89,12 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Keep it Clutter-Free
 
 It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
@@ -94,22 +108,23 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -118,4 +133,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ow-to-find-your-niche-and-style-a-starters-guide-high-cpm/"><u>[New] How to Find Your Niche and Style - a Starter's Guide [High CPM]</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-photographers-ultimate-cloud-companion-infinite-free-and-paid-sky-sanctuaries/"><u>[Updated] In 2024, Photographer’s Ultimate Cloud Companion Infinite, Free & Paid Sky Sanctuaries</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-jest-and-jibe-constructing-parody-videos-for-2024/"><u>[Updated] Jest and Jibe Constructing Parody Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mastering-online-promotion-top-5-proven-methods-for-maximum-impact-on-youtube-for-2024/"><u>[Updated] Mastering Online Promotion Top 5 Proven Methods for Maximum Impact on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-leverage-editing-to-boost-youtube-profile-impact/"><u>2024 Approved Leverage Editing to Boost YouTube Profile Impact</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-understanding-video-length-and-content-strategy-in-youtube-shorts/"><u>2024 Approved Understanding Video Length and Content Strategy in YouTube Shorts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/comprehensive-srt-education-and-resources-for-2024/"><u>Comprehensive SRT Education and Resources for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/experience-bespoke-engagement-with-our-cookiebot-technology-integration/"><u>Experience Bespoke Engagement with Our Cookiebot Technology Integration</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-lava-blaze-pro-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Lava Blaze Pro 5G</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/light-and-color-interplay-for-images/"><u>Light & Color Interplay for Images</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/los-mejores-convertidores-hevc-h265-del-ano-2023-seleccion-para-windows-macos-and-web/"><u>Los Mejores Convertidores HEVC (H265) Del Año 2023: Selección Para Windows, macOS & Web</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-the-issue-of-buzzing-sounds-in-your-earphones-a-comprehensive-guide/"><u>Solving the Issue of Buzzing Sounds in Your Earphones: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/to-expunge-your-youtube-queue-of-postponed-content/"><u>Tips to Expunge Your YouTube Queue of Postponed Content</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlocking-secretly-hidden-apps-on-your-iphone-a-comprehensive-guide/"><u>Unlocking Secretly Hidden Apps on Your iPhone – A Comprehensive Guide</u></a></li>
+</ul></div>
 

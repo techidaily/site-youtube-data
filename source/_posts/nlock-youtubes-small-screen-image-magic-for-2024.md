@@ -1,7 +1,7 @@
 ---
 title: "[New] Unlock YouTube's Small Screen Image Magic for 2024"
-date: 2024-09-06T15:01:42.131Z
-updated: 2024-09-07T15:01:42.131Z
+date: 2024-11-12T00:48:50.883Z
+updated: 2024-11-18T05:39:24.083Z
 tags:
   - ai video
   - ai youtube
@@ -20,12 +20,6 @@ thumbnail: https://thmb.techidaily.com/18d1ae3b93316df7253b6d9ca3430e2e7b9da85a6
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -49,12 +43,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
@@ -75,12 +63,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
@@ -89,22 +71,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
@@ -113,22 +83,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Conclusion
 
 This is how your Youtube thumbnail will look like after applying all the above-mentioned effects and settings.
@@ -139,26 +97,17 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,4 +116,39 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/hannel-building-gear-a-quick-start-guide-for-2024/"><u>[New] Channel-Building Gear A Quick Start Guide for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-mastering-yt-creator-hub-the-ultimate-playbook/"><u>[New] In 2024, Mastering YT Creator Hub The Ultimate Playbook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-depth-look-mycam-cams-performance/"><u>[New] In-Depth Look MyCam Cam's Performance</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aking-the-leap-essential-video-gatherings-post-vidcon-for-2024/"><u>[New] Taking the Leap Essential Video Gatherings (Post-VidCon) for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-rings-rhythm-versus-screen-time-symphony/"><u>[New] The Ring's Rhythm Versus Screen Time Symphony</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-ultimate-guide-to-earning-on-youtube-shorts/"><u>[New] The Ultimate Guide to Earning on Youtube Shorts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nmatched-convert-experience-premier-online-ytvideo-tools/"><u>[New] Unmatched Convert Experience Premier Online YTVideo Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-how-to-make-a-great-educational-video-for-youtube-for-2024/"><u>[Updated] How to Make a Great Educational Video for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-join-the-fortune-changing-club-free-50-banners-await/"><u>[Updated] In 2024, Join The Fortune-Changing Club Free 50 Banners Await</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mastering-video-captioning-on-youtube/"><u>[Updated] Mastering Video Captioning on YouTube</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/1-two-effective-methods-restoring-accidentally-deleted-temporary-browser-cache/"><u>1. Two Effective Methods: Restoring Accidentally Deleted Temporary Browser Cache</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-launching-a-dominant-biz-channel-key-tips-and-hacks/"><u>2024 Approved Launching a Dominant Biz Channel Key Tips & Hacks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-unlocking-biz-potential-the-best-channels-for-growth/"><u>2024 Approved Unlocking Biz Potential The Best Channels for Growth</u></a></li>
+<li><a href="https://fox-links.techidaily.com/creating-gradual-sound-diminishment/"><u>Creating Gradual Sound Diminishment</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/edit-your-mac-images-breezily-using-movavis-advanced-mac-photo-editor-features/"><u>Edit Your Mac Images Breezily Using Movavi's Advanced Mac Photo Editor Features</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/enhancing-presentations-incorporating-snap-features-on-meet-for-2024/"><u>Enhancing Presentations Incorporating Snap Features on Meet for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rog-phone-8-get-deleted-pictures-back-with-ease-and-safety-by-fonelab-android-recover-pictures/"><u>How to ROG Phone 8 Get Deleted Pictures Back with Ease and Safety?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-realme-12-pro-5g-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Realme 12 Pro 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/nine-security-measures-to-recover-lost-facebook-passwords/"><u>Nine Security Measures to Recover Lost Facebook Passwords</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

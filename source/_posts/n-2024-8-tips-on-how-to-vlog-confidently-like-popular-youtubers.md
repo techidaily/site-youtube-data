@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, 8 Tips on How to Vlog Confidently Like Popular YouTubers"
-date: 2024-08-28T13:36:12.060Z
-updated: 2024-08-29T13:36:12.060Z
+date: 2024-11-14T08:14:07.428Z
+updated: 2024-11-18T02:18:58.210Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,13 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -51,8 +58,12 @@ Once all the pieces of the story are captured — including your storytelling, b
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -61,10 +72,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -73,9 +80,6 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **5\. Compose the Shot**
 
 Vlogging is a visual medium, and while the story is important, what is captured in the frame will play an impactful role in the video as well.
@@ -98,9 +102,6 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -112,8 +113,12 @@ Consider your audience: they are coming home from school or work, where there we
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -138,25 +143,26 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -165,4 +171,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ow-to-add-timestamp-on-youtube-video-link-desktop-and-mobile-for-2024/"><u>[New] How to Add Timestamp on YouTube Video Link? [Desktop and Mobile] for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-must-have-mac-frame-captures-handbook-limited-to-156-characters/"><u>[New] Must-Have Mac Frame Captures Handbook (Limited to 156 Characters)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-simple-way-to-control-comment-functionality-in-youtube-for-2024/"><u>[New] The Simple Way to Control Comment Functionality in YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-mastering-youtube-studio-ultimate-video-edits-techniques/"><u>[Updated] 2024 Approved Mastering YouTube Studio Ultimate Video Edits Techniques</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-rapid-refit-youtube-on-mac-perfect-scaling/"><u>[Updated] Rapid Refit Youtube on Mac Perfect Scaling</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-pathways-to-youtube-stardom-in-video-games/"><u>2024 Approved Pathways to YouTube Stardom in Video Games</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-practices-when-basking-in-the-podcast-glow/"><u>Best Practices When Basking in the Podcast Glow</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cutting-edge-cameras-a-beginners-selection-primer-23/"><u>Cutting-Edge Cameras A Beginner's Selection Primer '23</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/digiarty-winxdvd-ultimate-end-user-license-agreement-complete-guide/"><u>Digiarty WinXDVD Ultimate End User License Agreement - Complete Guide</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-htc-u23-pro-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked HTC U23 Pro in Minutes | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-the-new-features-of-ios-18-enhancing-and-tweaking-your-iphones-control-panel/"><u>Mastering the New Features of iOS 18: Enhancing and Tweaking Your iPhone's Control Panel</u></a></li>
+<li><a href="https://extra-support.techidaily.com/nature-of-the-cosmos-select-sky-photography-websites-for-2024/"><u>Nature of the Cosmos Select Sky Photography Websites for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591825-9781462049950-spirit-speaks-are-you-listening/"><u>Spirit Speaks. Are You Listening? | Free Book</u></a></li>
+</ul></div>
 

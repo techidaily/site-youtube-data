@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Stabilize Your Lens  No Trips, Only Tricks\""
-date: 2024-08-28T13:39:43.300Z
-updated: 2024-08-29T13:39:43.300Z
+date: 2024-11-11T03:25:49.932Z
+updated: 2024-11-18T07:05:26.240Z
 tags:
   - ai video
   - ai youtube
@@ -50,17 +50,28 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -79,8 +90,12 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -90,8 +105,12 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -114,23 +133,17 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +152,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-how-to-record-webcam-video-on-hp-laptops-and-chromebooks-for-2024/"><u>[New] How to Record Webcam Video on HP Laptops and Chromebooks for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-unveiling-the-money-map-a-3-step-guide-for-calculating-your-youtube-income/"><u>[New] In 2024, Unveiling the Money Map A 3-Step Guide for Calculating Your YouTube Income</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-effortless-and-effective-embedding-youtube-in-gslides/"><u>[Updated] 2024 Approved Effortless and Effective - Embedding YouTube in GSlides</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-parallel-screen-data-replay/"><u>[Updated] 2024 Approved Parallel Screen Data Replay</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-step-by-step-process-to-embrace-cc-copyrights/"><u>[Updated] Step-by-Step Process to Embrace CC Copyrights</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-properly-set-up-your-new-ipad-a-step-by-step-guide/"><u>How to Properly Set Up Your New iPad: A Step-by-Step Guide</u></a></li>
+<li><a href="https://win-web3.techidaily.com/is-vmware-vcenter-suitable-for-managing-multiple-esxi-67-or-7-hosts-expert-insights/"><u>Is VMware vCenter Suitable for Managing Multiple ESXi 6.7 or 7 Hosts? Expert Insights</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-copyright-compliance-in-instagrams-musical-world/"><u>Mastering Copyright Compliance in Instagram's Musical World</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-video-success-a-list-of-20-pro-shortcuts/"><u>Mastering Video Success A List of 20 Pro Shortcuts</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-7-insights-on-consumer-returns-of-the-apple-vision-pro-a-deep-dive-into-reddit-discussions/"><u>Top 7 Insights on Consumer Returns of the Apple Vision Pro - A Deep Dive Into Reddit Discussions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unveiling-techniques-to-harvest-gif-images-directly-from-fb/"><u>Unveiling Techniques to Harvest GIF Images Directly From FB</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Teamwork in Video Production, Boosting Channel Size"
-date: 2024-08-28T13:37:44.804Z
-updated: 2024-08-29T13:37:44.804Z
+date: 2024-11-12T09:23:33.332Z
+updated: 2024-11-18T10:08:57.494Z
 tags:
   - ai video
   - ai youtube
@@ -60,24 +60,19 @@ Also, try to find someone whose channel has something in common with yours thema
 
 A good way to find potentially collab partners is to look at your list of subscribers. You already know everyone there likes your channel!
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. How to contact a partner
 
 Sometimes people leave contact info in their video descriptions, but it might be easier to go to the **About** tab on their channel page and check for an email address. Look for a field that says **for business inquiries**, click on **view email address**, and use the CAPTCHA that appears to prove you aren’t a robot.
 
 Reaching out more casually through Twitter DMs, YouTube comments, or Facebook is good too, but you should use those platforms more to build a relationship that could lead to a collab. If someone had never commented on a video of yours before and then commented once just to ask you to collab it’d be hard to believe they were really interested in your channel.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Popular Types of Collab Videos
 
 _[**Gabrielle**](https://www.youtube.com/channel/UC7afFvLLvTiWI97M0jaqgKQ)talks about different types of collabs and how well they work._
@@ -108,9 +103,6 @@ _**[Lauren](https://www.youtube.com/channel/UCx-S6eBuL9SlwNZTHI6P9Bg)** is in To
 
 Sometimes you really want to work together, but geography just won’t bend to your wills. That doesn’t mean you can’t collab. You can always send each other some footage to cut to and make videos together that way. Or, you can do a Google Hangout or Skype chat and record it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Getting the Most Out of Your Collaborations
 
 Usually, you have two reasons for wanting to do a collab; having fun with another YouTuber, and growing your channel. The collab exposes you to their subscribers, who will hopefully decide they like you and subscribe to you too. There are ways of increasing the odds of this happening.
@@ -120,15 +112,23 @@ Commenting on each other’s videos, and responding to viewer comments, is one o
 ![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
 
  What have your experiences with YouTube collaborations been like?
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Use Split-Screen Presets to Create Collab Videos in Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of [split-screen presets](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to put several videos together at the same time.
@@ -136,27 +136,25 @@ _Kitty got the collab! They’re friends now – doesn’t that make you want to
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -165,4 +163,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-gain-traction-on-youtube-surpass-10000-viewer-count-for-affiliate-rewards/"><u>[New] In 2024, Gain Traction on YouTube - Surpass 10,000 Viewer Count for Affiliate Rewards</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/iniature-melodic-maps-actors-in-audio-landscape/"><u>[New] Miniature Melodic Maps Actors in Audio Landscape</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-ultimate-checklist-for-crafting-distinctive-youtube-short-videos-for-2024/"><u>[New] The Ultimate Checklist for Crafting Distinctive YouTube Short Videos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-why-is-there-no-sound-on-twitter-videos-fixes/"><u>[New] Why Is There No Sound on Twitter Videos? | Fixes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-graphic-gaze-decoding-youtubes-factful-17-narrative/"><u>[Updated] In 2024, The Graphic Gaze Decoding YouTube's Factful '17 Narrative</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-which-video-sharing-app-should-i-pick-tiktok-or-youtube-shorts-perspective/"><u>[Updated] In 2024, Which Video-Sharing App Should I Pick? TikTok or YouTube Shorts Perspective</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mobile-mastery-in-thumbnail-creation-for-engaging-youtube-videos/"><u>[Updated] Mobile Mastery in Thumbnail Creation for Engaging YouTube Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-the-editors-toolkit-using-markers-in-professional-editing-for-2024/"><u>[Updated] The Editor's Toolkit Using Markers in Professional Editing for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/detecting-moisture-harm-a-guide-to-the-9-most-common-clues-on-iphones/"><u>Detecting Moisture Harm: A Guide to the 9 Most Common Clues on iPhones</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-install-acer-aspire-5100-drivers-today/"><u>Download and Install Acer Aspire 5100 Drivers Today</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/essential-tips-for-efficient-camera-roll-upload-to-snapchat-for-2024/"><u>Essential Tips for Efficient Camera Roll Upload to Snapchat for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-13-location-by-number-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 13 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-poco-c50-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Poco C50 IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/introducing-5-pioneering-ai-helpers-for-mind-care/"><u>Introducing 5 Pioneering AI Helpers for Mind Care</u></a></li>
+</ul></div>
 

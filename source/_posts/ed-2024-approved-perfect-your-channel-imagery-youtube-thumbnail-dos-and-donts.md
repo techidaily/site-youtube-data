@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Perfect Your Channel Imagery  YouTube Thumbnail Do's & Don'ts\""
-date: 2024-11-04T00:47:50.887Z
-updated: 2024-11-08T00:53:50.592Z
+date: 2024-11-14T22:00:49.764Z
+updated: 2024-11-18T06:36:48.606Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,19 @@ Using patterns for the background of your channel banner can help your channel l
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Should I Use My Face?
 
 Whether you should use your face on your channel banner depends on what your channel is about. If you have a channel focused on beauty, fashion, fitness, or family vlogs then it’s a good idea to include your face. It comes off personable and helps viewers relate to you. If you have a channel that is about something like gaming, tech reviews, or book reviews then it isn’t necessary to include your face because the focus of your content isn’t you as a personality.
@@ -74,22 +87,22 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
 
@@ -123,6 +136,13 @@ YouTubers that use tag lines are using their channel as a platform to carry out 
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How Can I Make My Channel Art Look Good?
 
 #### _Do: Create Consistent Branding_
@@ -143,33 +163,19 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -193,20 +199,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-directed-focus-youtubes-easy-ways-for-smoother-borders/"><u>[New] 2024 Approved Directed Focus YouTube's Easy Ways for Smoother Borders</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-expert-voice-editing-software-for-video-content-makers/"><u>[New] 2024 Approved Expert Voice Editing Software for Video Content Makers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-artistic-science-behind-youtube-live-imagery/"><u>[New] 2024 Approved The Artistic Science Behind YouTube Live Imagery</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-financial-worth-one-million-youtube-eyes/"><u>[New] 2024 Approved The Financial Worth One Million YouTube Eyes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-wealth-wave-of-the-philanthropic-maverick-mr-beast/"><u>[New] 2024 Approved The Wealth Wave of the Philanthropic Maverick, Mr. Beast</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-top-listings-of-youtube-partner-opportunities-and-advertisements/"><u>[New] 2024 Approved Top Listings of YouTube Partner Opportunities and Advertisements</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-essential-tech-5-must-have-streaming-webcams-for-gamers/"><u>[New] In 2024, Essential Tech 5 Must-Have Streaming Webcams for Gamers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-leveraging-advanced-techniques-in-360-video-on-fb-live/"><u>[New] Leveraging Advanced Techniques in 360 Video on FB Live</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-mastering-lol-recording-three-easy-techniques/"><u>[New] Mastering LOL Recording Three Easy Techniques</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-crafting-visual-wonders-home-made-effects-demystified-for-2024/"><u>[Updated] Crafting Visual Wonders Home-Made Effects Demystified for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/cdmacbook/"><u>CDからMacBookへの高品位音楽移行テクニック：上質なミュージックソフトウェア選びと使用法</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-6-proven-ways-to-unlock-vivo-v27-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Vivo V27 Phone When You Forget the Password</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96031812-9781633410558-italian-folk-magic/"><u>Italian Folk Magic | Free Book</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mac-integration-tips-successfully-map-and-access-network-drives/"><u>Mac Integration Tips: Successfully Map and Access Network Drives</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/solutions-to-spy-on-apple-iphone-13-pro-max-with-and-without-jailbreak-drfone-by-drfone-virtual-ios/"><u>Solutions to Spy on Apple iPhone 13 Pro Max with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-audio-mix-mastery-the-essence-of-crossfade/"><u>[New] 2024 Approved Audio Mix Mastery The Essence of Crossfade</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-prime-picks-best-storytelling-channels-fans/"><u>[New] The Prime Picks Best Storytelling Channels Fans</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-eight-high-performing-tablets-for-future-photography-titans/"><u>[Updated] 2024 Approved Eight High-Performing Tablets for Future Photography Titans</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/banish-the-black-screen-annoyance-in-hitman-3-top-fixes-for-your-pc/"><u>Banish the Black Screen Annoyance in Hitman 3 - Top Fixes for Your PC</u></a></li>
+<li><a href="https://common-error.techidaily.com/diagnosing-and-repairing-your-monitors-missing-signal-error/"><u>Diagnosing and Repairing Your Monitor's Missing Signal Error</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-budget-friendly-webinar-strategies-for-youtube/"><u>In 2024, Budget-Friendly Webinar Strategies for YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-enhance-your-profile-with-free-imagery/"><u>In 2024, Enhance Your Profile with Free Imagery</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-enhancing-your-youtube-projects-a-compreayer-of-visual-improvement/"><u>In 2024, Enhancing Your YouTube Projects A Compreayer of Visual Improvement</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-exploring-the-top-10-budget-friendly-youtube-spaces-for-artistry/"><u>In 2024, Exploring the Top 10 Budget-Friendly YouTube Spaces for Artistry</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-find-your-way-to-youtube-studio-a-comprehensive-overview/"><u>In 2024, Find Your Way to YouTube Studio A Comprehensive Overview</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-making-your-channels-subscribe-button-pop/"><u>In 2024, Making Your Channel's Subscribe Button Pop!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-mastering-youtube-video-text-overlay-techniques/"><u>In 2024, Mastering YouTube Video Text Overlay Techniques</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-social-networking-platforms-facebook-twitter-instagram-and-youtube-unveiled/"><u>Top Social Networking Platforms: Facebook, Twitter, Instagram and Youtube Unveiled</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/1728509931336-windows-107/"><u>Windows 10と7における移動中のデータフォルダ同期方法</u></a></li>
 </ul></div>
 

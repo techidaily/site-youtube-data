@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Youth Empowerment  Your Life Story Can Inspire\""
-date: 2024-08-28T13:36:03.594Z
-updated: 2024-08-29T13:36:03.594Z
+date: 2024-11-11T09:08:25.533Z
+updated: 2024-11-18T08:09:09.841Z
 tags:
   - ai video
   - ai youtube
@@ -45,20 +45,28 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
@@ -67,13 +75,17 @@ Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\.  Get Ready With Me Q & A
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
@@ -82,16 +94,17 @@ Behind all their smiles and outrageous on-camera personas, there are a lot of Yo
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ### 9\.  25 Facts About Me Tag
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 10\.  YouTube Live/Webinar
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
@@ -100,9 +113,6 @@ YouTube live videos are probably the best ways to interact and share your story 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -111,14 +121,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +134,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-decoding-the-art-of-youtube-playlist-recalibration-for-2024/"><u>[New] Decoding the Art of YouTube Playlist Recalibration for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-pinpointing-your-place-in-youtubes-varied-landscapes/"><u>[New] In 2024, Pinpointing Your Place in YouTube's Varied Landscapes</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-path-profile-picture-dimensions/"><u>[New] Path Profile Picture Dimensions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ubtitled-freely-top-10-tools-for-youtubes-text-extractors/"><u>[New] Subtitled Freely Top 10 Tools for YouTube's Text Extractors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-charting-the-course-to-youtube-success-top-5-strategies-inside/"><u>[Updated] Charting the Course to YouTube Success – Top 5 Strategies Inside</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-building-on-your-content-a-guide-to-stellar-videography-closures/"><u>[Updated] In 2024, Building on Your Content A Guide to Stellar Videography Closures</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-pinpointing-potential-a-youtube-niche-journey-for-2024/"><u>[Updated] Pinpointing Potential A Youtube Niche Journey for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-exclusive-guide-choosing-among-top-9-free-logo-creators/"><u>2024 Approved Exclusive Guide Choosing Among Top 9 Free Logo Creators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-year-of-infographics-top-social-trends-explored/"><u>2024 Approved The Year of Infographics Top Social Trends Explored</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-understanding-periscope-features-pricing-and-how-to-join/"><u>2024 Approved Understanding Periscope Features, Pricing & How To Join</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/bbilibili1080phd/"><u>高解像度ビデオのダウンロード - B站(Bilibili)から1080pフルHD動画取得手順</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-youtubes-5-second-tales-for-2024/"><u>Decoding YouTube's 5-Second Tales for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/the-ultimate-srt-file-craftsmanship-manual-for-2024/"><u>The Ultimate SRT File Craftsmanship Manual for 2024</u></a></li>
+</ul></div>
 

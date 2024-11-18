@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Art of Inserting Descriptive Commentary in YouTube Videos"
-date: 2024-08-28T13:37:36.850Z
-updated: 2024-08-29T13:37:36.850Z
+date: 2024-11-10T22:11:06.264Z
+updated: 2024-11-17T22:01:00.505Z
 tags:
   - ai video
   - ai youtube
@@ -67,6 +67,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -77,10 +84,30 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -120,20 +147,24 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +173,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/harting-success-navigating-youtube-statistics-with-social-blade-for-2024/"><u>[New] Charting Success Navigating YouTube Statistics with Social Blade for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-climbing-toward-sharper-screen-perceptions/"><u>[New] Climbing Toward Sharper Screen Perceptions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/avigating-youtube-studio-for-effective-video-alterations/"><u>[New] Navigating YouTube Studio for Effective Video Alterations</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-quickscreen-recorder-for-professionals-for-2024/"><u>[New] QuickScreen Recorder for Professionals for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-youtubes-pinnacle-tools-studio-vs-next-gen-beta/"><u>[Updated] 2024 Approved YouTube's Pinnacle Tools Studio Vs. Next-Gen Beta</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-cutting-the-cord-of-creation-how-to-setup-a-youtube-channel-from-phone-to-platform-for-2024/"><u>[Updated] Cutting the Cord of Creation How to Setup a YouTube Channel From Phone to Platform for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-streaming-showdown-best-channels-for-your-audience-for-2024/"><u>[Updated] Streaming Showdown Best Channels for Your Audience for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unveiling-our-exclusive-package-of-free-youtube-adornments-for-2024/"><u>[Updated] Unveiling Our Exclusive Package of Free YouTube Adornments for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-upgrading-your-playlists-for-seamless-integration-from-spotify-to-youtube-music/"><u>2024 Approved Upgrading Your Playlists for Seamless Integration From Spotify to YouTube Music</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-realme-12-5g-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Realme 12 5G in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/enabling-hardware-fixing-usb-not-found-windows-78/"><u>Enabling Hardware: Fixing USB Not Found Windows 7/8</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ce-engagement-learn-to-dim-youtube-video-backgrounds/"><u>Enhance Engagement Learn to Dim YouTube Video Backgrounds</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-best-jest-in-layout-and-edit-suite/"><u>In 2024, Best Jest in Layout & Edit Suite</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-vivo-t2-pro-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Vivo T2 Pro 5G Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/locked-out-of-apple-iphone-14-pro-max-5-ways-to-get-into-a-locked-apple-iphone-14-pro-max-drfone-by-drfone-ios/"><u>Locked Out of Apple iPhone 14 Pro Max? 5 Ways to get into a Locked Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-methods-for-youtube-success-top-8-tools/"><u>Proven Methods for YouTube Success - Top 8 Tools</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-guide-to-viewing-james-bond-films-sequentially/"><u>The Ultimate Guide to Viewing James Bond Films Sequentially</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-rated-laptop-support-structures-insights/"><u>Top Rated Laptop Support Structures - Insights</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Nokia C32? | Dr.fone</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->

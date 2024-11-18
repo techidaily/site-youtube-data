@@ -1,7 +1,7 @@
 ---
 title: "[New] Team Videography Methods for Channel Expansion"
-date: 2024-08-28T13:36:27.203Z
-updated: 2024-08-29T13:36:27.203Z
+date: 2024-11-15T03:35:30.880Z
+updated: 2024-11-18T03:20:13.705Z
 tags:
   - ai video
   - ai youtube
@@ -60,15 +60,19 @@ Also, try to find someone whose channel has something in common with yours thema
 
 A good way to find potentially collab partners is to look at your list of subscribers. You already know everyone there likes your channel!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. How to contact a partner
 
 Sometimes people leave contact info in their video descriptions, but it might be easier to go to the **About** tab on their channel page and check for an email address. Look for a field that says **for business inquiries**, click on **view email address**, and use the CAPTCHA that appears to prove you aren’t a robot.
 
 Reaching out more casually through Twitter DMs, YouTube comments, or Facebook is good too, but you should use those platforms more to build a relationship that could lead to a collab. If someone had never commented on a video of yours before and then commented once just to ask you to collab it’d be hard to believe they were really interested in your channel.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Popular Types of Collab Videos
 
 _[**Gabrielle**](https://www.youtube.com/channel/UC7afFvLLvTiWI97M0jaqgKQ)talks about different types of collabs and how well they work._
@@ -99,9 +103,6 @@ _**[Lauren](https://www.youtube.com/channel/UCx-S6eBuL9SlwNZTHI6P9Bg)** is in To
 
 Sometimes you really want to work together, but geography just won’t bend to your wills. That doesn’t mean you can’t collab. You can always send each other some footage to cut to and make videos together that way. Or, you can do a Google Hangout or Skype chat and record it.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Getting the Most Out of Your Collaborations
 
 Usually, you have two reasons for wanting to do a collab; having fun with another YouTuber, and growing your channel. The collab exposes you to their subscribers, who will hopefully decide they like you and subscribe to you too. There are ways of increasing the odds of this happening.
@@ -111,44 +112,61 @@ Commenting on each other’s videos, and responding to viewer comments, is one o
 ![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
 
  What have your experiences with YouTube collaborations been like?
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Use Split-Screen Presets to Create Collab Videos in Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of [split-screen presets](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to put several videos together at the same time.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,4 +175,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-definitive-guide-to-avoiding-youtube-copyright-issues/"><u>[New] In 2024, The Definitive Guide to Avoiding YouTube Copyright Issues</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unveiling-creative-possibilities-anime-subscribe-buttons-for-your-youtube-channel-filmora/"><u>[Updated] 2024 Approved Unveiling Creative Possibilities Anime Subscribe Buttons for Your YouTube Channel (Filmora)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-winning-at-freefire-top-strategies-and-hashtags-shared/"><u>[Updated] 2024 Approved Winning at FreeFire Top Strategies and Hashtags Shared</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-fresh-inspirations-for-streaming-topics/"><u>[Updated] Fresh Inspirations for Streaming Topics</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-win-11s-best-practices-the-ultimate-guide-to-saving-mov-files/"><u>[Updated] Win 11'S Best Practices The Ultimate Guide to Saving MOV Files</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exciting-joint-ventures-in-the-virtual-metaverse/"><u>2024 Approved Exciting Joint Ventures in the Virtual Metaverse</u></a></li>
+<li><a href="https://win-dash.techidaily.com/amd-graphics-adapter-drivers-free-download-for-windows-users/"><u>AMD Graphics Adapter Drivers - Free Download for Windows Users</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/essential-gear-for-effective-remote-podcast-recording/"><u>Essential Gear for Effective Remote Podcast Recording</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/get-the-scoop-on-apples-upcoming-auto-venture-latest-news-flurry-insider-price-guesses-and-in-depth-vehicle-specs/"><u>Get the Scoop on Apple's Upcoming Auto Venture: Latest News Flurry, Insider Price Guesses & In-Depth Vehicle Specs</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c12-pro-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Nokia C12 Pro Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/infusing-immersive-experiences-in-ar-via-customized-lut-application-for-2024/"><u>Infusing Immersive Experiences in AR via Customized LUT Application for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-headphone-detection-problems-on-windows-10-systems-for-perfect-sound-output/"><u>Resolving Headphone Detection Problems on Windows 10 Systems for Perfect Sound Output</u></a></li>
+</ul></div>
 

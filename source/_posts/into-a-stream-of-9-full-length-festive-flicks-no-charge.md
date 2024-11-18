@@ -1,7 +1,7 @@
 ---
 title: "\"Dive Into a Stream of 9 Full-Length Festive Flicks - No Charge\""
-date: 2024-08-28T13:37:32.919Z
-updated: 2024-08-29T13:37:32.919Z
+date: 2024-11-10T19:57:55.702Z
+updated: 2024-11-18T08:59:04.405Z
 tags:
   - ai video
   - ai youtube
@@ -35,40 +35,52 @@ The Nutcracker is a holiday classic that many people seek out every year on the 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
@@ -80,32 +92,17 @@ In this recreation of the original film from 1947 this shortened full-length ver
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,4 +111,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/voiding-the-crowd-stand-out-with-unique-youtube-persona-for-2024/"><u>[New] Avoiding the Crowd Stand Out with Unique YouTube Persona for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ow-to-convert-youtube-videos-to-mp3-songs-on-mac-2023-update-for-2024/"><u>[New] How to Convert YouTube Videos to MP3 Songs on Mac-2023 Update for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-a-comprehensive-tutorial-for-youtube-customization-tools/"><u>[New] In 2024, A Comprehensive Tutorial for YouTube Customization Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-elevate-your-contents-visibility-with-these-gadgets/"><u>[Updated] 2024 Approved Elevate Your Content's Visibility with These Gadgets</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-smooth-path-to-crafting-unique-video-shorts-thumbnail-credits/"><u>[Updated] 2024 Approved Smooth Path to Crafting Unique Video Shorts Thumbnail Credits</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-bring-out-the-vibes-of-your-channel-top-10-online-artists-unite/"><u>[Updated] Bring Out the Vibes of Your Channel Top 10 Online Artists Unite</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-essential-guide-to-aiseesofts-screencasting-features-for-2024/"><u>[Updated] Essential Guide to Aiseesoft's Screencasting Features for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-ultimate-microphone-list-for-best-asmr-sound/"><u>[Updated] In 2024, The Ultimate Microphone List for Best ASMR Sound</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-transform-your-playtime-mastering-ps4-live-recordings-with-obs/"><u>[Updated] In 2024, Transform Your Playtime Mastering PS4 Live Recordings with OBS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-maximize-your-content-interaction/"><u>[Updated] Maximize Your Content Interaction</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-obs-strategy-for-high-quality-skype-screens-for-2024/"><u>[Updated] The OBS Strategy for High-Quality Skype Screens for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-mastering-the-art-of-youtube-viewership-6-proven-methods/"><u>2024 Approved Mastering the Art of YouTube Viewership 6 Proven Methods</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-infinix-smart-7-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-silence-and-speed-a-comprehensive-review-of-the-levelplay-combat-air-ca4-cpu-cooler/"><u>Mastering Silence and Speed: A Comprehensive Review of the Levelplay Combat Air CA4 CPU Cooler</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-infinix-note-30-vip-racing-edition-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Infinix Note 30 VIP Racing Edition Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/revive-your-dead-usb-to-display-link-steps-to-get-that-hdmi-connection-up-and-running/"><u>Revive Your Dead USB to Display Link: Steps to Get That HDMI Connection Up and Running</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/streamlining-your-setup-ensuring-microsoft-wireless-display-adapter-works-perfectly-with-windows-11/"><u>Streamlining Your Setup: Ensuring Microsoft Wireless Display Adapter Works Perfectly with Windows 11</u></a></li>
+</ul></div>
 
