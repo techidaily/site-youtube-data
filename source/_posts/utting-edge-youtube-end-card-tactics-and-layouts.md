@@ -1,7 +1,7 @@
 ---
 title: "[New] Cutting Edge Youtube End Card Tactics & Layouts"
-date: 2024-11-13T02:03:58.353Z
-updated: 2024-11-18T10:48:02.507Z
+date: 2024-11-23T16:18:49.211Z
+updated: 2024-11-27T18:27:59.890Z
 tags:
   - ai video
   - ai youtube
@@ -37,9 +37,17 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Why You Need to Add End Screens and Cards to Videos
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How To Use Youtube End Screen
 
@@ -61,16 +69,7 @@ Do you wish to add YouTube end screen to your video? Just follow the steps and g
 **Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How To Use Youtube Cards
@@ -90,10 +89,7 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * **Link**: links to a website which compliments whatever content is in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4 Tips for Using YouTube Cards
@@ -107,16 +103,7 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -124,13 +111,6 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -153,22 +133,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-maximize-your-content-impact-with-insights-from-social-blade-on-youtube/"><u>[New] 2024 Approved Maximize Your Content Impact with Insights From Social Blade on YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/irect-to-mp3-ease-select-10-video-to-audio-devices-for-2024/"><u>[New] Direct to Mp3 Ease Select 10 Video-to-Audio Devices for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nhance-your-online-skills-a-guide-to-youtube-editing-via-sony-vegas-for-2024/"><u>[New] Enhance Your Online Skills A Guide to YouTube Editing via Sony Vegas for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-optimizing-zoom-meetings-a-guide-to-format-upgrading-for-2024/"><u>[New] Optimizing Zoom Meetings A Guide to Format Upgrading for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/uick-tricks-randomizing-youtube-videos-on-all-devices-for-2024/"><u>[New] Quick Tricks Randomizing YouTube Videos on All Devices for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-evaluating-recmeisters-innovation-in-video-capture-for-2024/"><u>[Updated] Evaluating Recmeister's Innovation in Video Capture for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-mp3-upload-process-stream-convert-and-share-on-youtube-quickly/"><u>[Updated] In 2024, MP3 Upload Process Stream, Convert & Share on YouTube Quickly</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-youtubes-pinnacle-tools-studio-vs-next-gen-beta/"><u>[Updated] In 2024, YouTube's Pinnacle Tools Studio Vs. Next-Gen Beta</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ing-prime-valorant-video-thumbnails-on-youtube/"><u>Crafting Prime Valorant Video Thumbnails on YouTube</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/filmmaking-for-the-future-adapting-videos-vertically-for-instagram-for-2024/"><u>Filmmaking for the Future Adapting Videos Vertically for Instagram for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-infinix-note-30i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Nokia C12 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-quickedit-videotool/"><u>In 2024, QuickEdit VideoTool</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-unleash-creativity-with-these-8-mirrorless-cams-for-video/"><u>In 2024, Unleash Creativity with These 8 Mirrorless Cams For Video</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-next-gen-nostalgic-console-releases/"><u>Leading Next-Gen Nostalgic Console Releases</u></a></li>
-<li><a href="https://common-error.techidaily.com/the-looming-departure-of-unreal-in-the-wake-of-d3d-loss/"><u>The Looming Departure of Unreal in the Wake of D3D Loss</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-elevate-your-audio-2-fade-infade-out-methods-in-fcp-for-2024/"><u>Updated Elevate Your Audio 2 Fade-In/Fade-Out Methods in FCP for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-stepwise-strategies-for-enhancing-yt-game-coverage-through-effective-hashing/"><u>[New] 2024 Approved Stepwise Strategies for Enhancing YT Game Coverage Through Effective Hashing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/an-instant-subscription-lead-to-higher-watch-time-in-2024/"><u>[New] Can Instant Subscription Lead to Higher Watch Time, In 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ptimizing-income-through-youtube-short-tutorials-for-2024/"><u>[New] Optimizing Income Through YouTube Short Tutorials for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-end-screen-elegance-free-guides-to-upgrade-your-videos/"><u>[Updated] 2024 Approved End-Screen Elegance - Free Guides to Upgrade Your Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-achieve-the-perfect-look-youtubes-guide-to-video-aspect-ratios-for-2024/"><u>[Updated] Achieve the Perfect Look YouTube's Guide to Video Aspect Ratios for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-ascending-with-asmr-top-strategies-for-video-creation-for-2024/"><u>[Updated] Ascending with ASMR Top Strategies for Video Creation for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-closing-your-vlog-right-top-6-free-youtube-outro-tools-for-2024/"><u>[Updated] Closing Your Vlog Right Top 6 Free YouTube Outro Tools for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-enhance-visibility-the-power-of-customized-youtube-templates-for-2024/"><u>[Updated] Enhance Visibility The Power of Customized YouTube Templates for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-gastronomic-genius-ideal-culinary-network-name-strategies/"><u>[Updated] Gastronomic Genius Ideal Culinary Network Name Strategies</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-melodic-mastery-mac-studio-tips/"><u>[Updated] In 2024, Melodic Mastery Mac Studio Tips</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-the-ultimate-guide-to-sims-4-gameplay-capture/"><u>[Updated] In 2024, The Ultimate Guide to Sims 4 Gameplay Capture</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-amusing-aesthetics-leading-free-onlineiosandroid-photo-editing/"><u>2024 Approved Amusing Aesthetics Leading Free Online/iOS/Android Photo Editing</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-step-by-step-ios-download-episodes-like-a-pro/"><u>2024 Approved Step-by-Step iOS Download Episodes Like a Pro</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-5-best-ways-to-make-money-on-youtube-shorts-today/"><u>2024 Approved The 5 Best Ways to Make Money on YouTube Shorts Today</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/could-the-end-be-near-for-roku-streambar-pro/"><u>Could the End Be Near for Roku StreamBar Pro?</u></a></li>
+<li><a href="https://driver-error.techidaily.com/effortless-use-of-win11/"><u>Effortless Use of Win11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-reno-8t-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo Reno 8T 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-unlock-the-power-of-your-youtube-brand-for-growth-in-subs/"><u>In 2024, Unlock the Power of Your YouTube Brand for Growth in Subs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/be-view-bots-and-other-easy-hacks-to-increase-views/"><u>YouTube View Bots and Other Easy Hacks to Increase Views</u></a></li>
 </ul></div>
 

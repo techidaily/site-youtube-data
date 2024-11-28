@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting the Perfect Close  YouTube's Free End Screen Tools\""
-date: 2024-08-28T13:26:15.109Z
-updated: 2024-08-29T13:26:15.109Z
+date: 2024-11-25T23:30:29.269Z
+updated: 2024-11-28T05:07:09.134Z
 tags:
   - ai video
   - ai youtube
@@ -79,9 +79,17 @@ Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
@@ -95,15 +103,27 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
@@ -112,6 +132,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
@@ -129,14 +153,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,8 +166,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/void-ad-dollars-boost-your-view-count-for-free-for-2024/"><u>[New] Avoid Ad Dollars – Boost Your View Count for Free for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-maximizing-viewership-igtv-video-scaling-hacks/"><u>[New] Maximizing Viewership IGTV Video Scaling Hacks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-premier-toolkit-7-stealth-film-apps/"><u>[New] Premier Toolkit 7 Stealth Film Apps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/natch-free-media-treasures-from-top-4-online-creators/"><u>[New] Snatch Free Media Treasures From Top 4 Online Creators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-pivoting-to-passive-income-the-youtube-expedition-without-ads/"><u>[Updated] 2024 Approved Pivoting to Passive Income The YouTube Expedition Without Ads</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-channel-cash-flow-harnessing-youtube-ad-revenue-anywhere/"><u>[Updated] Channel Cash Flow Harnessing YouTube Ad Revenue Anywhere</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-makeup-mavens-handbook-youtube-edition/"><u>[Updated] In 2024, The Makeup Maven’s Handbook YouTube Edition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-youtube-video-editor-guide-and-review/"><u>2024 Approved YouTube Video Editor Guide and Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazon-fire-hd-8-8th-gen-review/"><u>Amazon Fire HD 8 (8Th Gen) Review</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/t-ideas-effective-lighting-in-vlogging-for-2024/"><u>Bright Ideas Effective Lighting in Vlogging for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/club-vibes-best-dj-template-video-selections-for-2024/"><u>Club Vibes Best DJ Template Video Selections for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tly-infuse-youtube-music-into-any-imovie-project-for-2024/"><u>Directly Infuse YouTube Music Into Any iMovie Project for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-unresponsive-call-issues-a-guide-for-your-samsung-galaxy-watch/"><u>Solving Unresponsive Call Issues: A Guide for Your Samsung Galaxy Watch</u></a></li>
+<li><a href="https://fox-within.techidaily.com/top-strategies-for-optimizing-audio-visual-conference-recording/"><u>Top Strategies for Optimizing Audio-Visual Conference Recording</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/warriors-epic-valhallas-endgame-for-2024/"><u>Warriors' Epic Valhalla's Endgame for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

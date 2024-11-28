@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Beneath the Spotlight  Top YouTube Events After VidCon\""
-date: 2024-08-28T13:34:24.016Z
-updated: 2024-08-29T13:34:24.016Z
+date: 2024-11-22T22:40:31.722Z
+updated: 2024-11-28T02:54:57.028Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 1. **[VidCon](http://vidcon.com/)**
 
 **VidCon US:** June (Anaheim, California)
@@ -80,6 +84,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
 Playlist Live prides itself on having ‘non-stop interactive activities.’ These include chances to meet your favorite creators on the Saturday and Sunday of the event. Which meetups you get to attend are determined by first-come-first-serve online signup.
@@ -113,6 +121,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 **London, UK:** November
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
@@ -149,6 +161,10 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -188,6 +204,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -218,14 +238,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,8 +251,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/rofessionalizing-slides-with-youtube-videos-for-2024/"><u>[New] Professionalizing Slides with YouTube Videos for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-techniques-for-youtube-video-format-switching/"><u>[New] Ultimate Techniques for YouTube Video Format Switching</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ealthiest-webcast-wonders-for-2024/"><u>[New] Wealthiest Webcast Wonders for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-social-media-gold-rush-prime-hashes-for-viewership/"><u>[Updated] 2024 Approved Social Media Gold Rush Prime Hashes for Viewership</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-video-editing-fixing-youtube-short-fails/"><u>[Updated] 2024 Approved Video Editing Fixing YouTube Short Fails</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-free-outro-scene-creation-made-simple/"><u>[Updated] Free Outro Scene Creation Made Simple</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-decoding-video-thread-embellishments/"><u>[Updated] In 2024, Decoding Video Thread Embellishments</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-navigating-the-social-sea-identifying-unfollowers-on-instagram-for-2024/"><u>[Updated] Navigating the Social Sea Identifying Unfollowers on Instagram for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-subtitles-in-a-click-our-free-top-10-converter-picks-for-2024/"><u>[Updated] Subtitles in a Click - Our Free, Top 10 Converter Picks for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-what-financial-gain-stems-from-one-million-youtube-eyeballs/"><u>[Updated] What Financial Gain Stems From One Million YouTube Eyeballs?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-swift-introduction-the-art-of-green-screening/"><u>2024 Approved Swift Introduction The Art of Green Screening</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unlock-viewers-essential-guide-to-fantastic-template-based-yt-desc-writing/"><u>2024 Approved Unlock Viewers Essential Guide to Fantastic Template-Based YT Desc Writing</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-fixes-to-solve-apple-iphone-7-plus-randomly-asking-for-apple-id-password-drfone-by-drfone-ios/"><u>Complete Fixes To Solve Apple iPhone 7 Plus Randomly Asking for Apple ID Password | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-photos-after-note-30-pro-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Note 30 Pro has been deleted.</u></a></li>
+<li><a href="https://win-answers.techidaily.com/warzone-optimization-101-enhancing-stutter-free-play-and-faster-frame-rates-for-gamers/"><u>Warzone Optimization 101: Enhancing Stutter-Free Play & Faster Frame Rates for Gamers</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->

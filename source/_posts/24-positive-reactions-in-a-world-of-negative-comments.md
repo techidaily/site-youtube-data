@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Positive Reactions in a World of Negative Comments"
-date: 2024-08-28T13:33:39.821Z
-updated: 2024-08-29T13:33:39.821Z
+date: 2024-11-22T17:59:40.409Z
+updated: 2024-11-28T01:59:38.110Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/943166f05e826acb5eb0097146d69c366fc0ed75a
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/943166f05e826acb5eb0097146d69c366fc0ed75a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/xpressive-commentary-utilizing-emojis-on-youtube-for-2024/"><u>[New] Expressive Commentary Utilizing Emojis on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-mastering-youtube-studio-ultimate-video-edits-techniques/"><u>[New] In 2024, Mastering YouTube Studio Ultimate Video Edits Techniques</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-titans-of-tutorials-youtube-leaders/"><u>[New] In 2024, The Titans of Tutorials YouTube Leaders</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-unlock-potential-empowered-channel-expansion-via-youtube-insights/"><u>[New] In 2024, Unlock Potential Empowered Channel Expansion via YouTube Insights</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-perfecting-onscreen-image-clarity-and-detail/"><u>[New] Perfecting Onscreen Image Clarity and Detail</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-decoding-the-mystery-insider-knowledge-on-story-watchers/"><u>[Updated] Decoding the Mystery Insider Knowledge on Story Watchers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-master-your-minds-library-utilize-mematic/"><u>[Updated] Master Your Mind's Library - Utilize Mematic</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-structured-approach-to-managing-youtube-videos-a-complete-watch-later-system/"><u>[Updated] Structured Approach to Managing YouTube Videos A Complete Watch Later System</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-proven-strategies-building-time-lapses-using-samsung-cameras/"><u>2024 Approved Proven Strategies Building Time-Lapses Using Samsung Cameras</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-cropping-photos-why-does-imovie-adjust-video-sizes/"><u>In 2024, Cropping Photos Why Does iMovie Adjust Video Sizes?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-recording-sims-4-games-a-complete-beginners-guide/"><u>In 2024, Recording Sims 4 Games A Complete Beginner's Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/premium-sound-on-a-dime-top-value-asmr-gear-uncovered-here-for-2024/"><u>Premium Sound on a Dime Top Value ASMR Gear Uncovered Here for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"Optimizing YouTube Closures  A Comprehensive Guide to Crafting Effective End Screens and Cards\""
-date: 2024-11-15T05:16:25.156Z
-updated: 2024-11-18T04:40:05.497Z
+date: 2024-11-24T23:57:49.397Z
+updated: 2024-11-27T19:39:26.960Z
 tags:
   - ai video
   - ai youtube
@@ -37,21 +37,16 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Why You Need to Add End Screens and Cards to Videos
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How To Use Youtube End Screen
@@ -74,10 +69,7 @@ Do you wish to add YouTube end screen to your video? Just follow the steps and g
 **Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How To Use Youtube Cards
@@ -89,19 +81,16 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Choose the cards type you want to make on "Add Card" drop down menu.
 * Click “create” button. Select the timeline. In the end, apply.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### The types of YouTube cards
 
 * **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
 * **Channel**: promote another YouTube channel, one of the most common methods to collaborate with other YouTubers
 * **Poll**: Encourage viewers to participate in a poll (vote)
 * **Link**: links to a website which compliments whatever content is in the video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4 Tips for Using YouTube Cards
 
@@ -120,10 +109,7 @@ Now, that you are aware how to add YouTube end screen to your video, make use of
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -147,24 +133,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-infographic-dji-mavic-air-vs-dji-spark-a-gamer-changer-again/"><u>[New] 2024 Approved [Infographic] DJI Mavic Air Vs. DJI Spark - A Gamer Changer Again?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-the-roadmap-to-creating-successful-youtube-collaborations/"><u>[New] In 2024, The Roadmap to Creating Successful YouTube Collaborations</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-ethical-practices-for-accumulating-over-a-million-video-engagements/"><u>[Updated] Ethical Practices for Accumulating Over A Million Video Engagements</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-from-chat-room-to-global-stage-broadcast-google-meet-on-youtube/"><u>[Updated] From Chat Room to Global Stage Broadcast Google Meet on YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-maximizing-vids-for-cash-comparing-dm-and-yo-strategies/"><u>[Updated] In 2024, Maximizing Vids for Cash Comparing Dm & Yo Strategies</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-pulse-picking-playbacks-character-beats-unveiled/"><u>[Updated] In 2024, Pulse-Picking Playbacks Character Beats Unveiled</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-monetary-map-mr-beasts-financials-uncovered/"><u>[Updated] In 2024, The Monetary Map Mr. Beast’s Financials Uncovered</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unlock-seo-success-precision-crafted-video-titles-and-tags/"><u>[Updated] In 2024, Unlock SEO Success Precision-Crafted Video Titles and Tags</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-insta-flip-fundamentals-understanding-video-angles-for-max-impact/"><u>[Updated] Insta-Flip Fundamentals Understanding Video Angles for Max Impact</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-streaming-made-simple-convert-and-broadcast-mp3-songs-online/"><u>[Updated] Streaming Made Simple Convert and Broadcast MP3 Songs Online</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-samsung-galaxy-a25-5g-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Samsung Galaxy A25 5G to Roku | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/1723862810878-experience-ultimate-gaming-with-alienwares-360-hz-oled-monitor-scores-high-and-costs-low/"><u>Experience Ultimate Gaming with Alienware’s 360 Hz OLED Monitor - Scores High and Costs Low!</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-nokia-c300-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Nokia C300 Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-download-kinemaster-for-macstep-by-step-guide/"><u>In 2024, Download KineMaster for MacStep-by-Step Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Infinix Note 30 | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/screen-play-perfect-apples-no1-top-8-movie-app-guide/"><u>Screen Play Perfect Apple's No.1, Top 8 Movie App Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/icks-11-affordable-innovative-yt-moniker-generators/"><u>Top Picks 11 Affordable, Innovative YT Moniker Generators</u></a></li>
-<li><a href="https://win-blog.techidaily.com/transforma-archivos-ogg-directamente-a-mp3-sin-costo-con-movavi/"><u>Transforma Archivos OGG Directamente a MP3 Sin Costo Con Movavi</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-oneplus-ace-2v-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends OnePlus Ace 2V without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ite-sized-beatstories-role-and-tune-fusion-for-2024/"><u>[New] Bite-Sized Beatstories Role & Tune Fusion for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-embed-youtube-in-google-slides-presentations-for-2024/"><u>[New] How to Embed YouTube in Google Slides Presentations for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-kickstart-your-youtube-journey-with-the-best-tools/"><u>[New] In 2024, Kickstart Your YouTube Journey with the Best Tools</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-top-5-factors-to-master-when-using-tiktok-web-mac/"><u>[New] In 2024, Top 5 Factors to Master When Using TikTok Web (Mac)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-chill-vibes-current-hits-to-match-your-yt-short-tunes/"><u>[Updated] In 2024, Chill Vibes Current Hits to Match Your YT Short Tunes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-master-your-path-to-success-with-youtubes-keywords-guide/"><u>[Updated] Master Your Path to Success with YouTube's Keywords Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-sifting-through-the-sands-of-youtube-conversations/"><u>[Updated] Sifting Through the Sands of YouTube Conversations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-streamline-your-income-youtubes-new-rules/"><u>[Updated] Streamline Your Income YouTube's New Rules</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-craft-your-story-aspect-ratios-for-powerful-yt-thumbnails/"><u>2024 Approved Craft Your Story Aspect Ratios for Powerful YT Thumbnails</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-haute-makeup-techniques-step-by-step-youtube-guide/"><u>2024 Approved Haute Makeup Techniques Step-by-Step YouTube Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-utilizing-royalty-free-beats-in-your-youtube-clips/"><u>2024 Approved Utilizing Royalty-Free Beats in Your YouTube Clips</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/construct-your-dreams-with-dynamic-time-lapses-on-a-hero5-for-2024/"><u>Construct Your Dreams with Dynamic Time-Lapses on a Hero5 for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/dissection-of-goofy-quest-the-videotape-perspective-for-2024/"><u>Dissection of 'Goofy Quest' – The Videotape Perspective for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/essential-driver-updates-and-downloads-for-optimizing-your-lenovo-t420-on-windows/"><u>Essential Driver Updates and Downloads for Optimizing Your Lenovo T420 on Windows</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-restore-wi-fi-connectivity-on-your-non-responsive-ipad/"><u>How to Restore Wi-Fi Connectivity on Your Non-Responsive iPad</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-motorola-edge-40-phone-forgot-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Motorola Edge 40 Phone Forgot Password</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/mastering-webcam-recording-for-slideshows-for-2024/"><u>Mastering Webcam Recording for Slideshows for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/steps-to-upgrade-your-intel-hd-graphics-5500-drivers/"><u>Steps to Upgrade Your Intel HD Graphics 5500 Drivers</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-next-big-thing-in-music-streaming-how-apples-new-feature-is-set-to-transform-spotify-playlist-integration-exclusive-zdnet-report/"><u>The Next Big Thing in Music Streaming: How Apple's New Feature Is Set to Transform Spotify Playlist Integration | Exclusive ZDNet Report</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Rising Stars in Digital Domain for 2024"
-date: 2024-11-17T00:05:47.957Z
-updated: 2024-11-18T08:24:40.217Z
+date: 2024-11-21T03:01:49.022Z
+updated: 2024-11-27T17:50:46.021Z
 tags:
   - ai video
   - ai youtube
@@ -65,10 +65,7 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Post Cards
@@ -79,37 +76,35 @@ One of the major benefits of attending this summit would have been networking wi
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _thinknoodles wearing his YouTube slippers._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -119,14 +114,11 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,20 +141,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ow-cost-cameras-that-dont-compromise-quality/"><u>[New] Low-Cost Cameras That Don't Compromise Quality</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-mastering-quick-video-pace-adjustments-on-youtube-for-2024/"><u>[Updated] Mastering Quick Video Pace Adjustments on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-youtube-visuals-perfecting-banners-and-thumbnails-for-2024/"><u>[Updated] YouTube Visuals Perfecting Banners and Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-streamline-your-tv-with-youtube-video-loops/"><u>2024 Approved Streamline Your TV with YouTube Video Loops</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-three-easy-ways-to-harvest-youtubes-default-iconography/"><u>2024 Approved Three Easy Ways to Harvest Youtube's Default Iconography</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/core-framework-principles-for-engaging-online-promotions-for-2024/"><u>Core Framework Principles for Engaging Online Promotions for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/exclusive-roundup-apple-unveils-new-lineup-with-mini-led-ipad-pro-and-enhanced-apple-pencil-zdnet/"><u>Exclusive Roundup: Apple Unveils New Lineup with Mini LED iPad Pro and Enhanced Apple Pencil | ZDNet</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/filmmakers-choice-best-windows-software-for-pro-videos/"><u>Filmmaker's Choice Best Windows Software For Pro Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/work-developing-transformative-lifestyle-broadcasts-for-2024/"><u>Framework Developing Transformative Lifestyle Broadcasts for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-nubia-z50-ultra-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Nubia Z50 Ultra without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Gionee F3 Pro? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-save-money-and-time-creating-engaging-youtube-intros-without-paying/"><u>In 2024, Save Money & Time Creating Engaging YouTube Intros Without Paying</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/in-depth-reviews-and-comparisons-by-tom-for-the-tech-enthusiast/"><u>In-Depth Reviews & Comparisons by Tom - For the Tech Enthusiast</u></a></li>
-<li><a href="https://techidaily.com/top-ways-to-unlock-iphone-se-screen-lock-by-drfone-ios-unlock-ios-unlock/"><u>Top ways to unlock iPhone SE screen lock</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-conquer-broadcasting-unite-obs-and-streamlabs-for-mac/"><u>[New] In 2024, Conquer Broadcasting Unite OBS & Streamlabs for Mac</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-ultimate-game-hub-a-thousand-channels-for-gamers/"><u>[New] In 2024, Ultimate Game Hub A Thousand Channels for Gamers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-nurturing-natural-light-within-domestic-spaces-for-2024/"><u>[New] Nurturing Natural Light Within Domestic Spaces for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-crafting-a-music-career-15-essential-video-tutorials-for-artists/"><u>[Updated] In 2024, Crafting a Music Career 15 Essential Video Tutorials for Artists</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-social-star-search-leading-view-counts-on-youtube/"><u>[Updated] In 2024, Social Star Search Leading View Counts on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-youtube-snippet-income-breakdown-whats-your-profit-share/"><u>[Updated] In 2024, YouTube Snippet Income Breakdown What's Your Profit Share?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtube-creator-studio-vs-youtube-studio-beta-which-one-is-better-for-2024/"><u>[Updated] YouTube Creator Studio Vs. YouTube Studio (Beta) Which One Is Better for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-grasp-the-art-of-steadiness-in-photography/"><u>2024 Approved Grasp the Art of Steadiness in Photography</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/t-pathway-transferring-youtube-content-to-dailymotion/"><u>Direct Pathway Transferring YouTube Content to Dailymotion</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/mobile-downloader-the-ultimate-apps-for-video-buffs/"><u>Free Mobile Downloader The Ultimate Apps for Video Buffs</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Realme 12+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Vivo Y100i? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-latest-guide-on-ipad-23-and-iphone-15-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Latest Guide on iPad 2/3 and iPhone 15 iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-the-ultimate-list-top-10-free-webm-video-editors-you-need-to-try/"><u>New 2024 Approved The Ultimate List Top 10 Free WebM Video Editors You Need to Try</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-flv-video-editing-on-a-shoestring-best-free-options/"><u>New In 2024, FLV Video Editing on a Shoestring Best Free Options</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/premiere-selection-of-virtual-gaming-essentials/"><u>Premiere Selection of Virtual Gaming Essentials</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/8-real-world-video-promoters-for-success-for-2024/"><u>Rank 8 Real-World Video Promoters for Success for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Break the Ice - How to Make a Hit YouTube Reaction in Just 15 Minutes or Less\""
-date: 2024-11-10T22:42:04.146Z
-updated: 2024-11-18T04:42:43.805Z
+date: 2024-11-24T21:26:25.103Z
+updated: 2024-11-27T16:10:56.635Z
 tags:
   - ai video
   - ai youtube
@@ -37,18 +37,15 @@ The process of **making a YouTube reaction video** is not overly technical, alth
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Make a Reaction Video for Your YouTube Channel? \[3 Ways\]
 
 Using the footage without the consent of the copyright owner is punishable by the law, which means that you can only include the footage in a reaction video if you have the owner’s consent. Consequently, the selection of videos you can comment on is going to be limited, since it is entirely up to the creator of the video if they are going to give you permission to use their footage in your reaction video.
 
 You can use the following video editing techniques, once you have access to the video you would like to comment on.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 1: Making a reaction video with the Picture-in-Picture feature in Filmora
 
@@ -64,13 +61,6 @@ If you would like to change the on-screen position of the overlay clip, you shou
 
 ![Create reaction video with Filmora Picture in Picture feature ](https://images.wondershare.com/filmora/article-images/adjust-reaction-video-size-position.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Filmora offers more than sixty motion effects, hundreds of transitions, and visual effects that can make your reaction video more visually appealing to the audience.
 
 ![Filmora  compositing with Blending modes ](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
@@ -85,13 +75,6 @@ Besides the Picture-in-Picture option, Filmora also enables you to [play two or 
 
 ![create reaction video with Filmora  Split Screen Templates](https://images.wondershare.com/filmora/article-images/add-split-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Afterward, you should drag the video clips from the Media tab and drop them onto the section of the preview window where you want them to be located. Keep in mind that you cannot add more than six videos to a split-screen template.
 
 ![Filmora  Edit Reaction Video with Split Screen Video](https://images.wondershare.com/filmora/article-images/reaction-video-advanced-split-screen-edit.jpg)
@@ -104,13 +87,6 @@ Check the details about [How to make a split-screen video](https://tools.techida
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 3: Create A YouTube Reaction Video with AI Portrait
 
 With the human segmentation effect in AI Portrait, you can now blend the reaction video in a more natural way. The human segmentation effect will isolate people from the background, you can use any background in the video.
@@ -119,20 +95,21 @@ Note: You can use this feature after version after V 10.5 for Windows, and V 10.
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 1:** Import the videos to the media library, and then drag the background video to the first video track, and the reaction video to the track above.
 
 ![import reaction videos to Filmora](https://images.wondershare.com/filmora/article-images/import-reaction-videos-to-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2**: Go to the Effects tab at the top, and click the AI Portrait category, and then you will see many effects such as Human Segmentation, Human Pixelate, Human Noise, and lighting flash. Here, drag and drop the Human segmentation effect to the reaction video.
 
 ![make reaction video: remove video background](https://images.wondershare.com/filmora/article-images/remove-video-background-reaction-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3**: Select the reaction video in the timeline, and then adjust its size and position by dragging it on the preview window. See, the reaction video is fine blended with the background video.
 
@@ -142,7 +119,15 @@ Note: You can use this feature after version after V 10.5 for Windows, and V 10.
 
 ![add neon flash effects to reaction video](https://images.wondershare.com/filmora/article-images/add-neon-flash-effects-to-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can find out more details about using the [AI Portrait effect to make a reaction video](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Avoid Copyright Infringements While Making a YouTube Reaction Video
 
@@ -163,10 +148,7 @@ Anyone can master the technical aspects of making a reaction video, but the topi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -190,22 +172,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-drive-engagement-with-free-tools-crafting-powerful-fb-ad-videos/"><u>[New] Drive Engagement with FREE Tools Crafting Powerful FB Ad Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/rom-videos-to-vibrant-gifs-youtube-conversion-techniques/"><u>[New] From Videos to Vibrant GIFs YouTube Conversion Techniques</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-decoding-the-visual-language-of-live-videos-on-youtube/"><u>[New] In 2024, Decoding the Visual Language of Live Videos on YouTube</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-peaceful-playtime-smartphones-slow-puzzles-for-2024/"><u>[New] Peaceful Playtime Smartphone's Slow Puzzles for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/oddler-tycoon-ryan-kaji-and-the-wealthy-web-world-for-2024/"><u>[New] Toddler Tycoon Ryan Kaji and the Wealthy Web World for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-top-tier-strategies-for-flawless-srt-file-integration-on-vero-and-tumblr-for-2024/"><u>[New] Top-Tier Strategies for Flawless SRT File Integration on Vero & Tumblr for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-how-to-make-your-own-youtube-closures-without-spending/"><u>[Updated] 2024 Approved How to Make Your Own YouTube Closures Without Spending</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-reducing-recording-ambiance-free-methods-and-pros/"><u>[Updated] 2024 Approved Reducing Recording Ambiance Free Methods and Pros</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-detailed-review-on-vlcs-screenshotting/"><u>[Updated] Detailed Review on VLC's Screenshotting</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-strategies-for-maximizing-video-impact-while-staying-in-cc-zone/"><u>[Updated] Strategies for Maximizing Video Impact While Staying in CC Zone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-the-ultimate-playlist-of-timeless-anime-themes/"><u>[Updated] The Ultimate Playlist of Timeless Anime Themes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/atic-evolution-the-best-youtube-guides-for-new-filmmakers/"><u>Cinematic Evolution The Best YouTube Guides for New Filmmakers</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/digiarty-winx-dvd-official-website-your-trusted-source-for-secure-disk-management/"><u>Digiarty WinX DVD Official Website - Your Trusted Source for Secure Disk Management</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/expert-advice-correcting-problems-with-tozo-t6-application-on-windows-11/"><u>Expert Advice: Correcting Problems with Tozo T6 Application on Windows 11</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nt-youtube-spam-channel-blocking-guide-for-all-platforms/"><u>Prevent Youtube Spam Channel Blocking Guide for All Platforms</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/twriting-mastery-elevate-your-youtube-channels-content-quality/"><u>Scriptwriting Mastery Elevate Your YouTube Channel's Content Quality</u></a></li>
-<li><a href="https://win11.techidaily.com/trouble-with-snipit-try-these-top-tips-for-repairing/"><u>Trouble with SnipIt? Try These Top Tips for Repairing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ulinary-kings-and-queens-youtube-food-experts-for-2024/"><u>[New] Culinary Kings & Queens YouTube Food Experts for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/pcoming-games-with-industry-experts/"><u>[New] Upcoming Games with Industry Experts</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-building-your-brand-on-instagram-the-top-9-actions-of-industry-stars/"><u>[Updated] 2024 Approved Building Your Brand on Instagram The Top 9 Actions of Industry Stars</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-video-basics-made-simple-a-list-of-10-accessible-youtube-projects/"><u>[Updated] 2024 Approved Video Basics Made Simple A List of 10 Accessible YouTube Projects</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-enhance-info-blocks-templates-for-youtube-titles/"><u>[Updated] In 2024, Enhance Info Blocks Templates for YouTube Titles</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unlock-viewers-essential-guide-to-fantastic-template-based-yt-desc-writing/"><u>2024 Approved Unlock Viewers Essential Guide to Fantastic Template-Based YT Desc Writing</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/blackout-alert-gpu-firmware/"><u>Blackout Alert: GPU Firmware</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/compiling-the-best-12-cost-free-video-apps-for-all-platforms-for-2024/"><u>Compiling the Best 12 Cost-Free Video Apps for All Platforms for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/future-frontiers-the-new-era-of-chatbots-and-ai/"><u>Future Frontiers: The New Era of Chatbots & AI</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-hot-30i-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Infinix Hot 30i Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-nokia-105-classic-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Nokia 105 Classic to Gmail | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-utilizing-no-cost-countdown-efficient-time-management/"><u>In 2024, Utilizing No-Cost Countdown Efficient Time Management</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ize-your-videos-a-curated-list-of-top-flv-to-youtube-apps/"><u>Maximize Your Videos A Curated List of Top FLV-to-YouTube Apps</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/restore-audio-for-an-epic-quest-fixing-silent-missions-in-pcs-borderlands-3-game/"><u>Restore Audio for an Epic Quest: Fixing Silent Missions in PC's Borderlands 3 Game</u></a></li>
 </ul></div>
 

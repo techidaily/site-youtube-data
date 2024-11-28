@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Innovating Sustainable Communities Within the Concrete Jungle"
-date: 2024-11-15T07:44:47.486Z
-updated: 2024-11-18T08:49:07.861Z
+date: 2024-11-25T19:03:43.663Z
+updated: 2024-11-27T23:18:26.402Z
 tags:
   - ai video
   - ai youtube
@@ -74,25 +74,23 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
 ![Find My Channel ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
 ![Customize the layout of your channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click on "About."
 
 ![Edit YouTube Channel Description - About ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Then you can edit the channel description here
@@ -100,10 +98,7 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
 ![Edit YouTube Channel Description ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
@@ -118,13 +113,6 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
  **Check this video to know how to optimize YouTube SEO:**
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Bonus: Tips for YouTube Video Description
 
@@ -143,6 +131,10 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
  It is highly recommended to add additional relevant content to the video description to help audience to get to know you better. You can add a brief summary of the video content or the transcript of the video here. Normally, you can add anything that is worth mentioning such as the equipment or software that you are using to make the video.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -165,24 +157,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-essential-tech-5-must-have-streaming-webcams-for-gamers/"><u>[New] Essential Tech 5 Must-Have Streaming Webcams for Gamers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/lluminate-your-videos-with-17-lighting-hacks/"><u>[New] Illuminate Your Videos with #17 Lighting Hacks</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-beginners-bonanza-affordable-profitable-channel-options/"><u>[New] In 2024, Beginner's Bonanza Affordable, Profitable Channel Options</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-the-8-best-no-cost-editing-software-for-social-media/"><u>[New] In 2024, The 8 Best No-Cost Editing Software for Social Media</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-2024-playbook-earning-your-keep-on-youtube-channel/"><u>[New] The 2024 Playbook Earning Your Keep on YouTube Channel</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/op-6-youtube-shorts-downloaders-free-and-online/"><u>[New] Top 6 YouTube Shorts Downloaders [Free & Online]</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-top-strategies-for-adjusting-song-speed-on-spotify-for-2024/"><u>[New] Top Strategies for Adjusting Song Speed on Spotify for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-breaking-down-t-series-income-mechanism-on-youtube/"><u>[Updated] 2024 Approved Breaking Down T-Series Income Mechanism on YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-strategic-insightfulness-comparing-your-channel-to-competitors-crafts/"><u>[Updated] 2024 Approved Strategic Insightfulness Comparing Your Channel to Competitors' Crafts</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-cutting-edge-text-tools-for-immersive-storytelling-for-2024/"><u>[Updated] Cutting-Edge Text Tools for Immersive Storytelling for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-premier-mac-gif-capturer-pro-for-2024/"><u>[Updated] Premier Mac GIF Capturer Pro for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-building-an-engaging-listenership-through-rss-crafting/"><u>In 2024, Building an Engaging Listenership Through RSS Crafting</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-vivo-v30-lite-5g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Vivo V30 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-motorola-moto-g34-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Motorola Moto G34 5G Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-tips-to-enhance-screen-brightness-of-youtube-videos/"><u>In 2024, Tips to Enhance Screen Brightness of YouTube Videos</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211308773-9781777481919-kundalini-awakening/"><u>Kundalini Awakening | Free Book</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/live-link-lore-when-does-gear-give-way-to-grids-in-2024/"><u>Live Link Lore When Does Gear Give Way to Grids, In 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/youtube-shorts-forever-a-step-by-step-guide/"><u>Stop YouTube Shorts Forever A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/mline-your-youtube-presence-using-premiere-pro-for-2024/"><u>Streamline Your YouTube Presence Using Premiere Pro for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-mastering-youtube-team-ups-finding-perfect-co-stars/"><u>[New] In 2024, Mastering YouTube Team-Ups Finding Perfect Co-Stars</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tep-up-your-visual-effects-game-with-free-lessons-from-4-innovative-youtube-channels/"><u>[New] Step Up Your Visual Effects Game with Free Lessons From 4 Innovative YouTube Channels</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ps-color-enhancement-simplified-approaches/"><u>[Updated] 2024 Approved PS Color Enhancement Simplified Approaches</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-youtube-live-thumbnails-a-comprehensive-look/"><u>[Updated] 2024 Approved YouTube Live Thumbnails A Comprehensive Look</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-analyzing-the-frequency-of-youtube-payments-for-2024/"><u>[Updated] Analyzing the Frequency of YouTube Payments for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-revolutionizing-image-capture-with-ios-11-updates/"><u>[Updated] Revolutionizing Image Capture with iOS 11 Updates</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-key-elements-in-asmr-video-content/"><u>2024 Approved Key Elements in ASMR Video Content</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/7-must-check-points-before-acquiring-a-secondhand-windows-computer/"><u>7 Must-Check Points Before Acquiring a Secondhand Windows Computer</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/comprehensive-guide-to-crafting-professional-haul-videos/"><u>Comprehensive Guide to Crafting Professional Haul Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-maximize-your-drones-visual-potential-essential-gimbal-selection-tips/"><u>In 2024, Maximize Your Drones' Visual Potential Essential Gimbal Selection Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-top-15-youtube-playlists-catering-to-musicians/"><u>In 2024, Top 15 YouTube Playlists Catering to Musicians</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-this-article-shows-the-detail-steps-to-add-titles-in-final-cut-pro-x/"><u>Updated 2024 Approved This Article Shows the Detail Steps to Add Titles in Final Cut Pro X</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
 </ul></div>
 

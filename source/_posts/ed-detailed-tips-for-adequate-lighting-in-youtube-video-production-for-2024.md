@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Detailed Tips for Adequate Lighting in YouTube Video Production for 2024"
-date: 2024-11-11T19:56:33.979Z
-updated: 2024-11-18T06:51:10.798Z
+date: 2024-11-20T16:56:57.338Z
+updated: 2024-11-28T00:33:37.814Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Using Light You Already Have
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
@@ -53,13 +57,14 @@ Window lighting for me was especially difficult to work with because I live in a
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2. Home Lighting
 
@@ -78,10 +83,7 @@ Ceiling lights are also typically situated in the center of a room in order to l
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1. Light Control
@@ -108,33 +110,17 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -157,18 +143,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-brief-cinematic-story-outline-for-2024/"><u>[New] Brief Cinematic Story Outline for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-cultivating-companions-best-farm-games-to-share-with-pals-for-2024/"><u>[New] Cultivating Companions Best Farm Games to Share with Pals for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/fficient-youtube-ad-blocking-on-chromefirefoxandroid-devices/"><u>[New] Efficient YouTube Ad Blocking on Chrome/Firefox/Android Devices</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-engaging-stories-expanding-audiences-top-three-methods/"><u>[New] In 2024, Engaging Stories, Expanding Audiences Top Three Methods</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-soundwaves-flow-into-imovie-effortlessly/"><u>[New] In 2024, YouTube Soundwaves Flow Into iMovie Effortlessly</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-10-best-travel-youtube-channels-to-follow-for-2024/"><u>[Updated] 10 Best Travel Youtube Channels to Follow for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-elevating-your-videos-reach-top-8-youtube-ranks-unveiled/"><u>[Updated] Elevating Your Video's Reach - Top 8 YouTube Ranks Unveiled</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-expert-advice-on-lighting-your-youtube-content-perfectly-for-2024/"><u>[Updated] Expert Advice on Lighting Your YouTube Content Perfectly for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-maximizing-gopro-content-integration-with-social-networks/"><u>[Updated] Maximizing GoPro Content Integration with Social Networks</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-boosting-your-videos-chance-on-vimeo-staff-list/"><u>2024 Approved Boosting Your Video's Chance on Vimeo Staff List</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-create-effective-youtube-advertisements-on-a-budget/"><u>2024 Approved Create Effective YouTube Advertisements on a Budget</u></a></li>
-<li><a href="https://driver-download.techidaily.com/latest-canon-mg2800-series-drivers-for-windows-operating-systems-windows-10-8-7/"><u>Latest Canon MG2800 Series Drivers for Windows Operating Systems (Windows 10, 8, 7)</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unveiling-the-veiled-algorithms-ai-black-boxes-demystified/"><u>Unveiling the Veiled Algorithms: AI Black Boxes Demystified</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-boosting-tiktok-video-playback-speeds/"><u>[New] In 2024, Boosting TikTok Video Playback Speeds</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-bridging-mac-and-monetization-imovie-editing-to-youtube-success/"><u>[New] In 2024, Bridging Mac & Monetization IMovie Editing to YouTube Success</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unlock-your-presentation-potential-with-these-high-quality-templates/"><u>[New] Unlock Your Presentation Potential with These High-Quality Templates</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-achieve-a-millennium-of-subscriber-milestones/"><u>[Updated] 2024 Approved Achieve a Millennium of Subscriber Milestones</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-acclaimed-choices-17-popular-programs-for-background-removal/"><u>2024 Approved Acclaimed Choices 17 Popular Programs for Background Removal</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-secure-your-videos-with-free-image-savers/"><u>2024 Approved Secure Your Videos with FREE Image Savers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-unveiling-your-signature-look-a-beginners-blueprint/"><u>2024 Approved Unveiling Your Signature Look A Beginner's Blueprint</u></a></li>
+<li><a href="https://win-able.techidaily.com/fix-youtubes-persistent-audio-with-frozen-videos-a-guide-for-users-of-chrome-and-firefox-web-browsers/"><u>Fix Youtube's Persistent Audio with Frozen Videos: A Guide for Users of Chrome and Firefox Web Browsers</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-itel-p40-frp-by-drfone-android/"><u>Full Guide to Bypass Itel P40 FRP</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-15-to-other-iphone-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 15 To Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-hardware-toms-comprehensive-reviews-and-analysis/"><u>Mastering Hardware: Tom's Comprehensive Reviews and Analysis</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/spotting-fake-chatgpt-websites-steps-for-internet-users-to-stay-secure/"><u>Spotting Fake ChatGPT Websites: Steps for Internet Users to Stay Secure</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/bes-creative-commons-a-guide-for-videographers/"><u>YouTube’s Creative Commons A Guide for Videographers</u></a></li>
 </ul></div>
 
