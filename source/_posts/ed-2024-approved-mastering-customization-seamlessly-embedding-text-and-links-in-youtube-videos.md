@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Customization  Seamlessly Embedding Text & Links in Youtube Videos\""
-date: 2024-08-28T13:25:41.323Z
-updated: 2024-08-29T13:25:41.323Z
+date: 2024-12-01T02:08:24.129Z
+updated: 2024-12-06T16:37:36.282Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
@@ -66,6 +70,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -77,10 +85,18 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -120,20 +136,21 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +159,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-a-detailed-guide-to-streamlabs-obs/"><u>[New] A Detailed Guide to Streamlabs OBS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/earless-filming-mastering-your-first-10-clips-for-2024/"><u>[New] Fearless Filming Mastering Your First 10 Clips for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-how-to-guide-for-effortless-youtube-playlist-downloads/"><u>[New] In 2024, How-To Guide for Effortless YouTube Playlist Downloads</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-instantaneous-pro-thumbnail-creation-valorant-edition/"><u>[New] In 2024, Instantaneous Pro Thumbnail Creation - Valorant Edition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tepwise-instructions-for-enhancing-youtube-clips-in-wmm-for-2024/"><u>[New] Stepwise Instructions for Enhancing YouTube Clips in WMM for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/irtual-expeditions-youtubes-top-immersive-titles/"><u>[New] Virtual Expeditions YouTube's Top Immersive Titles</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-amplifying-viewership-strategies-for-unboxing-tiktoks/"><u>[Updated] 2024 Approved Amplifying Viewership Strategies for Unboxing TikToks</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-harnessing-hours-of-light-long-exposure-iphone-tips-for-2024/"><u>[Updated] Harnessing Hours of Light Long-Exposure iPhone Tips for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-free-frame-flip-converting-tweets-into-tweenish-movies/"><u>[Updated] In 2024, Free Frame Flip Converting Tweets Into Tweenish Movies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-dodge-digital-watchers-accelerating-view-count-growth/"><u>2024 Approved Dodge Digital Watchers Accelerating View Count Growth</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-integrating-jobs-and-passion-projects-effectively/"><u>2024 Approved Integrating Jobs & Passion Projects Effectively</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-your-makeup-maestro-journey-establishing-a-channel-for-beauty-buffs/"><u>2024 Approved Your Makeup Maestro Journey Establishing a Channel for Beauty Buffs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-youtube-earning-blueprint-achieving-bank-balances/"><u>2024 Approved YouTube Earning Blueprint Achieving Bank Balances</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/elite-camera-lineup-for-total-sphere-coverage/"><u>Elite Camera Lineup for Total Sphere Coverage</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/fix-your-pc-how-to-recover-a-deleted-windows-boot-partition-successfully/"><u>Fix Your PC: How to Recover a Deleted Windows Boot Partition Successfully</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-honor-100-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Honor 100 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/gonetflixgo-master-screenrecording-on-mac-with-ease-and-excellence-for-2024/"><u>GoNetflixGo Master ScreenRecording on Mac, With Ease & Excellence for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-best-low-end-screen-recorder-options-summarized/"><u>In 2024, Best Low-End Screen Recorder Options Summarized</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Tecno Spark 10 5G | Dr.fone</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Pro-Gif Makers Roundup  Online vs Desktop Platforms for 2024\""
-date: 2024-11-20T21:25:16.275Z
-updated: 2024-11-28T02:24:47.607Z
+date: 2024-12-01T07:03:53.169Z
+updated: 2024-12-07T00:13:27.497Z
 tags:
   - ai video
   - ai youtube
@@ -35,9 +35,17 @@ In this short guide ahead, we’ve brought for you the best YouTube to GIF maker
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Best Online YouTube to GIFs Makers
 
 Here is our curated list of the best 11 _YouTube to GIF Maker_ that you can use to make GIF from YouTube video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. GIFS
 
@@ -47,10 +55,6 @@ All you have to do is enter the URL of the video you want to convert into a GIF.
 
 ![Online YouTube to GIFs Maker - Gifs.com](https://images.wondershare.com/filmora/article-images/youtube-to-gif-with-gifs.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once you’ve entered the YouTube video URL, it prompts a basic video editor wherein you select the frame and durations for your GIF. If you want to customize it further, you can add stickers, captions, and tools like blurring, cropping, and others.
 
 Once you’re done exploring the filters and editing the GIF, you can directly share the URL on different platforms or just download it and store it on your device.
@@ -58,7 +62,7 @@ Once you’re done exploring the filters and editing the GIF, you can directly s
 ![Online YouTube to GIFs Maker - Gifs.com export](https://images.wondershare.com/filmora/article-images/export-download-gif-made-with-gifs.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Note: If you want to remove the watermark and get full access to extra features, you may need to pay $1.99/month.
@@ -86,16 +90,12 @@ GIFit is a well-known online extension available on the Chrome Web Store for fre
 ![  YouTube to GIFs Extension GIFIt](https://images.wondershare.com/filmora/article-images/gifit-chrome-extension.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 To use this Chrome extension, install it from the Chrome Web Store. Now, run the attachment and visit any video on YouTube that you would like to convert into GIF. Once decided, simply press on the GIFit icon in the YouTube toolbar. Then, edit according to your requirements and hit the red button with GIFit on it. After a few minutes, your GIF will be ready to be shared and saved. Currently, it offers convert YouTube to GIF feature only, so you can’t add stickers nor captions.
 
 ![  YouTube to GIFs Extension GIFIt Convert](https://images.wondershare.com/filmora/article-images/gifit-youtube-to-gif.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Make A GIF
 
@@ -103,19 +103,27 @@ Makeagif is an ideal online GIF maker for you that can convert videos into anima
 
 ![  YouTube to GIFs maker: Make A GIF](https://images.wondershare.com/filmora/article-images/makeagif-interface.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The GIF maker also comes with a variety of free GIFs to download and add to your collection. Moreover, it allows you to edit existing GIFs by enhancing their quality, speed and adding filters to them. It offers functions that can enrich the standard of your GIFs.
 
 ![  YouTube to GIFs  maker: Make A GIF](https://images.wondershare.com/filmora/article-images/makeagif-youtube-to-gif.jpg)
 
-To create GIFs using this, first, create your account on the site. Next, select the _‘YouTube to GIF’_ option from the drop-down menu, among other alternatives. Then, enter the link to the YouTube video that you wish to transfigure into GIF, after which you can tailor-make the gifs by adjusting the configuration settings, such as adding captions and sticker. Once done, simply download and share your newly crafted GIF.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+To create GIFs using this, first, create your account on the site. Next, select the _‘YouTube to GIF’_ option from the drop-down menu, among other alternatives. Then, enter the link to the YouTube video that you wish to transfigure into GIF, after which you can tailor-make the gifs by adjusting the configuration settings, such as adding captions and sticker. Once done, simply download and share your newly crafted GIF.
 
 ### 5\. Imgur
 
 ![  YouTube to GIFs  maker: Imgur](https://images.wondershare.com/filmora/article-images/imgur-video-to-gif.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Imgur](https://imgur.com/vidgif) might not be the best application to be included in the list. But it is definitely an amazing site where you can go looking for all kinds of images, Gifs, memes, or other digital stories. Imgur’s wide collection of visuals can never disappoint you, no matter what you’re searching for, from funny to sad, inspiring to aspiring, everything can be discovered in this treasure.
 
@@ -126,10 +134,6 @@ Now, this might not be the best _YouTube to gif maker_, but it does have the pot
 ### 6\. [GiFRun](https://gifrun.com/)
 
 ![  YouTube to GIFs maker: GiFRun](https://images.wondershare.com/filmora/article-images/gifrun-youtube-to-gifs.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Are you worried about searching for a gif converter with no prior experience in editing? Don’t worry; this GiFRun Maker is the simplest online service that requires minimum to zero skill for creating GIFs. GifRun is an easy enough site to navigate through and produce quality GIFs for your blogging sites.
 
@@ -151,10 +155,6 @@ Another website is known for creating and sharing visual content on different so
 
 [Imgflip](https://imgflip.com/) supports all the popular video formats such as AVI, MP4, 3GP, OGG, FLV, MOV, and various other video formats. To produce a high-quality GIF, make sure your video is at least 480P or higher. More so, the Imgflip supports GIF with audio features of all the videos with audio that can only be accessed using the Imgflip Pro at a minimum price of $9.95/ month.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9\. [GIF Maker](https://www.gifmaker.net/)
 
 GIF Maker is a pretty basic application that everyone can navigate with or without any expertise in the tech department. Along with GIF maker, it also has other tools such as GIF resizer, GIF compressor, and GIF cropper, all specifically designed tools to help you create riveting GIFs ever!
@@ -162,16 +162,12 @@ GIF Maker is a pretty basic application that everyone can navigate with or witho
 ![ GIF Maker](https://images.wondershare.com/filmora/article-images/gifmakernet-youtube-video-to-gif.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 GIF Maker provides two options; one video to gif and second Images to gif that you can use as per their need. One simply is to enter the YT video link/upload video to the upload box. Next, alter the animation, filter, speed, duration, and set start and endpoint in the editor. You can upload files in all the popular formats and upload up to 25Mb image files and 30 Mb for animated GIFs.
 
 Another point to remember while using this GIF Maker, it only supports YT videos that have not been copy-righted by the creator.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Best YouTube to GIF Maker on Windows and Mac: Wondershare UniConverter
 
@@ -180,6 +176,10 @@ It happens so that you stumble upon a video that runs the hippocampus of your br
 Now, you will require the best-quality GIF maker that is easy to navigate without any complications. Despite the plethora of GIF makers being available at hand, it could be a strenuous task to search for the ideal GIF maker for yourself.
 
 Presently, Wondershare UniConverter is one of the best and easy-to-use YouTube to GIF makers for you. It is the handiest tool to help you accomplish your conversion, customization, compressing, and revamping goals like a professional with its effective editing features. Wondershare offers many benefits, from converting files in hundred different formats to crafting your one GIF out of videos along with other fundamental editing attributes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **How to User UniConverter Video to GIF Maker?**
 
@@ -193,10 +193,6 @@ Presently, Wondershare UniConverter is one of the best and easy-to-use YouTube t
 
 ![Customize GIF with UniConverter ](https://images.wondershare.com/filmora/article-images/customize-gif-uniconverter.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** Once finished with all the customization, convert the YouTube video into a GIF by tapping the **Create GIF** option.
 
 **Step 5:** Ta-da! UniConverter will transform your YT video into a GIF within a minute or two. You can now export and share the GIF further.
@@ -208,6 +204,10 @@ Without any doubt, I can say that usage of GIFs during your regular texting and 
 With the help of this little guide, you can create gif from YouTube videos with a wave of your hand! I hope you’ve fun GIF-ing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -230,24 +230,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/rom-sound-to-words-a-free-guide-to-youtube-transcribing-mastery-for-2024/"><u>[New] From Sound to Words A FREE Guide to YouTube Transcribing Mastery for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-navigating-youtubes-maker-central-interface/"><u>[New] In 2024, Navigating YouTube's Maker Central Interface</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-making-a-splash-with-youtube-ad-banners-and-thumbnails/"><u>[Updated] 2024 Approved Making a Splash with YouTube Ad Banners & Thumbnails</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-top-11-youtube-video-rippers-to-download-youtube-videos/"><u>[Updated] 2024 Approved Top 11 YouTube Video Rippers to Download YouTube Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-apple-media-access-and-download-youtube-videos-on-iphoneipad-for-2024/"><u>[Updated] Apple Media Access and Download YouTube Videos on iPhone/iPad for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-a-filmmakers-approach-to-youtube-splitscreen-videos/"><u>[Updated] In 2024, A Filmmaker's Approach to YouTube Splitscreen Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-how-to-convert-youtube-to-mp3-in-3-ways-safe/"><u>2024 Approved How to Convert YouTube to MP3 in 3 Ways [Safe]</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/freedom-in-sight-comparing-free-screen-capture-tools/"><u>Freedom in Sight Comparing Free Screen Capture Tools</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-ultimate-deal-samsung-odyssey-g50a-27-qhd-ips-display-for-only-255-on-amazon/"><u>Get the Ultimate Deal: Samsung Odyssey G50A 27 QHD IPS Display for Only $255 on Amazon</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-shield.techidaily.com/how-to-save-iphone-calls-on-mac-or-windows-pc/"><u>How to Save iPhone Calls on Mac or Windows PC</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-zte-nubia-z60-ultra-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From ZTE Nubia Z60 Ultra to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-12-pro-without-swiping-up-6-ways-by-drfone-ios/"><u>How To Unlock Apple iPhone 12 Pro Without Swiping Up? 6 Ways</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-monetization-milestone-the-500-subscriber-trick/"><u>In 2024, Monetization Milestone The 500-Subscriber Trick</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-transforming-youtube-content-advanced-strategies-to-perfect-videos-after-publishing/"><u>In 2024, Transforming YouTube Content Advanced Strategies to Perfect Videos After Publishing</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/tailor-made-text-masters-at-openais-new-marketplace/"><u>Tailor-Made Text Masters at OpenAI's New Marketplace</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ding-your-spotify-library-to-youtube-music-access/"><u>Upgrading Your Spotify Library to YouTube Music Access</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/what-does-ray-tracing-mean-in-graphics-technology/"><u>What Does Ray Tracing Mean in Graphics Technology?</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/winxmediatrans-superior-app-flawless-transfer-of-photos-and-music-videos-between-iphone-ipad-and-computer/"><u>WinXMediaTrans™: Superior App Flawless Transfer of Photos and Music Videos Between iPhone, iPad & Computer</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-boost-engagement-innovative-templates-for-your-video-closings/"><u>[Updated] 2024 Approved Boost Engagement Innovative Templates for Your Video Closings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unveiling-the-ideal-12-vlogging-cameras-with-seamless-screen-control/"><u>[Updated] 2024 Approved Unveiling the Ideal 12 Vlogging Cameras with Seamless Screen Control</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-cut-costs-boost-creativity-learn-the-secrets-of-green-screen-artistry-from-4-leading-educators/"><u>[Updated] In 2024, Cut Costs, Boost Creativity Learn the Secrets of Green Screen Artistry From 4 Leading Educators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unlocking-youtube-success-with-the-right-networking-choice/"><u>[Updated] In 2024, Unlocking YouTube Success with the Right Networking Choice</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-excellence-in-viewing-windows-phones-premium-apps/"><u>2024 Approved Excellence in Viewing Windows Phone's Premium Apps</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/effortless-setup-for-microsoft-wireless-mouse-5000-instant-driver-downloads-available/"><u>Effortless Setup for Microsoft Wireless Mouse 5000 - Instant Driver Downloads Available</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-re-register-microsoft-store-apps-on-windows-10-and-11/"><u>How to Re-Register Microsoft Store Apps on Windows 10 & 11</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-flipbooks-to-frames-7-core-strategies-for-crafting-engaging-gifs/"><u>In 2024, From Flipbooks to Frames 7 Core Strategies for Crafting Engaging GIFs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-youtube-splits-a-filmmakers-creative-playbook/"><u>In 2024, YouTube Splits A Filmmaker’s Creative Playbook</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/soundbite-strategies-transform-your-voice-records-for-2024/"><u>Soundbite Strategies Transform Your Voice Records for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-ultimate-guide-for-amateurs-and-pros-on-windows-11-video-creation/"><u>The Ultimate Guide for Amateurs & Pros on Windows 11 Video Creation</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-apple-iphone-se-and-android-phones-by-drfone-ios/"><u>Top IMEI Unlokers for Apple iPhone SE and Android Phones</u></a></li>
 </ul></div>
 

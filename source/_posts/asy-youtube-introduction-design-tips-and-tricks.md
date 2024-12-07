@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Easy YouTube Introduction Design  Tips and Tricks\""
-date: 2024-08-23T06:44:01.516Z
-updated: 2024-08-24T06:44:01.516Z
+date: 2024-12-02T09:19:14.326Z
+updated: 2024-12-06T21:26:18.239Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/6d5e434613938dd2124246188e50460e550f0af6d
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ngage-enchant-excel-the-quintessential-5-strategies-for-youtube-marketing/"><u>[New] Engage, Enchant, Excel The Quintessential 5 Strategies for YouTube Marketing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-fixed-youtubes-missing-minute-media/"><u>[New] In 2024, Fixed YouTube's Missing Minute Media</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-optimal-recording-for-virtual-meetings-top-5-equipment-lists/"><u>[New] In 2024, Optimal Recording for Virtual Meetings Top 5 Equipment Lists</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tep-by-step-guide-to-perfecting-videos-in-youtube-studio-for-2024/"><u>[New] Step-by-Step Guide to Perfecting Videos in YouTube Studio for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-essential-quick-steps-for-effective-double-take-filming/"><u>[Updated] Essential Quick Steps for Effective Double Take Filming</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-transform-your-content-reach-with-strategic-tagging-insight/"><u>[Updated] Transform Your Content Reach with Strategic Tagging Insight</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/caption-crafting-select-writing-apps-for-your-photos-for-2024/"><u>Caption Crafting Select Writing Apps for Your Photos for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-chatgpt-pales-when-it-comes-to-nuanced-writing-tasks/"><u>How ChatGPT Pales When It Comes to Nuanced Writing Tasks</u></a></li>
+<li><a href="https://driver-error.techidaily.com/how-to-fix-pci-memory-controller-driver-issues/"><u>How to Fix PCI Memory Controller Driver Issues</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-poco-m6-pro-4g-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Poco M6 Pro 4G?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/o-spark-interest-with-unique-channel-names-for-2024/"><u>How to Spark Interest With Unique Channel Names for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-from-apple-iphone-12-pro-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock From Apple iPhone 12 Pro?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-the-skies-with-xiaomis-4k-drone/"><u>In 2024, Mastering the Skies with Xiaomi's 4K Drone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/by-step-guide-to-youtube-playlist-in-html-for-2024/"><u>Step-by-Step Guide to YouTube Playlist in HTML for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-complete-steps-to-correct-ring-of-elysium-crash-problems/"><u>Troubleshooting Complete: Steps to Correct 'Ring of Elysium' Crash Problems</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/bes-monetization-metrics-for-a-million-viewers-for-2024/"><u>Youtube's Monetization Metrics for A Million Viewers for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

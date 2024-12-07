@@ -1,7 +1,7 @@
 ---
 title: "[New] Revel in the Rhythm of Rising Text for 2024"
-date: 2024-08-23T06:42:25.197Z
-updated: 2024-08-24T06:42:25.197Z
+date: 2024-12-04T04:05:07.628Z
+updated: 2024-12-07T00:42:14.381Z
 tags:
   - ai video
   - ai youtube
@@ -52,9 +52,17 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
 
@@ -69,6 +77,14 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -108,6 +124,10 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
 **Step 3: Obtain the Text**
@@ -128,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,8 +161,21 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-envisioned-realities-a-selective-list-of-virtual-wisdoms/"><u>[New] 2024 Approved Envisioned Realities A Selective List of Virtual Wisdoms</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/harting-the-course-to-trending-youtubers/"><u>[New] Charting the Course to Trending YouTubers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-elevate-your-mind-while-you-multitask-top-15-ideas-for-podcast-lovers/"><u>[New] Elevate Your Mind While You Multitask Top 15 Ideas for Podcast Lovers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/anorama-pro-network-partnership-guide/"><u>[New] Panorama Pro Network Partnership Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ising-to-the-top-essential-youtube-video-seo-techniques-for-success-for-2024/"><u>[New] Rising to the Top Essential YouTube Video SEO Techniques for Success for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-the-rise-of-remote-therapeutic-platforms-for-2024/"><u>[New] The Rise of Remote Therapeutic Platforms for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastering-instagram-stories-your-complete-tune-up-guide/"><u>[Updated] 2024 Approved Mastering Instagram Stories Your Complete Tune-Up Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-unveiling-5-best-non-samsung-camera-picks-for-gear-enthusiasts/"><u>[Updated] In 2024, Unveiling 5 Best Non-Samsung Camera Picks for Gear Enthusiasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-perfecting-channel-art-a-step-by-step-instructional-manual/"><u>[Updated] Perfecting Channel Art A Step-by-Step Instructional Manual</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-perfecting-your-content-time-stamping-in-online-vids/"><u>[Updated] Perfecting Your Content Time Stamping in Online Vids</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/youtube-file-transfer-techniques-for-2024/"><u>Easy YouTube File Transfer Techniques for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-propel-views-up-top-hashtag-combinations-for-youtube-profit/"><u>In 2024, Propel Views Up Top Hashtag Combinations for YouTube Profit</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-universal-unlock-pattern-for-vivo-t2-pro-5g-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Vivo T2 Pro 5G</u></a></li>
+<li><a href="https://extra-information.techidaily.com/quick-methods-to-light-up-dull-iphone-footage/"><u>Quick Methods to Light Up Dull iPhone Footage</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

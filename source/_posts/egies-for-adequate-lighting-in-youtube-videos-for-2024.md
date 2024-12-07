@@ -1,7 +1,7 @@
 ---
 title: "Strategies for Adequate Lighting in YouTube Videos for 2024"
-date: 2024-11-26T20:41:08.884Z
-updated: 2024-11-28T04:06:27.020Z
+date: 2024-12-02T02:23:51.805Z
+updated: 2024-12-07T02:56:22.544Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Using Light You Already Have
@@ -55,6 +55,10 @@ The best thing about window lighting is that it’s free. The worst thing about 
 Window lighting for me was especially difficult to work with because I live in a very rainy and cloudy city, Vancouver, Canada, where we pretty much just get three months of good sun.
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
@@ -70,21 +74,17 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
@@ -97,10 +97,6 @@ Out of the three lights, the key light should be the brightest. When it is posit
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -117,10 +113,14 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -143,22 +143,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/hriving-in-the-freefire-arena-with-pro-gamers-guide/"><u>[New] Thriving in the FreeFire Arena with Pro Gamers' Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/outube-ventures-steps-for-monetizing-content-for-2024/"><u>[New] YouTube Ventures Steps for Monetizing Content for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-transforming-your-videos-with-captivating-youtube-thumbnails-using-a-mac/"><u>[Updated] 2024 Approved Transforming Your Videos with Captivating Youtube Thumbnails, Using a Mac</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-mastering-youtube-insights-for-channel-expansion/"><u>[Updated] In 2024, Mastering YouTube Insights for Channel Expansion</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-essentials-for-seamless-system-evolutions/"><u>[Updated] The Essentials for Seamless System Evolutions</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-youtube-masterclass-crafting-engaging-openers-technique-1-and-2/"><u>2024 Approved YouTube Masterclass Crafting Engaging Openers (Technique 1 & 2)</u></a></li>
-<li><a href="https://fox-that.techidaily.com/cant-get-alerts-during-dnd-discover-these-easy-ways-to-keep-texts-and-calls-coming-on-your-iphone/"><u>Can't Get Alerts During DND? Discover These Easy Ways to Keep Texts & Calls Coming on Your iPhone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/e-captivating-yt-thumbnails-fast-for-2024/"><u>Create Captivating YT Thumbnails Fast for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nspired-from-top-10-recruitment-videos/"><u>Get Inspired From Top 10 Recruitment Videos</u></a></li>
-<li><a href="https://win-bits.techidaily.com/guida-essenziale-al-clonare-le-tue-ssd-crucial-con-il-miglior-software-di-clonazione-in-italia/"><u>Guida Essenziale Al Clonare Le Tue SSD Crucial Con Il Miglior Software Di Clonazione in Italia</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-honor-magic-vs-2-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Honor Magic Vs 2 to iPad | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-discarding-virtual-gatherings-on-fb-pcsmartphones/"><u>In 2024, Discarding Virtual Gatherings on FB, PC/Smartphones</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-the-essential-guide-for-cost-free-google-meet-management/"><u>In 2024, The Essential Guide for Cost-Free Google Meet Management</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-free-wmv-video-merger-tools-top-picks/"><u>New Free WMV Video Merger Tools Top Picks</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/quality-overload-top-10-hd-video-apps-for-your-android-for-2024/"><u>Quality Overload Top 10 HD Video Apps for Your Android for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/egic-steps-for-effective-annotations-and-cards-on-your-youtube-videos/"><u>Strategic Steps for Effective Annotations & Cards on Your YouTube Videos</u></a></li>
-<li><a href="https://discover-able.techidaily.com/the-ultimate-guide-to-wmv-files-everything-you-need-to-know-for-easy-access/"><u>The Ultimate Guide to WMV Files: Everything You Need to Know for Easy Access</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ow-to-wipe-out-your-youtube-buffered-videos/"><u>[New] How-To Wipe Out Your YouTube Buffered Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-expressing-emotionally-using-emojis-for-yt-comments/"><u>[Updated] 2024 Approved Expressing Emotionally Using Emojis for YT Comments</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-summary-of-short-videos-simplicity-included/"><u>2024 Approved Summary of Short Videos, Simplicity Included</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-impact-with-high-converting-youtube-advertising-banners-for-2024/"><u>Creating Impact with High-Converting YouTube Advertising Banners for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-abbreviated-film-dialogue-scheme/"><u>In 2024, Abbreviated Film Dialogue Scheme</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-pictures-to-prose-photo-text-alteration-techniques/"><u>In 2024, From Pictures to Prose Photo Text Alteration Techniques</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-asus-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Asus?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-perfecting-virtual-sessions-best-free-and-paid-zoom-transcribing-tools/"><u>In 2024, Perfecting Virtual Sessions Best Free & Paid Zoom Transcribing Tools</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-infinix-note-30-vip-racing-editionfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Infinix Note 30 VIP Racing EditionFRP Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-access-when-facebook-fails-to-send-verification-codes/"><u>Regaining Access: When Facebook Fails to Send Verification Codes</u></a></li>
 </ul></div>
 

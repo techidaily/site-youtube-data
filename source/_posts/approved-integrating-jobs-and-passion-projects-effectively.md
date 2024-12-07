@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Integrating Jobs & Passion Projects Effectively\""
-date: 2024-11-25T21:38:50.517Z
-updated: 2024-11-27T17:54:55.879Z
+date: 2024-12-04T20:39:13.046Z
+updated: 2024-12-06T17:49:36.524Z
 tags:
   - ai video
   - ai youtube
@@ -48,20 +48,20 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1. Don’t force yourself to post on specific days
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3. Check the weather forecast in advance
 
@@ -72,7 +72,7 @@ When starting a YouTube channel, many YouTubers like myself don’t have the mon
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
@@ -80,10 +80,6 @@ This week I am on PTO (paid time off) which has given me a lot more time to film
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
 
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Make a YouTube Video with Wondershare Filmora
 
@@ -93,10 +89,14 @@ Just try it and create your own YouTube video!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -120,18 +120,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-discover-the-prime-lineup-of-affordable-cutting-tools/"><u>[New] In 2024, Discover the Prime Lineup of Affordable Cutting Tools</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-make-youtube-animated-subscribe-button-easily-in-filmora/"><u>[New] In 2024, How to Make YouTube Animated Subscribe Button Easily in Filmora</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-snappy-sharing-uploading-and-publishing-short-videos-online/"><u>[New] In 2024, Snappy Sharing Uploading and Publishing Short Videos Online</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-ultimate-2024-lists-high-quality-unboxers-on-youtube/"><u>[New] Ultimate 2024 Lists - High-Quality Unboxers on YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-capture-the-magic-our-list-of-top-12-cameras-for-exceptional-vlogs-for-2024/"><u>[Updated] Capture the Magic Our List of Top 12 Cameras for Exceptional Vlogs for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-strategic-spending-to-skyrocket-your-video-views/"><u>[Updated] Strategic Spending to Skyrocket Your Video Views</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-streamline-your-youtube-presence-using-premiere-pro/"><u>[Updated] Streamline Your YouTube Presence Using Premiere Pro</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-targeted-approach-carving-out-your-space-on-youtube/"><u>[Updated] Targeted Approach Carving Out Your Space on YouTube</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/bt-d11-by-beatit-a-comprehensive-review-of-the-robust-jump-starter/"><u>BT-D11 by Beatit: A Comprehensive Review of the Robust Jump Starter</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/selfie-to-sensation-vloggers-choice-of-top-9-camera-accessories-for-2024/"><u>From Selfie to Sensation Vloggers' Choice of Top 9 Camera Accessories for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-the-art-of-livestreaming-seminars-at-no-expense/"><u>In 2024, The Art of Livestreaming Seminars at No Expense</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/sharpen-your-snapshots-effortlessly-with-these-10-editors-for-2024/"><u>Sharpen Your Snapshots Effortlessly with These 10 Editors for 2024</u></a></li>
-<li><a href="https://win-hot.techidaily.com/ultimate-guide-adding-and-managing-folders-with-windows-11s-file-history-feature/"><u>Ultimate Guide: Adding and Managing Folders with Windows 11'S File History Feature</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-the-shutters-symphony-top-techniques-for-exquisite-images/"><u>[New] 2024 Approved The Shutter's Symphony Top Techniques for Exquisite Images</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/reaking-down-the-secrets-of-impactful-asmr-video-creation/"><u>[New] Breaking Down the Secrets of Impactful ASMR Video Creation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-yt-treasure-hunt-accessing-previously-deleted-content/"><u>[New] In 2024, YT Treasure Hunt Accessing Previously Deleted Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aughters-launchpad-7-funny-video-frameworks-for-comedians-for-2024/"><u>[New] Laughter's Launchpad 7 Funny Video Frameworks for Comedians for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-studio-mastery-a-comprehensive-video-editing-guide-for-2024/"><u>[New] YouTube Studio Mastery A Comprehensive Video Editing Guide for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-art-of-attraction-mastering-youtubes-glamour-trove/"><u>[Updated] 2024 Approved The Art of Attraction Mastering Youtube's Glamour Trove</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-top-tier-content-guild/"><u>[Updated] 2024 Approved The Top Tier Content Guild</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-designing-short-trailers-that-tell-a-story/"><u>[Updated] Designing Short Trailers That Tell a Story</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-elevate-your-edits-a-selection-of-top-9-free-software-choices/"><u>2024 Approved Elevate Your Edits A Selection of Top 9 Free Software Choices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-foundational-approach-to-gradual-volume-adjustment/"><u>2024 Approved Foundational Approach to Gradual Volume Adjustment</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-full-time-employees-guide-to-video-content-success/"><u>2024 Approved The Full-Time Employee's Guide to Video Content Success</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/easy-steps-for-troubleshooting-iphones-how-to-get-inout-of-devices-recovery-state/"><u>Easy Steps for Troubleshooting iPhones: How to Get In/Out of Device's Recovery State</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-realme-c53-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Realme C53? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-oneplus-nord-3-5g-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked OnePlus Nord 3 5G in Minutes | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on OnePlus Nord N30 5G | Dr.fone</u></a></li>
 </ul></div>
 

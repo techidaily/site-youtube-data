@@ -1,7 +1,7 @@
 ---
 title: "[New] Integrating Jobs & Passion Projects Effectively for 2024"
-date: 2024-11-25T05:31:33.359Z
-updated: 2024-11-28T03:02:21.444Z
+date: 2024-12-04T05:18:40.450Z
+updated: 2024-12-06T17:27:24.681Z
 tags:
   - ai video
   - ai youtube
@@ -47,12 +47,16 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1. Don’t force yourself to post on specific days
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2. Keep track of all your ideas in one notebook planner
@@ -60,7 +64,7 @@ I know what you’re thinking - “What?! That’s insane.” The first piece of
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3. Check the weather forecast in advance
@@ -68,7 +72,7 @@ A notebook planner is essential for keeping my life organized and on track. When
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4. Create 3-5 videos in advance
@@ -76,7 +80,7 @@ When starting a YouTube channel, many YouTubers like myself don’t have the mon
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
@@ -92,10 +96,6 @@ Wondershare Filmora is one application that people prefer over any other video e
 Just try it and create your own YouTube video!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -120,16 +120,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ow-to-make-a-cool-youtube-video-intro-in-imovie-step-by-step/"><u>[New] How to Make a Cool YouTube Video Intro in iMovie (Step-by-Step)</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-elevate-your-video-entrance-with-these-tools/"><u>[Updated] 2024 Approved Elevate Your Video Entrance with These Tools</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-laughter-loops-in-musical-landscape/"><u>[Updated] 2024 Approved Laughter Loops in Musical Landscape</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-guiding-imovie-content-from-home-studio-to-youtube-hub/"><u>[Updated] Guiding iMovie Content From Home Studio to YouTube Hub</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-how-to-change-screenshot-file-formats-on-a-mac/"><u>[Updated] In 2024, How to Change Screenshot File Formats on a Mac</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-step-by-step-finding-your-digital-filming-suite-on-youtube/"><u>[Updated] Step-by-Step Finding Your Digital Filming Suite on YouTube</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-transform-your-browsing-with-ms-edges-pip/"><u>[Updated] Transform Your Browsing with MS Edge's PIP</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-redmi-13c-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Redmi 13C</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/effortless-setup-secure-your-microsoft-wireless-mouse-5000-driver-here/"><u>Effortless Setup: Secure Your Microsoft Wireless Mouse 5000 Driver Here</u></a></li>
-<li><a href="https://windows11.techidaily.com/empower-windows-11-notepad-via-smart-assistant/"><u>Empower Windows 11 Notepad via Smart Assistant</u></a></li>
-<li><a href="https://article-posts.techidaily.com/leveraging-social-media-giants-to-skyrocket-your-marketing-game/"><u>Leveraging Social Media Giants to Skyrocket Your Marketing Game</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-macbooks-camera-unleashed-recording-made-simple/"><u>[New] 2024 Approved MacBook's Camera Unleashed Recording Made Simple</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-decrypting-covertly-hid-viewers-responses-in-videos/"><u>[New] Decrypting Covertly-Hid Viewers' Responses in Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-maximize-youtube-traction-affordable-audience-expansion/"><u>[New] In 2024, Maximize YouTube Traction Affordable Audience Expansion</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/remium-editing-tools-unveiled-youtube-edition/"><u>[New] Premium Editing Tools Unveiled YouTube Edition</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-twist-and-turn-the-screen-unleashing-your-inner-dancer-with-tiktok-and-macos-for-2024/"><u>[New] Twist & Turn the Screen Unleashing Your Inner Dancer with TikTok and MacOS for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-bypass-youtube-and-shine-with-these-5-next-gen-editing-software/"><u>[Updated] Bypass Youtube and Shine with These 5 Next-Gen Editing Software</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-essentials-for-transforming-your-google-meet-into-youtube-live/"><u>[Updated] In 2024, The Essentials for Transforming Your Google Meet Into Youtube Live</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-professional-tips-for-enhancing-your-youtube-videos-with-captions/"><u>[Updated] Professional Tips for Enhancing Your YouTube Videos with Captions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-seamless-youtube-to-wav-4-budget-friendly-solutions-revealed/"><u>[Updated] Seamless YouTube to WAV 4 Budget-Friendly Solutions Revealed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-advanced-editing-for-published-youtube-videos/"><u>2024 Approved Advanced Editing for Published YouTube Videos</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-apple-iphone-6-by-drfone-ios/"><u>How To Change Your Apple ID Password On your Apple iPhone 6</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-hevc-h-265-on-mix-fold-3-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on Mix Fold 3, is it possible?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/prompt-engineering-as-a-career-path-what-are-the-key-points-to-consider/"><u>Prompt Engineering as a Career Path: What Are The Key Points To Consider?</u></a></li>
 </ul></div>
 

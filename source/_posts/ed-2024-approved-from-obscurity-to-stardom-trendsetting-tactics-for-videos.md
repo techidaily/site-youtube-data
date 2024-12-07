@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Obscurity to Stardom  Trendsetting Tactics for Videos\""
-date: 2024-08-23T06:44:55.880Z
-updated: 2024-08-24T06:44:55.880Z
+date: 2024-12-01T16:55:58.982Z
+updated: 2024-12-07T00:52:03.803Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ A trending topic is a subject which a lot of people are currently interested in.
 
 [![guide-to-grow-youtube-subscribers](https://images.wondershare.com/filmora/guide-to-grow-youtube-subscribers-download-btn.png)](https://www.filmora.io/free-youtube-subscribers?utm%5Fsource=blog&utm%5Fcampaign=get%5Fsubs%5Fevergreen&utm%5Fcontent=blog%202)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. Think of ‘Trending’ as Relevant**
 
 Instead of thinking of a trending video as a video that everyone is doing, think of it as a subject that is relevant to a lot of people. You want to cover topics that a lot of people care about.
@@ -45,6 +49,10 @@ Instead of thinking of a trending video as a video that everyone is doing, think
 A lot of YouTubers see huge channels have a lot of success posting videos that are very focused on the personal life of the creator (i.e. ‘I had the WORST day’) or which have very vague or sensational titles (i.e. ‘The horse knows what it did’) and decide that those are the kinds of videos they want to do too. However, the only reason large channels are able to be successful with these kinds of videos and titles is that they are already big. These creators have already grown themselves huge audiences of people who know and are interested in them personally.
 
 As a smaller creator, you will not be successful if you only aim to do videos that are focused on you and your life. For example, if you have 100 subscribers and make a vlog about how your day went, then you have 100 people who may potentially find that interesting. The content might be good, but it won’t help you grow.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **2\. Find Trending Topics Within Your Niche**
 
@@ -58,45 +66,29 @@ If you do need help determining trends, here are 2 ways to do it:
 2. Go to [Google Trends](https://trends.google.ca/trends/) and look at the categories most relevant to your genre. [To learn how to use Google Trends](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **3\. Aim for Number 1**
 
 **![think-in-divergent-way](https://images.wondershare.com/filmora/article-images/think-in-divergent-way.jpg)**
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Being trendy doesn’t mean you can’t be original. If you know what’s popular in your genre then that will enable you to ask yourself ‘what’s on-trend, but not being covered yet?’.
 
 For example, if you know that relationship videos – topics like ‘how do you know a guy likes you?’ – are doing well then you can think about what other aspects of dating people might be interested in that don’t have many videos on them yet. If you’re one of the first to tackle something that’s on-trend you have a much better chance of getting that number 1 search engine ranking, and higher ranked videos always get more views.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **4\. Success Doesn't Mean Making a Viral Video**
 
 **![viral-video](https://images.wondershare.com/filmora/article-images/viral-video.png)**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 There’s a common misconception that in order to grow your channel you need to make your videos go viral. The truth is that having one or two viral videos probably won’t help you much. People don’t subscribe to one video, they subscribe for consistently good content.
 
 It’s much better to have 10 videos on a popular topic that are doing alright than it is to have that one big viral hit. Those 10 videos will consistently bring in new viewers to your channel who are more likely to subscribe because they can see you have other content they’re interested in.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## **5\. The Subscriber Snowball Effect**
 
 **![snowball-effect](https://images.wondershare.com/filmora/article-images/snowball-effect.jpg)**
@@ -112,8 +104,9 @@ Finding the trend is integral for YouTube channel growth. A user-friendly video 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -122,14 +115,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,4 +128,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ed-free-easy-tag-extraction-compilation-of-7-best-no-cost-online-tools/"><u>[Updated] Free, Easy Tag Extraction Compilation of 7 Best No-Cost Online Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-income-reconnaissance-unmasking-mr-beasts-fortune/"><u>[Updated] Income Reconnaissance Unmasking Mr. Beast's Fortune</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-starting-stronger-exploring-the-best-15-video-intros/"><u>2024 Approved Starting Stronger Exploring the Best 15 Video Intros</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/best-october-prime-day-offer-meta-unveils-incredible-512gb-quest-3-sale-top-picks-for-vr-enthusiasts/"><u>Best October Prime Day Offer: Meta Unveils Incredible 512GB Quest 3 Sale - Top Picks for VR Enthusiasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-first-rate-text-animation-setups/"><u>In 2024, First-Rate Text Animation Setups</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-youtube-snippet-income-breakdown-whats-your-profit-share/"><u>In 2024, YouTube Snippet Income Breakdown What's Your Profit Share?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Samsung Galaxy M14 4G? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unveiling-the-rise-of-robotic-power-why-humanity-remains-unperturbed/"><u>Unveiling the Rise of Robotic Power - Why Humanity Remains Unperturbed</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-from-zero-to-hero-the-best-3d-video-makers-for-any-skill-level/"><u>Updated In 2024, From Zero to Hero The Best 3D Video Makers for Any Skill Level</u></a></li>
+</ul></div>
 

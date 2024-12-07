@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Essential Guide to YouTube Thumbnail Crafting (Mac)"
-date: 2024-11-22T20:05:18.966Z
-updated: 2024-11-27T18:38:03.067Z
+date: 2024-12-06T04:24:23.547Z
+updated: 2024-12-06T18:25:38.481Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ If you don’t create a thumbnail then youtube will generate one by itself which
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1. Preview the video and choose the still snapshot
@@ -68,11 +68,7 @@ You can easily choose the frame from the video or use the preview frame button t
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. Add text, shape, and image overlays
@@ -82,11 +78,7 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -94,6 +86,10 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -108,6 +104,10 @@ So, using this thumbnail maker you can easily create custom thumbnails for your 
 Hopefully, the above-mentioned steps have given you enough insight and clarity on making creative and good youtube thumbnails. Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) will further simplify the process for you with its amazing tools and features!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -132,24 +132,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-acquire-unlimited-stock-images-via-top-4-youtube-sources/"><u>[New] In 2024, Acquire Unlimited Stock Images via Top 4 YouTube Sources</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-filmora-tutorials-simple-steps-to-a-dynamic-youtube-subscribe-button/"><u>[New] In 2024, Filmora Tutorials Simple Steps to a Dynamic YouTube Subscribe Button</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-victorious-ventures-in-the-top-12-tycoons-your-ultimate-gaming-goal/"><u>[New] In 2024, Victorious Ventures in the Top 12 Tycoons - Your Ultimate Gaming Goal</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nstantaneous-downloads-the-ultimate-toolkit-compilation-for-2024/"><u>[New] Instantaneous Downloads - The Ultimate Toolkit Compilation for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nappy-and-simple-steps-for-posting-short-videos-online/"><u>[New] Snappy and Simple Steps for Posting Short Videos Online</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nleash-your-contents-potential-organic-growth-tactics-for-2024/"><u>[New] Unleash Your Content's Potential Organic Growth Tactics for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-your-videos-hidden-potential-with-these-top-20-shortcuts/"><u>[New] Unlock Your Video's Hidden Potential with These Top 20 Shortcuts</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-ignite-youtube-branding-get-free-design-samples/"><u>[Updated] In 2024, Ignite YouTube Branding Get FREE Design Samples</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-premium-video-boosts-the-9-finest-webcam-effects/"><u>[Updated] In 2024, Premium Video Boosts The 9 Finest Webcam Effects</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-how-to-elevate-youtube-broadcasts-select-the-right-webcam/"><u>2024 Approved How to Elevate YouTube Broadcasts Select the Right Webcam</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-mastering-youtube-videos-your-comprehensive-tutorial/"><u>2024 Approved Mastering YouTube Videos Your Comprehensive Tutorial</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-top-live-broadcast-tech-for-industry-experts/"><u>2024 Approved Top Live Broadcast Tech for Industry Experts</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/creating-interactive-digital-flipbooks-by-combining-several-photos-a-step-by-step-guide-with-flipbuilder/"><u>Creating Interactive Digital Flipbooks by Combining Several Photos: A Step-by-Step Guide with FlipBuilder</u></a></li>
-<li><a href="https://games-able.techidaily.com/excellent-control-experiences-on-smartphones/"><u>Excellent Control Experiences on Smartphones</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-price-scale-for-shooting-tunes-in-visual-narratives/"><u>In 2024, Price Scale for Shooting Tunes in Visual Narratives</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Oppo Find X7? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ring-zero-cost-online-seminars-youtube-edition-for-2024/"><u>Mastering Zero-Cost Online Seminars YouTube Edition for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/revolutionize-pcb-cooling-with-the-new-pink-caulk-gun-applicator-for-tim-ideal-for-component-voids-and-gap-sealing/"><u>Revolutionize PCB Cooling with the New Pink 'Caulk Gun' Applicator for TIM - Ideal for Component Voids & Gap Sealing</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unmasking-the-giants-of-live-broadcast-twitch-vs-youtube-for-2024/"><u>Unmasking the Giants of Live Broadcast Twitch Vs YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nnovative-brainstroming-techniques-for-channels-names-for-2024/"><u>[New] Innovative Brainstroming Techniques for Channels' Names for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snapchat-recovery-quickly-recover-photosvideos-for-2024/"><u>[New] Snapchat Recovery Quickly Recover Photos/Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/actics-for-making-youtube-videos-go-viral/"><u>[New] Tactics for Making YouTube Videos Go Viral</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-bridging-language-barriers-adding-subtitles-to-windows-media-player/"><u>[Updated] Bridging Language Barriers Adding Subtitles to Windows Media Player</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-how-to-block-youtube-channels-on-computer-and-mobile-phones/"><u>[Updated] How to Block YouTube Channels on Computer and Mobile Phones</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-make-every-sound-count-comprehensive-guide-to-free-youtube-video-transcriptions/"><u>[Updated] Make Every Sound Count Comprehensive Guide to Free YouTube Video Transcriptions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-perfecting-your-videos-narrative-integrating-timestamps-smartly-for-2024/"><u>[Updated] Perfecting Your Video's Narrative Integrating Timestamps Smartly for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-pioneering-resources-leading-free-video-openers-guide/"><u>[Updated] Pioneering Resources Leading Free Video Openers Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-podcasting-tech-updates-unveiled/"><u>[Updated] Podcasting Tech Updates Unveiled</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-tidy-up-your-pictures-top-10-online-unblur-tools-for-2024/"><u>[Updated] Tidy Up Your Pictures Top 10 Online Unblur Tools for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-oneplus-nord-ce-3-5g-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For OnePlus Nord CE 3 5G by Name | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/circumventing-verification-failures-when-downloading-apps/"><u>Circumventing Verification Failures when Downloading Apps</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/contributing-to-chromes-future-the-essential-role-of-user-feedback-and-how-it-shapes-development-exclusive-tips/"><u>Contributing to Chrome's Future: The Essential Role of User Feedback and How It Shapes Development (Exclusive Tips)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/vating-confidence-for-captivating-your-youtube-audience-for-2024/"><u>Cultivating Confidence for Captivating Your YouTube Audience for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ering-platforms-for-no-cost-media-downloads-for-2024/"><u>Pioneering Platforms for No-Cost Media Downloads for 2024</u></a></li>
+<li><a href="https://fox-search.techidaily.com/step-by-step-guide-creating-flipbooks-from-pdfs-and-incorporating-watermarks-using-flipbuilder/"><u>Step-by-Step Guide: Creating Flipbooks From PDFs and Incorporating Watermarks Using FlipBuilder</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/the-insiders-guide-to-perfected-picture-hues/"><u>The Insider's Guide to Perfected Picture Hues</u></a></li>
 </ul></div>
 

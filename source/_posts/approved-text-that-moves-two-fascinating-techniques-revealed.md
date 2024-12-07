@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Text That Moves  Two Fascinating Techniques Revealed\""
-date: 2024-11-25T02:13:44.809Z
-updated: 2024-11-27T21:52:06.175Z
+date: 2024-11-30T09:02:36.910Z
+updated: 2024-12-06T16:02:00.965Z
 tags:
   - ai video
   - ai youtube
@@ -57,16 +57,12 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
@@ -74,10 +70,6 @@ You can customize the default effect by double-clicking the shake filter in the 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -88,7 +80,7 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -102,6 +94,10 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -129,6 +125,10 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
 **Step 3: Obtain the Text**
@@ -144,7 +144,7 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -168,24 +168,14 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/bs-101-youtube-live-stream-setup-tutorial-for-2024/"><u>[New] OBS 101 Youtube Live Stream Setup Tutorial for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/remium-talker-alteration-tech-for-bloggers-and-streamers/"><u>[New] Premium Talker Alteration Tech for Bloggers and Streamers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/eviving-rural-vistas-sustainable-transition-for-cities/"><u>[New] Reviving Rural Vistas Sustainable Transition for Cities</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/eamless-video-capture-and-save-with-top-apps-list/"><u>[New] Seamless Video Capture & Save with Top Apps List</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-conceal-dont-reveal-how-to-blur-faces-online/"><u>[Updated] 2024 Approved Conceal, Don't Reveal How to Blur Faces Online</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-cutting-edge-design-top-5-3d-intro-makers/"><u>[Updated] 2024 Approved Cutting-Edge Design Top 5 3D Intro Makers</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-kinemaster-app-for-android-a-comprehensive-insight-review/"><u>[Updated] KineMaster App for Android A Comprehensive Insight Review</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-the-key-to-viral-posts-on-instagram-unveiled-for-2024/"><u>[Updated] The Key to Viral Posts on Instagram Unveiled for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-nokia-g42-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Vivo X100 | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ng-edge-mobile-apps-for-stellar-intros/"><u>Cutting-Edge Mobile Apps for Stellar Intros</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/frame-your-cinematic-tales-three-paths-for-instagram-borders/"><u>Frame Your Cinematic Tales Three Paths for Instagram Borders</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-prevent-your-pc-from-continuously-going-to-sleep-mode-a-step-by-step-guide/"><u>How to Prevent Your PC From Continuously Going to Sleep Mode: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-pro-gamers-top-5-soundtrack-devices/"><u>In 2024, Pro Gamers' Top 5 Soundtrack Devices</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-device-awareness-in-pc-sleep-states/"><u>Mastering Device Awareness in PC Sleep States</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/l-your-online-presence-via-creator-studio/"><u>Propel Your Online Presence via Creator Studio</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-filmmakers-guide-to-stunning-spherical-videos-9-must-knows-for-2024/"><u>The Filmmaker's Guide to Stunning Spherical Videos (9 Must-Knows) for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/sh-popularity-essential-hashes-for-viral-short-form-content/"><u>Unleash Popularity Essential Hashes for Viral Short Form Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/innacle-of-participation-events-post-vidcon/"><u>[New] Pinnacle of Participation Events Post-VidCon</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nderstanding-the-income-framework-that-supports-tseries-youtube-success/"><u>[New] Understanding the Income Framework that Supports TSeries' Youtube Success</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-how-to-be-a-youtube-gamer/"><u>[Updated] In 2024, How To Be a YouTube Gamer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/blend-languages-build-bonds-with-virtual-world-faces/"><u>Blend Languages, Build Bonds with Virtual World Faces</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-securely-sharing-visuals-learn-the-art-of-screencast-with-ezvid/"><u>In 2024, Securely Sharing Visuals Learn the Art of Screencast with Ezvid</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-validating-your-channels-ad-based-income/"><u>In 2024, Validating Your Channel’s Ad-Based Income</u></a></li>
+<li><a href="https://fox-http.techidaily.com/insiders-guide-to-pro-windows-10-expertise-for-2024/"><u>Insider's Guide to Pro WINDOWS 10 Expertise for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/revive-lost-data-on-windows-solution-1-step-by-step-guide-recovering-deleted-items-using-windows-10s-built-in-backup-feature/"><u>Revive Lost Data on Windows # Solution 1: Step-by-Step Guide: Recovering Deleted Items Using Windows 10'S Built-In Backup Feature</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/iuodkeocveocsplusodspluswbnuwplusqeawueazltog44k344k544og44og44oj44op44kk44ow44gu44k144kk44k65yi26zmq44gr44gk44ge44gmig/"><u>パソコン回復方法: システムドライブのサイズ制限について</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unveiling 20 Must-Try YouTube Tricks to Boost Views\""
-date: 2024-11-27T00:11:02.550Z
-updated: 2024-11-27T22:58:41.804Z
+date: 2024-12-05T05:12:16.680Z
+updated: 2024-12-07T06:06:57.101Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ With that said, the following two-columned tables give you detailed information 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
@@ -51,7 +51,7 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
@@ -82,6 +82,10 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -93,6 +97,10 @@ This category talks about managing the video captions using the shortcut keys:
 | 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
 
@@ -117,10 +125,6 @@ The shortcut keys given in this table enable you to switch between different scr
 Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Category 7: Viewing 360o/VR Videos
 
@@ -147,7 +151,7 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -159,10 +163,6 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -185,24 +185,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-howtos.techidaily.com/1723209908371-resolution-tackle-the-stealthy-culprit-of-elevated-system-load-the-invisible-impacts-of-shell-infra-on-your-windows/"><u>(Resolution) Tackle the Stealthy Culprit of Elevated System Load: The Invisible Impacts Of Shell Infra on Your Windows</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ullframe-alliance-how-to-choose-your-mcn-strategically-for-2024/"><u>[New] FullFrame Alliance How to Choose Your MCN Strategically for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-crafting-unique-thumbnails-for-youtube-content/"><u>[New] In 2024, Crafting Unique Thumbnails for YouTube Content</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-freeze-whole-panel-of-content/"><u>[New] In 2024, Freeze Whole Panel of Content</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-meme-makers-playbook-for-widespread-impact-for-2024/"><u>[New] Meme Makers' Playbook for Widespread Impact for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ioneering-avengers-the-marvellous-world-builders-for-2024/"><u>[New] Pioneering Avengers The Marvellous World-Builders for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-streamline-sound-capture-using-audacity-efficiently-on-a-mac-for-2024/"><u>[New] Streamline Sound Capture Using Audacity Efficiently on a Mac for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-7-comedy-youtube-video-ideas-that-only-funny-people-are-allowed-to-try/"><u>[Updated] 2024 Approved 7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-ultimate-windows-11-hacks-and-tips/"><u>[Updated] 2024 Approved Ultimate Windows 11 Hacks and Tips</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-charting-your-course-in-the-world-of-youtube-tracking-success-and-monetary-value/"><u>[Updated] In 2024, Charting Your Course in the World of YouTube Tracking Success & Monetary Value</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-intersection-of-real-and-virtual-defining-mixed-reality/"><u>[Updated] In 2024, The Intersection of Real and Virtual Defining Mixed Reality</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-navigating-facebooks-fresh-features-and-changes/"><u>[Updated] Navigating Facebook's Fresh Features & Changes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/us-gaming-channel-names-for-every-gamer-filmora-for-2024/"><u>100+ Gaming Channel Names for Every Gamer - Filmora for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-decoding-the-social-code-top-30-tips-for-marketing-mastery/"><u>2024 Approved Decoding the Social Code Top 30 Tips for Marketing Mastery</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/sive-youtube-snippet-access-high-quality-free-download-for-2024/"><u>Exclusive YouTube Snippet Access - High Quality, Free Download for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ssing-the-power-of-asynchronous-programming-in-javascript/"><u>Harnessing the Power of Asynchronous Programming in JavaScript</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-zte-axon-40-lite-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your ZTE Axon 40 Lite</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-oppo-reno-9a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Oppo Reno 9A | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ring-your-youtube-video-introduction-perfectly-for-2024/"><u>Tailoring Your YouTube Video Introduction Perfectly for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-crafting-compelling-proposals-a-famebit-guide-to-channel-ads/"><u>[New] 2024 Approved Crafting Compelling Proposals A FameBit Guide to Channel Ads</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/mbrace-cold-choosing-heated-backdrops-for-youtube-for-2024/"><u>[New] Embrace Cold Choosing Heated Backdrops for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-viewpoint-visionaries-capturing-the-essence-with-3-viewpoint-strategies-in-reactions/"><u>[New] In 2024, Viewpoint Visionaries Capturing the Essence with 3 Viewpoint Strategies in Reactions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/treamlining-success-strategies-for-daily-vlog-authenticity-for-2024/"><u>[New] Streamlining Success Strategies for Daily Vlog Authenticity for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-free-webinar-creation-and-management-on-youtube/"><u>[Updated] 2024 Approved Free Webinar Creation & Management on Youtube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-shortening-success-youtubes-leading-link-minimizers-compared/"><u>[Updated] 2024 Approved Shortening Success YouTube's Leading Link Minimizers Compared</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-a-quick-guide-to-chroma-key-background/"><u>[Updated] A Quick Guide to Chroma Key Background</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-maximize-video-reach-with-effective-tags-titles/"><u>[Updated] How to Maximize Video Reach with Effective Tags, Titles</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-diy-dynamics-unlock-creative-animation-potential/"><u>[Updated] In 2024, DIY Dynamics Unlock Creative Animation Potential</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-elevate-your-videos-a-complete-shift-from-sdr-to-hdr/"><u>[Updated] In 2024, Elevate Your Videos A Complete Shift From SDR to HDR</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-overhauen-uncovering-hidden-shorts-content-for-2024/"><u>[Updated] Overhauen Uncovering Hidden Shorts Content for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-infinix-note-30-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Infinix Note 30 | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-monitor-incompatibility-issues-a-guide-for-overcoming-unsupported-input-errors/"><u>Fixing Monitor Incompatibility Issues: A Guide for Overcoming 'Unsupported Input Errors'</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/reviving-the-speakers-expert-guide-to-enabling-audio-on-an-acer-notebook/"><u>Reviving the Speakers: Expert Guide to Enabling Audio on an Acer Notebook</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/supercharge-apple-watch-longevity-with-essential-setting-modifications-expert-guide/"><u>Supercharge Apple Watch Longevity with Essential Setting Modifications - Expert Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Dial Back Unrequested YouTube Recommendations"
-date: 2024-11-21T03:48:09.014Z
-updated: 2024-11-27T17:56:39.125Z
+date: 2024-11-30T01:20:47.930Z
+updated: 2024-12-07T01:28:55.411Z
 tags:
   - ai video
   - ai youtube
@@ -43,9 +43,17 @@ Here’s what you can do about it:
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Manage Your Watch History
 
 ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
 
@@ -53,17 +61,9 @@ You will be able to completely clear your watch history, remove specific videos 
 
 If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tell YouTube You Aren’t Interested
 
 ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
 
@@ -72,10 +72,6 @@ What they do have is a system for you to flag recommendations you don’t like.
 Hover over the thumbnail of a video you don’t want to be recommended to you and a small icon that looks like three stacked dots will appear next to the title. Click on that, and then click **Not Interested**.
 
 When you tell YouTube you aren’t interested in certain videos they use that data to adjust what they recommend for you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## But Why Does It Recommend Stuff I Don’t Like?
 
@@ -90,17 +86,21 @@ The only way to stop certain types of videos from being recommended for you is t
  Are you usually happy with YouTube's recommended videos?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What video editing software did YouTube suggested videos are used?
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -124,16 +124,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/nalyzing-youtube-shorts-economic-impact/"><u>[New] Analyzing YouTube Shorts Economic Impact</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ultivating-the-culture-of-creativity-within-youtube-shorts-for-2024/"><u>[New] Cultivating the Culture of Creativity Within YouTube Shorts for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-easy-pc-capture-tool-windows-10-free-version/"><u>[New] In 2024, Easy PC Capture Tool - Windows 10 Free Version</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-profitability-in-production-starting-a-successful-vlog/"><u>[Updated] 2024 Approved Profitability in Production Starting a Successful Vlog</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-illuminating-your-content-youtube-video-lighting-secrets-for-2024/"><u>[Updated] Illuminating Your Content YouTube Video Lighting Secrets for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-comparing-youtube-video-downloader-apps-on-android/"><u>[Updated] In 2024, Comparing YouTube Video Downloader Apps on Android</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-youth-inspiration-tales-of-overcoming-challenges/"><u>[Updated] In 2024, Youth Inspiration Tales of Overcoming Challenges</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-masterpiece-selection-worldwide-stream-plus-local-channel-aggregation/"><u>[Updated] Masterpiece Selection Worldwide Stream + Local Channel Aggregation</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-from-emotion-to-entertainment-the-artisans-approach-to-making-memes-gifs/"><u>In 2024, From Emotion to Entertainment The Artisan’s Approach to Making Memes (GIFs)</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/leveraging-health-data-in-online-healthcare-ads/"><u>Leveraging Health Data in Online Healthcare Ads</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/solving-the-puzzle-restoring-your-partially-faded-memories/"><u>Solving the Puzzle: Restoring Your Partially Faded Memories</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-visionary-tools-free-environmental-props/"><u>[New] 2024 Approved Visionary Tools Free Environmental Props</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-step-by-step-instructions-for-activating-high-dynamic-range-in-windows-11-for-2024/"><u>[Updated] Step-by-Step Instructions for Activating High Dynamic Range in Windows 11 for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtubes-cp2024-guide-channel-entry-and-earning-explained/"><u>[Updated] YouTube's CP2024 Guide Channel Entry & Earning Explained</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-behind-the-scenes-filmmaking-tips-from-youtube-experts/"><u>2024 Approved Behind-the-Scenes Filmmaking Tips From YouTube Experts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-prime-video-to-text-technology-now/"><u>2024 Approved Prime Video-to-Text Technology, Now</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fixing-intellij-unison-crashes-in-windows-11/"><u>Fixing IntelliJ Unison Crashes in Windows 11</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614586-9781635862393-high-vibe-feng-shui/"><u>High-Vibe Feng Shui | Free Book</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-samsung-galaxy-a54-5g-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Samsung Galaxy A54 5G</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-your-step-by-step-guide-to-building-a-profitable-channel/"><u>In 2024, Your Step-by-Step Guide to Building a Profitable Channel</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/from-the-couch-the-essential-dos-and-donts-of-home-streaming/"><u>Live From the Couch The Essential Do's & Don'ts of Home Streaming</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/master-your-mornings-a-selection-of-our-top-7-alarm-clock-apps/"><u>Master Your Mornings: A Selection of Our Top 7 Alarm Clock Apps</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-resolving-oeserverdll-absence-errors/"><u>Step-by-Step Guide: Resolving oeserver.dll Absence Errors</u></a></li>
+<li><a href="https://games-able.techidaily.com/unveiling-beyerdynamics-mmx-200-soundscape/"><u>Unveiling Beyerdynamic's MMX 200 Soundscape</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-10-vs-windows-11-all-the-major-changes/"><u>Windows 10 vs Windows 11: All the Major Changes</u></a></li>
 </ul></div>
 

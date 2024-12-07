@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Starting a Channel with Confidence – Your Essential Kit for 2024"
-date: 2024-08-23T06:43:38.805Z
-updated: 2024-08-24T06:43:38.805Z
+date: 2024-12-05T21:02:33.936Z
+updated: 2024-12-07T05:20:19.105Z
 tags:
   - ai video
   - ai youtube
@@ -60,9 +60,6 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -75,6 +72,10 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -86,15 +87,13 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
 **The long version:** Recording your videos with a mobile phone can be a good decision. It all depends on the phone you have and the range of add-ons and apps that you complement it with. Almost every high-end model released in the past five years can shoot videos in 1080p or higher. Some can even produce 4K footage. If you perfect your smartphone filming technique, your YouTube videos could look as if they were made with pro equipment.
@@ -104,34 +103,34 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,4 +139,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-handhinas-and-lenses-for-journey-shots/"><u>[New] 2024 Approved Handhinas and Lenses for Journey Shots</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-converting-classics-digitizing-and-archiving-past-photos/"><u>[New] Converting Classics Digitizing and Archiving Past Photos</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-enable-adaptive-hdr-tutorial-for-windows-11/"><u>[New] Enable Adaptive HDR Tutorial for Windows 11</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ow-much-does-youtube-pay-for-1-million-views-in-2024/"><u>[New] How Much Does YouTube Pay for 1 Million Views, In 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-complete-insight-the-full-picture-of-bublcam-360/"><u>[New] In 2024, Complete Insight The Full Picture of Bublcam 360</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-igniting-online-trends-crafting-viral-facebook-posts/"><u>[New] In 2024, Igniting Online Trends Crafting Viral Facebook Posts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-youtube-shorts-demystified-in-30-minutes/"><u>[New] In 2024, YouTube Shorts Demystified in 30 Minutes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-chortle-chamber-ideas-for-7-amusing-online-sessions/"><u>[Updated] 2024 Approved Chortle Chamber Ideas for 7 Amusing Online Sessions</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-unpacking-tunefab-written-review-on-latest-tech-for-screen-recording/"><u>[Updated] 2024 Approved Unpacking Tunefab' Written Review on Latest Tech for Screen Recording</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-the-experts-handbook-for-srt-file-conversions/"><u>[Updated] In 2024, The Expert's Handbook for SRT File Conversions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtube-listening-made-easy-with-direct-recording/"><u>[Updated] YouTube Listening Made Easy with Direct Recording</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-direct-route-uploading-from-youtube-to-dailymotion/"><u>2024 Approved Direct Route Uploading From YouTube to Dailymotion</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-undo-youtubes-timeline-with-our-4-key-methods/"><u>2024 Approved Undo YouTube's Timeline with Our 4 Key Methods</u></a></li>
+<li><a href="https://win11.techidaily.com/batch-transformation-heic-to-jpeg-in-windows/"><u>Batch Transformation: HEIC to JPEG in Windows</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/te-your-content-visibility-discover-6-thumbnail-designers-best-tools-for-2024/"><u>Elevate Your Content Visibility - Discover 6 Thumbnail Designers' Best Tools for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-realme-c51-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Realme C51 Phone Screen?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/se-the-norm-creative-methods-for-backward-youtube-watching-for-2024/"><u>Reverse the Norm Creative Methods for Backward Youtube Watching for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/cket-traffic-secrets-to-attract-more-viewers-online/"><u>Skyrocket Traffic Secrets to Attract More Viewers Online</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-fcp-hall-of-fame-10-iconic-films-edited-with-final-cut-pro/"><u>Updated 2024 Approved FCP Hall of Fame 10 Iconic Films Edited with Final Cut Pro</u></a></li>
+</ul></div>
 

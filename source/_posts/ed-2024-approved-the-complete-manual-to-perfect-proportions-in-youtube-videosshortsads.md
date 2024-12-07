@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Complete Manual to Perfect Proportions in YouTube Videos/Shorts/Ads\""
-date: 2024-11-22T05:07:22.326Z
-updated: 2024-11-28T02:54:59.304Z
+date: 2024-12-03T04:33:53.395Z
+updated: 2024-12-07T00:26:57.940Z
 tags:
   - ai video
   - ai youtube
@@ -72,7 +72,7 @@ The world is moving swiftly, and with day passing, people want to complete their
 ![youtube shorts ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-ratio.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily follows Vertical format. Following are the requirement for YouTube Shorts Ratio:
@@ -92,7 +92,7 @@ If you want to monetize from your video or Shorts, use YouTube Ads to generate a
 ![youtube-ads-aspect-ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-ads-aspect-ratio.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now, you might be wondering, what would be the possible YouTube Outro size or YouTube Video Aspect Ratio for YouTube Ads? Check here:
@@ -106,7 +106,7 @@ Sponsor Card Ads Ratio: 1:1
 True View Discovery Ads Ratio: 16:9 or 4:3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4 Think More about YouTube Aspect Ratio
@@ -116,6 +116,10 @@ You have been listening about YouTube Screen size or YouTube Aspect Ratio so far
 Are you puzzled?
 
 ![how to set aspect ratio](https://images.wondershare.com/filmora/article-images/2021/how-to-set-aspect-ratio.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Yeah! Wait, there is the solution. Edit the aspect ratio of your video before uploading it under the YouTube Platform. For that purpose, there is one option named [Wondershae Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) That is used to provide you with the Aspect ratio editing and modification option.
 
@@ -134,7 +138,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 ![wondershare filmora](https://images.wondershare.com/filmora/article-images/2021/filmora-video.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 There is another option also, after launching the software, upload your project video. Then, under Project settings, change and set the required aspect ratio.
@@ -142,10 +146,6 @@ There is another option also, after launching the software, upload your project 
 ![filmora project settings](https://images.wondershare.com/filmora/article-images/2021/filmora-project-settings.jpg)
 
 Simple isn't it. Yes, the process is quite simple. You can easily change YouTube Video size dimensions without any hassle using Wondershare Filmora editor and that quickly. So, get up and record some interesting YouTube videos or Shorts, mix them up with colors, spicy talk, and change the aspect ratio with ease. You are ready to rock the world of YouTube videos with these simple steps, the right approach that most YouTube Videomakers follow worldwide.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -168,21 +168,20 @@ Aspect ratio is simply the width to the height ratio for the screen. But it hold
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-excellence-squad-selecting-top-7-fps-games-for-2024/"><u>[New] Excellence Squad Selecting Top 7 FPS Games for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-glow-innovations-outshining-videos-through-design-for-2024/"><u>[New] Glow Innovations Outshining Videos Through Design for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ubebuddy-the-key-to-youtube-dominance-for-2024/"><u>[New] TubeBuddy The Key to YouTube Dominance for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-troubleshooting-techniques-for-optimized-video-shorts/"><u>[Updated] 2024 Approved Troubleshooting Techniques for Optimized Video Shorts</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-enhancing-youtube-content-with-free-music-sources/"><u>[Updated] Enhancing YouTube Content with Free Music Sources</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-snagging-youtube-vanished-videos-your-2-path-guide-for-2024/"><u>[Updated] Snagging YouTube Vanished Videos Your 2-Path Guide for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-iphoneplusandroid-discover-the-top-10-video-making-picks/"><u>2024 Approved IPhone+Android Discover the Top 10 Video-Making Picks</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-the-ultimate-framework-for-crafting-compelling-live-video-thumbnails/"><u>2024 Approved The Ultimate Framework for Crafting Compelling Live Video Thumbnails</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/7-key-reddit-techniques-to-elevate-your-startups-brand-visibility-for-2024/"><u>7 Key Reddit Techniques to Elevate Your Startup's Brand Visibility for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/comparing-standard-video-to-immersive-vr-experiences/"><u>Comparing Standard Video to Immersive, VR Experiences</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/easy-tutorial-launching-the-disk-utility-panel-in-windows-11/"><u>Easy Tutorial: Launching the Disk Utility Panel in Windows 11</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/gamers-guide-top-handheld-console-sweepstakes-under-100-awaits-you/"><u>Gamer's Guide: Top Handheld Console Sweepstakes Under $100 Awaits You!</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-samsung-galaxy-m14-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Samsung Galaxy M14 4G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-xr-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone XR without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/est-cameras-for-youtube-from-beginners-to-professionals-for-2024/"><u>The Best Cameras for YouTube From Beginners to Professionals for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-the-ultimate-guide-to-generating-speech-in-different-languages-with-the-best-tools/"><u>Updated The Ultimate Guide to Generating Speech in Different Languages With the Best Tools</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-realtime-idevice-screen-record-latest-methods/"><u>[New] 2024 Approved Realtime iDevice Screen Record - Latest Methods</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-from-simple-to-sophisticated-mastering-zd-softs-video-recording-techniques/"><u>[New] In 2024, From Simple to Sophisticated Mastering ZD Soft's Video Recording Techniques</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aximize-engagement-with-integrated-youtube-playlist-features-for-2024/"><u>[New] Maximize Engagement with Integrated YouTube Playlist Features for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/remium-7-vlog-cameras-boosting-audience-engagement-and-retention/"><u>[New] Premium 7 Vlog Cameras Boosting Audience Engagement & Retention</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-critical-game-analysis-from-top-creators/"><u>[Updated] 2024 Approved Critical Game Analysis From Top Creators</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-the-art-of-engaging-audiences-with-facebooks-split-screen-tech/"><u>[Updated] In 2024, The Art of Engaging Audiences with Facebook's Split Screen Tech</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-elite-makeup-vloggers-shaping-2024s-beauty-scene/"><u>[Updated] The Elite Makeup Vloggers Shaping 2024'S Beauty Scene</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-step-by-step-solution-for-non-shown-shorts-thumbnails-on-youtube/"><u>2024 Approved Step-by-Step Solution for Non-Shown Shorts Thumbnails on YouTube</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/enhancing-collaboration-with-snap-camera-techniques/"><u>Enhancing Collaboration with Snap Camera Techniques</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-ultimate-guide-to-youtube-thumbnail-crafting/"><u>In 2024, The Ultimate Guide to YouTube Thumbnail Crafting</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insightful-review-unpacking-the-features-of-onetastic-for-onenote-users/"><u>Insightful Review: Unpacking the Features of Onetastic for OneNote Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rate-youtube-content-into-google-slides-effectively-for-2024/"><u>Integrate YouTube Content Into Google Slides Effectively for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/pcs-premiere-selection-of-ps3-game-simulations/"><u>PC's Premiere Selection of PS3 Game Simulations</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-intermittent-sound-issues-in-windows-10-solutions-unveiled/"><u>Troubleshooting Intermittent Sound Issues in Windows 10 - Solutions Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/value-vs-expense-a-comprehensive-review-of-the-highly-designed-amazon-kindle-oasis/"><u>Value Vs. Expense: A Comprehensive Review of the Highly Designed Amazon Kindle Oasis</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Duration Decoded  A Guide to Editing YouTube Videos\""
-date: 2024-08-23T06:46:02.061Z
-updated: 2024-08-24T06:46:02.061Z
+date: 2024-12-05T02:05:30.829Z
+updated: 2024-12-07T05:45:48.152Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ For instance, the application is offering non-linear ripple video editing. This 
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Edit YouTube Video Length Using the built-in Video Editor
 
 The YouTube video editor is easy to use, and you can easily learn how to do all sorts of changes to your video. Let's see the things that you need to go through in order to edit the length.
@@ -46,6 +50,10 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
 #### Step 2 Import Your Video
@@ -54,11 +62,19 @@ Once you've done all of the above, you would have to drag your video in order to
 
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 3 Edit the Length
 
 This is the part where you actually get to edit the length of your video. In order to do so effectively, you have to drag the bar at either end of your clip towards the other end in order to shorten the clip conveniently.
 
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
 
@@ -68,20 +84,21 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -90,8 +107,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-review-of-huawei-p10s-multimedia-features-and-functionality/"><u>[New] 2024 Approved Review of Huawei P10’s Multimedia Features & Functionality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-chromebook-zoom-excellence-must-know-strategies/"><u>[New] Chromebook Zoom Excellence Must-Know Strategies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-outshine-others-expert-tips-on-making-youtube-shorts-pop/"><u>[New] In 2024, Outshine Others Expert Tips on Making YouTube Shorts Pop</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-youtube-finale-ultimate-tutorials-plus-top-creators-insights/"><u>[New] In 2024, YouTube Finale Ultimate Tutorials + Top Creators' Insights</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-complete-manual-to-perfect-proportions-in-youtube-videosshortsads/"><u>[Updated] 2024 Approved The Complete Manual to Perfect Proportions in YouTube Videos/Shorts/Ads</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-alternative-editors-for-youtube-creators-seeking-new-horizons-for-2024/"><u>[Updated] Best Alternative Editors for YouTube Creators Seeking New Horizons for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-discovering-8-honestly-endorsed-promotional-strategies/"><u>[Updated] Discovering 8 Honestly-Endorsed Promotional Strategies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-stream-to-script-service/"><u>[Updated] In 2024, Stream-to-Script Service</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-fast-footsteps-simple-recording-for-dell-pcs/"><u>2024 Approved Fast Footsteps Simple Recording for Dell PCs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-text-that-moves-two-fascinating-techniques-revealed/"><u>2024 Approved Text That Moves Two Fascinating Techniques Revealed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-prime-camera-nikon-a10-usability-woes/"><u>Budget-Prime Camera - Nikon A10 Usability Woes</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-creative-webcam-drivers-for-your-windows-computer-download-and-installation-guide/"><u>Get the Latest Creative Webcam Drivers for Your Windows Computer – Download & Installation Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-oppo-a58-4g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Oppo A58 4G online without jailbreak</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-samsung-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Samsung?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Vivo X100? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rriers-only-creativity-learn-cost-free-background-substitution-with-4-youtube-pros-for-2024/"><u>No Barriers, Only Creativity Learn Cost-Free Background Substitution with 4 YouTube Pros for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ize-your-channels-an-introduction-to-youtube-statistics/"><u>Optimize Your Channels An Introduction to YouTube Statistics</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/asy-path-to-professional-looking-youtube-shorts-for-2024/"><u>The Easy Path to Professional-Looking YouTube Shorts for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/uncovering-average-earnings-podcaster-edition/"><u>Uncovering Average Earnings Podcaster Edition</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
