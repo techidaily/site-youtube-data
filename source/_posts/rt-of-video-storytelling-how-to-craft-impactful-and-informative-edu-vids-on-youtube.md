@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of Video Storytelling  How to Craft Impactful and Informative Edu-Vids on YouTube\""
-date: 2024-08-23T06:40:11.857Z
-updated: 2024-08-24T06:40:11.857Z
+date: 2024-12-06T20:02:39.889Z
+updated: 2024-12-13T06:34:37.638Z
 tags:
   - ai video
   - ai youtube
@@ -62,9 +62,6 @@ Making your videos focused and not running around many things helps it pass the 
 
 Any educational content should be centered to meet the needs of the students. That goes beyond creating content, but covers the entirety of satisfying the needs of your learners.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3\. How to Make a Great Educational Video for YouTube?
 
 The best and most recommendable video maker for making a great educational video is [**Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/).It is a video maker that enables you to create videos with effects like transition, filters, motion elements, and titles on your video.
@@ -74,16 +71,18 @@ Color grading and speed control of each clip on your video are possible using Fi
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 To make a great educational video for YouTube, you can achieve this using Filmora. Follow the steps below.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step 1\. Launch Filmora and select the aspect ratio
 
 Launch Filmora by double-clicking on the icon, and start working on a new project by selecting project aspect ratio.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 2\. Create a new project and import footage
 
@@ -91,13 +90,14 @@ Click the “New Project” icon on the program’s welcome screen and wait for 
 
 Then, move to choose your desired aspect ratio and click on the import footage icon located at the left corner of the video editor.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 3\. Organize your project material
 
 At the bottom of the "My Project" tab, click on "add a new folder". In that new folder, arrange the footage alphabetically. This reduces time spent browsing files and increases efficiency.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ### Step 4\. Preview and edit your video
 
 Press the play icon to preview the video clip. Trim your video clip to the desired video size by dragging the end of the video clip left or right.
@@ -105,11 +105,16 @@ Press the play icon to preview the video clip. Trim your video clip to the desir
 Then add customized text and add effects to the video if needed. An amazing effect can be added to each clip of the video to create an outstanding video.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Step 5\. Export and share the video
 
 When you're okay with the already made video, click the **Export** button. Choose the **YouTube** option to upload it easily from the Filmora program.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -119,23 +124,17 @@ Thus, with the steps mentioned above, **how to make a great educational video fo
 
 ![author avatar](https://images.wondershare.fr/filmora/filmora/MarionDubois.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 Marion Dubois
 
 Marion Dubois is a writer and a lover of all things video.
 
 Follow @Marion Dubois
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,4 +143,22 @@ Follow @Marion Dubois
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ini-stories-decoded-whats-inside/"><u>[New] Mini Stories Decoded What's Inside?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-all-weather-action-cameras-ranking-top-7-summary/"><u>[Updated] 2024 Approved All-Weather Action Cameras Ranking, Top 7 Summary</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-prime-listening-guide-to-youtube-standards/"><u>[Updated] 2024 Approved The Prime Listening Guide to YouTube Standards</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-yogic-journey-discovering-top-online-practitioners/"><u>[Updated] 2024 Approved Yogic Journey Discovering Top Online Practitioners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-counterclockwise-watch-how-to-unravel-your-youtube-sequence-for-2024/"><u>[Updated] Counterclockwise Watch How to Unravel Your YouTube Sequence for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-how-to-produce-eye-catching-and-informative-videos-for-education-channels/"><u>[Updated] In 2024, How to Produce Eye-Catching and Informative Videos for Education Channels</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-optimal-zoom-for-your-videos-top-10-editor-guide/"><u>[Updated] Optimal Zoom for Your Videos - Top 10 Editor Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-prime-video-to-text-technology-now-for-2024/"><u>[Updated] Prime Video-to-Text Technology, Now for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722990374190-black-ops-cold-war-update-clearing-stubborn-shader-compilation-glitches-successfully/"><u>Black Ops Cold War Update - Clearing Stubborn Shader Compilation Glitches Successfully!</u></a></li>
+<li><a href="https://win-great.techidaily.com/como-habilitar-la-transferencia-automatica-de-archivos-entre-carpetas-locales-y-su-nas-synology-mediante-windows/"><u>Cómo Habilitar La Transferencia Automática De Archivos Entre Carpetas Locales Y Su NAS Synology Mediante Windows</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-iphone-13-pro-max-storage-not-loadingshowing-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix iPhone 13 Pro Max Storage Not Loading/Showing | Stellar</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-411-on-navigating-youtube-shorts/"><u>In 2024, The 411 on Navigating YouTube Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-your-gateway-to-youtube-entrepreneurship-the-best-10-easy-to-create-channels/"><u>In 2024, Your Gateway to YouTube Entrepreneurship The Best 10 Easy-to-Create Channels</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/simple-troubleshooting-steps-for-a-non-functioning-hangouts-microphone/"><u>Simple Troubleshooting Steps for a Non-Functioning Hangouts Microphone</u></a></li>
+</ul></div>
 

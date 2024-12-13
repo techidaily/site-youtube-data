@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Embracing Resilience Against Online Detractors"
-date: 2024-08-23T06:40:33.151Z
-updated: 2024-08-24T06:40:33.151Z
+date: 2024-12-06T16:38:08.901Z
+updated: 2024-12-12T20:24:15.646Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/a6c09f57496c52b8e907a972b91ffe1ac4bdb6bfa
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/a6c09f57496c52b8e907a972b91ffe1ac4bdb6bfa
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ehind-the-numbers-deciphering-how-youtube-measures-popularity/"><u>[New] Behind the Numbers Deciphering How YouTube Measures Popularity</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-customizing-youtube-viewing-policies-for-your-content/"><u>[New] Customizing YouTube Viewing Policies for Your Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-revolutionize-your-video-content-with-vce-22-mastery-for-2024/"><u>[New] Revolutionize Your Video Content with VCE 2.2 Mastery for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-snowboard-cross-winter-olympics-2022-highlights/"><u>[New] Snowboard Cross Winter Olympics 2022 Highlights</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-instagram-sequence-steps-to-reach-1k-monthly-followers/"><u>[New] The Instagram Sequence Steps to Reach 1K Monthly Followers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-innovative-templates-to-amplify-yt-decks/"><u>[Updated] 2024 Approved Innovative Templates to Amplify YT Decks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-fast-favorites-todays-highest-youtube-tracks/"><u>[Updated] Fast Favorites Today's Highest Youtube Tracks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-avoiding-the-bottom-ranks-understanding-impactful-factors/"><u>[Updated] In 2024, Avoiding the Bottom Ranks Understanding Impactful Factors</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-echoes-in-motion-mac-for-sound-artists/"><u>[Updated] In 2024, Echoes in Motion Mac for Sound Artists</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-tapping-into-trending-topics-for-videography-ideas-via-google-for-2024/"><u>[Updated] Tapping Into Trending Topics for Videography Ideas via Google for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-elevate-your-youtube-presence-banners-for-gamers/"><u>2024 Approved Elevate Your YouTube Presence Banners for Gamers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-ranking-youtube-download-apps-for-android-users/"><u>2024 Approved Ranking YouTube Download Apps for Android Users</u></a></li>
+<li><a href="https://win-best.techidaily.com/achieve-precision-scanning-master-the-art-of-calibration-using-yl-computing-solutions/"><u>Achieve Precision Scanning: Master the Art of Calibration Using YL Computing Solutions</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/androvid-video-editor-complete-review/"><u>AndroVid Video Editor – Complete Review</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/how-to-create-an-easily-startable-backup-on-windows-11-two-simple-methods/"><u>How to Create an Easily-Startable Backup on Windows 11: Two Simple Methods</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eginners-blueprint-for-creating-a-sports-chain-on-mac-for-2024/"><u>The Beginner's Blueprint for Creating a Sports Chain on Mac for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->

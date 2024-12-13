@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Creating Compelling Solo Videos on a Budget"
-date: 2024-08-23T06:38:05.082Z
-updated: 2024-08-24T06:38:05.082Z
+date: 2024-12-09T03:01:54.096Z
+updated: 2024-12-13T13:13:58.332Z
 tags:
   - ai video
   - ai youtube
@@ -37,11 +37,12 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -56,9 +57,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -73,9 +71,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -85,8 +80,9 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4.  Long Teleprompter Vlog Set-Up
 
 If you want to read over a script but still make it appear like you’re looking straight into the camera, you’ll need to use a long teleprompter vlog set-up.
@@ -104,34 +100,36 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,4 +138,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-infusing-life-into-text-instagram-story-animations-tips-for-2024/"><u>[New] Infusing Life Into Text Instagram Story Animations Tips for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-selecting-fps-for-videos-why-not-both-30-or-60-for-2024/"><u>[New] Selecting FPS for Videos Why Not Both, 30 or 60 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-list-of-11-affordable-channel-titles-makers/"><u>[New] The Ultimate List of 11 Affordable Channel Titles Makers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-double-trouble-replaying-youtube-videos-on-your-set/"><u>[Updated] 2024 Approved Double Trouble Replaying YouTube Videos on Your Set</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-simple-way-to-control-comment-functionality-in-youtube/"><u>[Updated] 2024 Approved The Simple Way to Control Comment Functionality in YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-hide-and-seek-with-fb-episodes/"><u>[Updated] In 2024, Hide-and-Seek with FB Episodes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-perfecting-your-presence-mastery-of-title-and-tag-use-on-youtube/"><u>[Updated] Perfecting Your Presence Mastery of Title and Tag Use on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unveiling-the-top-15-no-cost-audio-archives-for-content-makers-for-2024/"><u>[Updated] Unveiling the Top 15 No-Cost Audio Archives for Content Makers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-capture-chuckles-quickly-efficient-methods-for-exciting-youtube-reaction-videos-3-tips/"><u>2024 Approved Capture Chuckles Quickly Efficient Methods for Exciting YouTube Reaction Videos (3 Tips)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-ensuring-visibility-fixing-missing-shorts-thumbnails/"><u>2024 Approved Ensuring Visibility Fixing Missing Shorts Thumbnails</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-pinpoint-premium-video-keywords-on-youtube/"><u>2024 Approved How to Pinpoint Premium Video Keywords on YouTube</u></a></li>
+<li><a href="https://discover-able.techidaily.com/complete-guide-to-enabling-and-performing-a-sound-inclusive-screen-capture-on-your-microsoft-surface-pc-or-tablet-updated-for-202/"><u>Complete Guide to Enabling and Performing a Sound-Inclusive Screen Capture on Your Microsoft Surface PC or Tablet (Updated for 202^)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/sive-dj-design-samples-high-quality-downloads-ready/"><u>Exclusive DJ Design Samples High-Quality Downloads Ready</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/lating-impressive-online-media-introductions/"><u>Formulating Impressive Online Media Introductions</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-the-ultimate-fcp-guide-5-time-saving-editing-tricks-you-need-to-know/"><u>New 2024 Approved The Ultimate FCP Guide 5 Time-Saving Editing Tricks You Need to Know</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/razer-keyboard-issues-why-isnt-it-lights-up-solutions-inside/"><u>Razer Keyboard Issues - Why Isn't It Lights Up? Solutions Inside!</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-expert-recommended-avi-cutters-top-16-for-precise-video-editing-multi-device/"><u>Updated In 2024, Expert-Recommended AVI Cutters Top 16 for Precise Video Editing Multi-Device</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Shots to Screens  The Importance of Camera Lenses in Vlogs\""
-date: 2024-12-05T06:10:28.658Z
-updated: 2024-12-06T18:50:52.066Z
+date: 2024-12-11T12:33:20.271Z
+updated: 2024-12-13T05:11:53.003Z
 tags:
   - ai video
   - ai youtube
@@ -61,6 +61,10 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -84,7 +88,7 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Crop Factor
@@ -111,7 +115,7 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Aperture
@@ -119,7 +123,7 @@ This table shows you the focal lengths needed to achieve the same shot between c
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
@@ -146,10 +150,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -165,7 +165,7 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -189,18 +189,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-digital-color-standards-in-review-rgb-vs-srgb-breakdown/"><u>[Updated] In 2024, Digital Color Standards in Review Rgb vs Srgb Breakdown</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-essential-free-apps-for-youtube-to-wav-transformation/"><u>[Updated] In 2024, Essential Free Apps for YouTube to WAV Transformation</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-premier-10plus-free-video-intro-creators/"><u>2024 Approved Premier 10+ Free Video Intro Creators</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-why-no-sound-the-twitter-video-amplification-guide/"><u>2024 Approved Why No Sound? The Twitter Video Amplification Guide</u></a></li>
-<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Infinix Smart 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-unique.techidaily.com/effiziente-externe-hdd-synchro-mit-windows-11-zwei-strategien-fur-optimale-datenubertragung/"><u>Effiziente Externe HDD-Synchro Mit Windows 11: Zwei Strategien Für Optimale Datenübertragung</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/y-yet-warm-choosing-the-best-winter-backdrops/"><u>Frosty Yet Warm Choosing the Best Winter Backdrops</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/navigate-apple-music-offers-for-students-secure-the-perks-with-easy-steps/"><u>Navigate Apple Music Offers for Students - Secure the Perks with Easy Steps!</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/revive-your-samsung-soundbar-expert-tips-for-restoring-functionality/"><u>Revive Your Samsung Soundbar: Expert Tips for Restoring Functionality</u></a></li>
-<li><a href="https://win11.techidaily.com/unblocking-windowed-discords-hindered-search-feature/"><u>Unblocking Windowed Discord's Hindered Search Feature</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/uncovering-the-reason-behind-no-sound-on-windows-media-player-and-how-to-resolve-it/"><u>Uncovering the Reason Behind No Sound on Windows Media Player and How to Resolve It</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/watching-harry-potter-movies-in-proper-sequence-a-comprehensive-guide/"><u>Watching Harry Potter Movies in Proper Sequence: A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/be-shorts-mastery-tackling-common-issues-for-2024/"><u>YouTube Shorts Mastery Tackling Common Issues for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-ideal-plot-crafting-platform/"><u>[New] 2024 Approved Ideal Plot Crafting Platform</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snap-into-action-quick-tips-for-cellphone-screen-capture-for-2024/"><u>[New] Snap Into Action Quick Tips for Cellphone Screen Capture for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-break-it-down-streamlining-video-length-with-efficient-chapter-breaks-on-youtube/"><u>[Updated] 2024 Approved Break It Down Streamlining Video Length with Efficient Chapter Breaks on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-design-principles-for-eye-catching-yt-previews/"><u>[Updated] 2024 Approved Design Principles for Eye-Catching YT Previews</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-harness-your-view-count-cross-platform-studio-methods/"><u>[Updated] 2024 Approved Harness Your View Count Cross-Platform Studio Methods</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-your-blueprint-to-youtube-success-top-tips-for-outstanding-shorts/"><u>[Updated] 2024 Approved Your Blueprint to Youtube Success Top Tips for Outstanding Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-amplifying-video-reach-the-ultimate-guide-for-youtube-enthusiasts/"><u>[Updated] Amplifying Video Reach The Ultimate Guide for YouTube Enthusiasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/harnessing-free-clip-art-legally-for-2024/"><u>Harnessing Free Clip Art Legally for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-fast-track-to-using-ez-grabber-effectively-and-efficiently/"><u>In 2024, Fast Track to Using EZ Grabber Effectively & Efficiently</u></a></li>
 </ul></div>
 

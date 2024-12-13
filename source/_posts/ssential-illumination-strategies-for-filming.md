@@ -1,7 +1,7 @@
 ---
 title: "[New] Essential Illumination Strategies for Filming"
-date: 2024-08-23T06:38:07.455Z
-updated: 2024-08-24T06:38:07.455Z
+date: 2024-12-11T13:02:06.896Z
+updated: 2024-12-13T03:13:40.926Z
 tags:
   - ai video
   - ai youtube
@@ -28,9 +28,17 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -44,11 +52,12 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -76,8 +85,9 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -85,31 +95,26 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -118,4 +123,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-efficiently-documenting-your-fb-chats-and-meets/"><u>[New] 2024 Approved Efficiently Documenting Your FB Chats & Meets</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-xsplit-exclusive-direct-split-insight/"><u>[New] 2024 Approved XSplit Exclusive Direct Split Insight</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nhancing-youtube-content-with-text-overlays-for-2024/"><u>[New] Enhancing YouTube Content with Text Overlays for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-youtube-gold-secrets-5-proven-marketing-strategies-revealed/"><u>[New] In 2024, YouTube Gold Secrets 5 Proven Marketing Strategies Revealed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-video-wizardry-techniques-for-massive-reach/"><u>[New] Instagram Video Wizardry Techniques for Massive Reach</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/avigating-and-adapting-youtubes-evolving-policy-landscape/"><u>[New] Navigating and Adapting YouTube's Evolving Policy Landscape</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-navigating-modern-and-future-terrain-with-drones-for-2024/"><u>[New] Navigating Modern and Future Terrain with Drones for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ropel-your-youtube-presence-with-google-analytics-skills/"><u>[New] Propel Your YouTube Presence with Google Analytics Skills</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-rise-and-challenges-of-video-streaming-profits/"><u>[Updated] 2024 Approved The Rise and Challenges of Video Streaming Profits</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-8-premium-complimentary-streaming-media-processors-for-2024/"><u>[Updated] 8 Premium Complimentary Streaming Media Processors for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-brain-teasers-galore-choose-your-top-escapes/"><u>[Updated] Brain Teasers Galore Choose Your Top Escapes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-swift-sketching-for-fortnite-game-titles-for-2024/"><u>[Updated] Swift Sketching for Fortnite Game Titles for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unlock-your-marketing-potential-with-our-50plus-free-youtube-banners/"><u>[Updated] Unlock Your Marketing Potential with Our 50+ Free YouTube Banners</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-crafting-captivating-content-uploading-h-videos-for-igtv-success/"><u>2024 Approved Crafting Captivating Content Uploading H-Videos for IGTV Success</u></a></li>
+<li><a href="https://fox-place.techidaily.com/elevate-your-computing-experience-with-an-ssd-upgrade-on-the-acer-aspire-5/"><u>Elevate Your Computing Experience with an SSD Upgrade on the Acer Aspire 5</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Samsung Galaxy M14 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-ultimate-list-of-influential-biz-channels-online/"><u>In 2024, The Ultimate List of Influential Biz Channels Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-unveiling-the-top-10-youtube-makeup-maestros-to-follow/"><u>In 2024, Unveiling the Top 10 YouTube Makeup Maestros to Follow</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-unleash-your-creativity-simple-gopro-hd-video-editing-techniques-for-2024/"><u>Updated Unleash Your Creativity Simple GoPro HD Video Editing Techniques for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Creating Cost-Effective YouTube Closure Elements\""
-date: 2024-08-23T06:37:39.620Z
-updated: 2024-08-24T06:37:39.620Z
+date: 2024-12-09T14:29:20.602Z
+updated: 2024-12-12T16:37:20.362Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/6dfe7c6db7f80e87ac6b399dc687e52e1d331efd7
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/emystifying-creator-studio-a-practical-handbook/"><u>[New] Demystifying Creator Studio A Practical Handbook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-direct-send-from-camera-roll-your-easy-to-follow-guide-for-2024/"><u>[New] Direct Send From Camera Roll Your Easy-to-Follow Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-use-youtube-enhancements-to-improve-video-quality/"><u>[New] In 2024, How to Use YouTube Enhancements to Improve Video Quality</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-iosplusandroid-guide-to-invisible-youtube-viewing/"><u>[New] In 2024, IOS+Android Guide to Invisible YouTube Viewing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-ultimate-screenshot-and-recorder-windows-10/"><u>[New] Ultimate Screenshot & Recorder, Windows 10</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nleashing-inspiration-ideas-for-engaging-channels-for-2024/"><u>[New] Unleashing Inspiration Ideas for Engaging Channels for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-steps-to-acquire-fcp-for-zero-dollars/"><u>[Updated] 2024 Approved Steps to Acquire FCP for Zero Dollars</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-discovering-youtubes-green-magic-for-effective-filming/"><u>[Updated] In 2024, Discovering Youtube's Green Magic for Effective Filming</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-from-conference-room-to-youtube-google-meet-broadcasting/"><u>[Updated] In 2024, From Conference Room to Youtube Google Meet Broadcasting</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-master-class-in-live-streaming-your-pathway-to-successful-youtube-channels-via-wirecast/"><u>[Updated] In 2024, Master Class in Live Streaming Your Pathway to Successful Youtube Channels via WireCast</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-understanding-how-youtube-processes-videos-after-they-are-uploaded/"><u>[Updated] In 2024, Understanding How YouTube Processes Videos After They Are Uploaded</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-navigating-content-distribution-a-close-look-at-igtv-and-youtube-for-2024/"><u>[Updated] Navigating Content Distribution A Close Look at IGTV and YouTube for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-superior-streaming-services-for-musicians-for-2024/"><u>[Updated] Superior Streaming Services for Musicians for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/re-youtube-video-in-screenshot-forms-for-free-for-2024/"><u>Capture YouTube Video in Screenshot Forms for Free for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/how-a-lengthy-filename-may-cause-system-issues/"><u>How a Lengthy Filename May Cause System Issues</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-complete-guide-to-optimizing-your-picsart-experience/"><u>In 2024, Complete Guide to Optimizing Your PicsArt Experience</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-iphone-15-pro-max-for-free-by-drfone-ios/"><u>In 2024, How To Unlock Cricket iPhone 15 Pro Max for Free</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premier-iphone-x8-series-gif-apps-reviewed/"><u>In 2024, Premier iPhone X/8 Series GIF Apps Reviewed</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-xerox-printer-update-error-0x800f020b-step-by-step-fix-for-windows-users/"><u>Overcoming Xerox Printer Update Error 0X800f020b: Step-by-Step Fix for Windows Users</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
