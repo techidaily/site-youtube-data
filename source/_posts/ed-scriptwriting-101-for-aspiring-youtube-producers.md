@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Scriptwriting 101 for Aspiring YouTube Producers"
-date: 2024-12-12T06:23:15.599Z
-updated: 2024-12-13T04:08:57.327Z
+date: 2024-12-19T18:20:31.974Z
+updated: 2024-12-22T18:33:53.957Z
 tags:
   - ai video
   - ai youtube
@@ -44,45 +44,45 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -112,15 +112,15 @@ After writing the script, the next step is to invite a trusted friend or family 
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -145,21 +145,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/0-best-travel-youtube-channels-you-may-want-to-follow/"><u>[New] 10 Best Travel Youtube Channels You May Want to Follow</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-crafting-an-impactful-online-presence-with-perfect-yt-dimensions/"><u>[New] 2024 Approved Crafting an Impactful Online Presence with Perfect YT Dimensions</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-efficiently-achieving-color-background-separation/"><u>[New] 2024 Approved Efficiently Achieving Color Background Separation</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-expert-advice-for-staying-copyright-compliant-online/"><u>[New] 2024 Approved Expert Advice for Staying Copyright Compliant Online</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-flv-conversion-for-content-creators-top-10-youtubes-alternatives-unveiled/"><u>[New] 2024 Approved Flv Conversion for Content Creators Top 10 YouTubes Alternatives Unveiled</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-art-of-concluding-your-videos-powerfully/"><u>[New] 2024 Approved The Art of Concluding Your Videos Powerfully</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-toonbox-complete-insight-for-24-year/"><u>[New] 2024 Approved ToonBox Complete Insight for '24 Year</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-effortless-conversion-youtube-videos-to-mac-ratio-for-2024/"><u>[New] Effortless Conversion Youtube Videos to Mac Ratio for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-revolutionizing-facebook-video-cover-updates-tips-and-tricks/"><u>[Updated] In 2024, Revolutionizing Facebook Video Cover Updates Tips and Tricks</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/electorate-engagement-enigma-top-simulator-series/"><u>Electorate Engagement Enigma Top Simulator Series</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-beginners-guide-to-video-making-mastering-10-straightforward-youtube-concepts/"><u>In 2024, Beginner's Guide to Video Making Mastering 10 Straightforward YouTube Concepts</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Oppo A59 5G | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/leaked-image-of-googles-revolutionary-new-pixel-watch-reveals-major-redesign-its-a-game-changer-techspotted/"><u>Leaked Image of Google's Revolutionary New Pixel Watch Reveals Major Redesign; It's a Game Changer! | TechSpotted</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/smarter-video-sharing-with-igtv-a-guide-to-flipping-videos-right/"><u>Smarter Video Sharing with IGTV A Guide to Flipping Videos Right</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/step-by-step-instructions-for-starting-windows-from-an-external-device-windows-1011/"><u>Step-by-Step Instructions for Starting Windows From an External Device (Windows 10/11)</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/understanding-the-advantages-of-webm-over-mp4-a-comprehensive-guide/"><u>Understanding the Advantages of WebM over MP4: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/reaking-down-8-common-blunders-in-early-stage-youtube-success/"><u>[New] Breaking Down 8 Common Blunders in Early-Stage YouTube Success</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-fast-and-flawless-mastering-the-art-of-multi-snap-chats/"><u>[New] In 2024, Fast & Flawless Mastering the Art of Multi-Snap Chats</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-extraordinary-12-tools-for-endless-screen-capture/"><u>[Updated] Extraordinary 12 Tools for Endless Screen Capture</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-your-iphones-mp3-fix-6-free-tools-to-convert-youtube-audio-for-2024/"><u>[Updated] Your iPhone's MP3 Fix 6 Free Tools to Convert YouTube Audio for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/te-storytelling-free-soundtrack-options-available-for-2024/"><u>Elevate Storytelling - Free Soundtrack Options Available for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-realme-gt-neo-5-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nubia-red-magic-9-proplus-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Nubia Red Magic 9 Pro+ Phone Without Password?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Lava Yuva 2? | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/mastering-ark-survival-ascended-with-a-boosted-fps-for-an-unbeatable-pc-adventure/"><u>Mastering ARK: Survival Ascended with a Boosted FPS for an Unbeatable PC Adventure</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ess-youtube-experience-on-apple-gear-downloading-made-easy/"><u>Seamless Youtube Experience on Apple Gear Downloading Made Easy</u></a></li>
+<li><a href="https://win-able.techidaily.com/trouble-with-wwe-2k22-on-pc-heres-how-to-keep-it-running-smoothly/"><u>Trouble with WWE 2K22 on PC? Here's How to Keep It Running Smoothly</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/vlcs-advanced-webcam-functionality-for-video-archiving-for-2024/"><u>VLC's Advanced Webcam Functionality for Video Archiving for 2024</u></a></li>
 </ul></div>
 

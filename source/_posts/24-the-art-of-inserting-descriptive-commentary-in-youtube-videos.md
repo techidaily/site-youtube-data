@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Art of Inserting Descriptive Commentary in YouTube Videos"
-date: 2024-08-23T06:32:05.456Z
-updated: 2024-08-24T06:32:05.456Z
+date: 2024-12-15T17:23:13.930Z
+updated: 2024-12-22T17:24:19.116Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -53,10 +57,18 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -64,6 +76,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Select the timeline for the playhead to appear which leads to the card slide
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes and exit
 
@@ -120,20 +136,21 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +159,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-tips-and-tricks-for-easily-finding-your-youtube-comments/"><u>[New] 2024 Approved Tips & Tricks for Easily Finding Your YouTube Comments</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-blueprint-for-brilliant-broadcasts-dos-and-donts-unveiled-for-2024/"><u>[New] The Blueprint for Brilliant Broadcasts Do's & Don'ts Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-livestream-capturing-gear-for-online-content-makers/"><u>[Updated] Best Livestream Capturing Gear for Online Content Makers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-enhancing-your-youtube-content-with-right-camera-gear-for-2024/"><u>[Updated] Enhancing Your YouTube Content with Right Camera Gear for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-mastering-the-zoom-meeting-experience-tips-for-fluid-online-discussion/"><u>[Updated] In 2024, Mastering the Zoom Meeting Experience Tips for Fluid Online Discussion</u></a></li>
+<li><a href="https://blog-min.techidaily.com/efficient-video-konvertering-online-vervangt-videomaterial-inmpactmateriaal-en-meer-formaten/"><u>Efficiënt Video Konvertering Online - Vervangt Videomaterial Inmpactmateriaal En Meer Formaten</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/ethical-buying-of-tiktok-clout-increase/"><u>Ethical Buying of TikTok Clout Increase</u></a></li>
+<li><a href="https://win-special.techidaily.com/getting-to-know-kelsey-a-deep-dive-into-the-biography-of-a-renowned-writer/"><u>Getting to Know Kelsey: A Deep Dive Into the Biography of a Renowned Writer</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-reno-10-pro-5g-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Reno 10 Pro 5G</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Which is the Best Fake GPS Joystick App On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/rapid-rendition-accelerating-prints-on-windows-system/"><u>Rapid Rendition: Accelerating Prints on Windows System</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->

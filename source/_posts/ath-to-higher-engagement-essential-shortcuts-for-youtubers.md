@@ -1,7 +1,7 @@
 ---
 title: "\"The Path to Higher Engagement  Essential Shortcuts for YouTubers\""
-date: 2024-08-16T03:36:40.802Z
-updated: 2024-08-17T03:36:40.802Z
+date: 2024-12-18T16:10:27.605Z
+updated: 2024-12-22T18:49:42.990Z
 tags:
   - ai video
   - ai youtube
@@ -32,9 +32,6 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -43,6 +40,10 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -73,8 +74,9 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -87,11 +89,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -102,9 +99,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -119,6 +113,10 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -130,6 +128,10 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Numpad)   | Zoom out                                              |
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
@@ -150,14 +152,12 @@ Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorial
 As one of the most popular video editing software among YouTubers, Filmora provides lots of effects, title templates, transitions, and elements as well as powerful video editing tools such as instant cutter tool, [scene detection](https://tools.techidaily.com/wondershare/filmora/download/), [beat detection](https://tools.techidaily.com/wondershare/filmora/download/), [motion tracking](https://tools.techidaily.com/wondershare/filmora/download/), animation keyframe, and much more. All these editing features and effects makes Filmora as one of the best video editing software for all creators.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -165,14 +165,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -181,4 +178,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-master-streaming-with-obs-studio-android-edition/"><u>[New] Master Streaming with OBS Studio - Android Edition</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-taking-over-ig-monthly-strategies-to-hit-the-1k-follower-goal/"><u>[Updated] 2024 Approved Taking Over IG Monthly Strategies to Hit the 1K Follower Goal</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-decoding-youtube-shorts-all-you-need-to-understand/"><u>In 2024, Decoding YouTube Shorts All You Need to Understand</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-frame-it-right-essential-composition-rules-for-youtube-filmmaking/"><u>In 2024, Frame It Right Essential Composition Rules for YouTube Filmmaking</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-from-youtube-watch-parties-to-home-auditory-archives/"><u>In 2024, From YouTube Watch Parties to Home Auditory Archives</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-innovative-split-screen-videos-for-youtube-sharing/"><u>In 2024, Innovative Split-Screen Videos for YouTube Sharing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-mastering-mobile-media-the-art-of-filming-with-a-smartphone/"><u>In 2024, Mastering Mobile Media The Art of Filming with a Smartphone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-mobilizing-money-a-complete-guide-to-youtubes-revenue-features/"><u>In 2024, Mobilizing Money A Complete Guide to YouTube's Revenue Features</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokémon Go Cooldown Chart On Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/mastering-the-art-of-playback-a-guide-to-video-capture-methods-in-wild-hearts-for-windows-users/"><u>Mastering the Art of Playback: A Guide to Video Capture Methods in Wild Hearts for Windows Users</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/movavi-la-cle-pour-convertir-des-videos-en-format-mp4-a-partir-du-mov-le-meilleur-outil-utilitaire-disponible/"><u>Movavi: La Clé Pour Convertir Des Vidéos en Format MP4 À Partir Du MOV - Le Meilleur Outil Utilitaire Disponible!</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-honor-magic-vs-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/unveiling-the-advantages-of-embracing-cryptocurrency-expert-analysis-from-yl-software/"><u>Unveiling the Advantages of Embracing Cryptocurrency: Expert Analysis From YL Software</u></a></li>
+</ul></div>
 

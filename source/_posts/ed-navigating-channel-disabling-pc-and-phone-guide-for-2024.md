@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating Channel Disabling  PC & Phone Guide for 2024\""
-date: 2024-12-07T21:19:02.843Z
-updated: 2024-12-12T20:58:57.121Z
+date: 2024-12-21T16:08:23.969Z
+updated: 2024-12-22T18:59:32.006Z
 tags:
   - ai video
   - ai youtube
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 ![find about option](https://images.wondershare.com/filmora/article-images/find-about-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 3\. On the right-hand side right under the **Stats**, you will find a **flag** icon. Press the icon and it will show a drop-down menu, select **Block user**.
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 ![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
@@ -76,17 +76,9 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 
 ![find users](https://images.wondershare.com/filmora/article-images/find-users.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 4\. When you’re on the account page, open the menu at the top-right corner of the screen and tap Block user.
 
 ![tap block users](https://images.wondershare.com/filmora/article-images/tap-block-user2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Part 3: Block content on YouTube kids**
 
@@ -98,6 +90,10 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 
 ![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 2\. Sign in with your preferred Google account.
 
 ![parent account](https://images.wondershare.com/filmora/article-images/parent-account4.jpg)
@@ -108,11 +104,19 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 
  Now as you’re signed in as a parent you can block channels and specific content.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **I. Block on Home screen**
 
 * 1\. On the Home screen press the dotted menu next to the video
 
 ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
@@ -120,7 +124,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **II. Block from Watch Page**
@@ -134,24 +138,20 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 
 ![block this channel](https://images.wondershare.com/filmora/article-images/block-this-channel8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 4\. Select any of the two options and then press **Block** again.
 * 5\. Enter the numbers you calculate from the presented numbers or a custom passcode.
 
 ![get passcode again](https://images.wondershare.com/filmora/article-images/pass-code-again8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Conclusion**
 
  Every minute more than 300 hours of video content is uploaded on to the YouTube databases while 5 billion videos are watched every day. This only shows the metrics a content creator and a user have to deal with. Content creators need to protect themselves from the unending trolls and scams that hit every other channel and affect its userbase. While kids and sensitive portions of the human population have to maintain a safe distance from damaging and provoking content that circulates on the platform. To safeguard both ends of the platform I made this guide to streamline the process of **how to block YouTube channels** and videos from affecting your happy life.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -174,19 +174,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-a-novices-navigational-guide-on-youtube-channel-creation-and-making-dough/"><u>[New] 2024 Approved A Novice's Navigational Guide on YouTube Channel Creation and Making Dough</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-clearing-your-name-after-a-youtube-copyright-strike-notice/"><u>[New] 2024 Approved Clearing Your Name After a YouTube Copyright Strike Notice</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-essential-tips-for-producing-engaging-educational-content-for-youtube/"><u>[New] 2024 Approved Essential Tips for Producing Engaging Educational Content for YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-mastering-freefire-gameplay-essential-youtube-tips/"><u>[New] 2024 Approved Mastering FreeFire Gameplay Essential YouTube Tips</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-quickly-locating-your-curated-music-compilation-on-youtube/"><u>[New] 2024 Approved Quickly Locating Your Curated Music Compilation on Youtube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-tutorial-purging-your-youtube-download-history/"><u>[New] 2024 Approved Tutorial Purging Your YouTube Download History</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-viewer-recognition-the-play-button-reward-ribbon/"><u>[New] 2024 Approved Viewer Recognition The Play Button Reward Ribbon</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-step-by-step-sharing-photos-on-youtube/"><u>[New] In 2024, Step-by-Step Sharing Photos on YouTube</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-free-mobile-live-stream-apps-essentials-for-smartphones/"><u>[Updated] In 2024, Free Mobile Live Stream Apps Essentials for Smartphones</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-insights-into-premier-video-communication-tools-on-devices/"><u>[Updated] In 2024, Insights Into Premier Video Communication Tools on Devices</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-setting-up-your-mac-for-flawless-minecraft-sessions/"><u>2024 Approved Setting Up Your Mac for Flawless Minecraft Sessions</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/guias-abrangentes-para-fazer-backup-sincronizar-e-criar-copiados-do-windows/"><u>Guias Abrangentes Para Fazer Backup, Sincronizar E Criar Copiados Do Windows</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-from-poco-m6-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Poco M6 5G Devices</u></a></li>
-<li><a href="https://win-net.techidaily.com/step-by-step-tutorial-improve-performance-by-upgrading-to-an-ssd-on-your-surface-pro-4/"><u>Step-by-Step Tutorial: Improve Performance by Upgrading to an SSD on Your Surface Pro 4</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ostering-resilience-in-the-face-of-cyber-haters-for-2024/"><u>[New] Fostering Resilience in the Face of Cyber Haters for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ow-to-get-your-youtube-video-seen-6-easy-steps-for-2024/"><u>[New] How to Get Your YouTube Video Seen - 6 Easy Steps for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-fading-out-the-art-of-ebbing-audio-energy-in-fl-studio/"><u>[Updated] Fading Out The Art of Ebbing Audio Energy in FL Studio</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-elevate-every-story-prime-video-editor-apps-for-android/"><u>[Updated] In 2024, Elevate Every Story Prime Video Editor Apps for Android</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-free-easy-to-use-online-editors-for-quick-postings/"><u>[Updated] In 2024, Free, Easy-to-Use Online Editors for Quick Postings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-from-raw-footage-to-final-cut-youtube-and-its-equivalents/"><u>[Updated] In 2024, From Raw Footage to Final Cut YouTube and Its Equivalents</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-vintage-visionaries-digitize-your-photos-into-videos/"><u>[Updated] Vintage Visionaries Digitize Your Photos Into Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/expert-picks-top-netgear-router-choices-for-enhanced-performance/"><u>Expert Picks: Top Netgear Router Choices for Enhanced Performance</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Oppo Reno 10 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/navigating-airpods-problems-effective-strategies-for-fixing-stubborn-non-resetting-pairs/"><u>Navigating AirPods Problems: Effective Strategies for Fixing Stubborn Non-Resetting Pairs</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ultimate-list-value-packed-bluetooth-audio-devices-for-e24-enthusiasts/"><u>Ultimate List: Value Packed Bluetooth Audio Devices for E24 Enthusiasts</u></a></li>
 </ul></div>
 

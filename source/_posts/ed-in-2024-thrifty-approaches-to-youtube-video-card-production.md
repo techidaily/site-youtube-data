@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Thrifty Approaches to YouTube Video Card Production"
-date: 2024-12-11T16:10:12.201Z
-updated: 2024-12-13T01:40:15.152Z
+date: 2024-12-17T17:25:22.134Z
+updated: 2024-12-22T18:45:37.931Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/f68ad44dfce4596bff961c8c73128e503881dbfbd
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -78,7 +78,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -91,7 +91,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -130,7 +130,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -154,19 +154,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-a-symphony-in-silence-mastering-audio-with-precision/"><u>[New] 2024 Approved A Symphony in Silence Mastering Audio with Precision</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-design-dynamics-top-20-font-choices-for-youtube-success/"><u>[New] 2024 Approved Design Dynamics Top 20 Font Choices for YouTube Success</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-extracting-youtube-videos-simplified/"><u>[New] 2024 Approved Extracting YouTube Videos Simplified</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-innovating-with-structured-content-on-youtube/"><u>[New] 2024 Approved Innovating with Structured Content on YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-soundscape-symphony-crafting-concert-videos-with-these-15-tutorials/"><u>[New] 2024 Approved Soundscape Symphony Crafting Concert Videos with These 15 Tutorials</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-unlock-youtube-visuals-for-no-charge-best-free-downloader-guide/"><u>[New] 2024 Approved Unlock YouTube Visuals for No Charge Best Free Downloader Guide</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-gopro-vs-yi-4k-updated-review-of-ultimate-action-cams-for-2024/"><u>[New] GoPro Vs. Yi 4K Updated Review of Ultimate Action Cams for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-kinemaster-advanced-perfecting-visual-continuity/"><u>[New] Kinemaster Advanced Perfecting Visual Continuity</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-route-to-richer-tiktok-bios-including-linktree-links/"><u>2024 Approved The Route to Richer TikTok Bios Including Linktree Links</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/5-best-free-online-video-editors-similar-to-imovie-updated-2023-for-2024/"><u>5 Best Free Online Video Editors Similar to iMovie (Updated 2023) for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-hearing-aid-the-in-depth-look-at-life-q30-anc-headphones/"><u>Affordable Hearing Aid: The In-Depth Look at Life Q30 ANC Headphones</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-vivo-y36-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Vivo Y36 | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-ultimate-guide-to-the-best-10-cost-free-photo-hosters/"><u>In 2024, Ultimate Guide to the Best 10 Cost-Free Photo Hosters</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/mastering-fast-forward-on-vimeo/"><u>Mastering Fast-Forward on Vimeo</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-essential-game-picks-ghost-of-tsushima-rival-edition/"><u>[New] Essential Game Picks Ghost of Tsushima Rival Edition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-from-blank-canvas-to-biggest-hit-mastering-youtube-thumbnail-sizes/"><u>[New] In 2024, From Blank Canvas to Biggest Hit Mastering YouTube Thumbnail Sizes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-insta-turn-techniques-flipping-your-photos-and-gaining-followers-for-2024/"><u>[New] Insta-Turn Techniques Flipping Your Photos and Gaining Followers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/latform-power-play-which-one-dominates-vimeo-youtubeplusdailymotion-for-2024/"><u>[New] Platform Power Play Which One Dominates - Vimeo, YouTube+DailyMotion for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-duplex-monitoring-transcription/"><u>[Updated] In 2024, Duplex Monitoring Transcription</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-quick-start-to-clear-background-filming/"><u>In 2024, Quick Start to Clear Background Filming</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-unlocking-the-potential-of-feast-filled-videography/"><u>In 2024, Unlocking the Potential of Feast-Filled Videography</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/optimizing-windows-11-build-2004-with-enhanced-performance-via-new-conexant-driver-update/"><u>Optimizing Windows 11 (Build 2004) with Enhanced Performance via New Conexant Driver Update</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/reviewing-the-unseen-assessing-your-facebook-past-for-2024/"><u>Reviewing the Unseen Assessing Your Facebook Past for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tech-savvy-tips-restarting-windows-11-apps/"><u>Tech Savvy Tips: Restarting Windows 11 Apps</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-steps-for-resolving-d3dx927dll-file-errors/"><u>Troubleshooting Steps for Resolving d3dx9_27.dll File Errors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-video-rhythms-on-youtube-desktopmobile/"><u>Tweaking Video Rhythms on YouTube (Desktop/Mobile)</u></a></li>
 </ul></div>
 

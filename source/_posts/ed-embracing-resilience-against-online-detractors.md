@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Embracing Resilience Against Online Detractors"
-date: 2024-12-08T17:18:08.790Z
-updated: 2024-12-13T09:00:16.733Z
+date: 2024-12-16T16:05:08.362Z
+updated: 2024-12-22T18:03:48.941Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/98f34ca3fe8cce60e4b7bdc2a18ea2c36cd4a116d
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/98f34ca3fe8cce60e4b7bdc2a18ea2c36cd4a116d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,16 +83,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-ultimate-guide-to-finding-the-right-youtube-keywords/"><u>[New] 2024 Approved The Ultimate Guide to Finding the Right YouTube Keywords</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ulinary-carousel-swirling-up-top-food-network-names/"><u>[New] Culinary Carousel Swirling Up Top Food Network Names</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-charting-a-path-to-profit-calculating-video-view-requirements/"><u>[New] In 2024, Charting a Path to Profit Calculating Video View Requirements</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/avigating-the-net-top-tags-for-eye-catching-gamer-content/"><u>[New] Navigating the Net Top Tags for Eye-Catching Gamer Content</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ise-to-the-top-the-essentials-of-starting-a-youtube-gaming-sensation/"><u>[New] Rise to the Top The Essentials of Starting a YouTube Gaming Sensation</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/iral-video-potential-analyzing-dslr-and-mirrorless-cameras/"><u>[New] Viral Video Potential Analyzing DSLR and Mirrorless Cameras</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-boost-your-meeting-impact-with-efficient-screen-sharing-for-2024/"><u>[Updated] Boost Your Meeting Impact with Efficient Screen Sharing for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/battling-lag-and-lockups-essential-tricks-to-play-pathfinder-wrath-of-the-righteein-perfect-harmony-on-your-pc/"><u>Battling Lag and Lockups: Essential Tricks to Play Pathfinder: Wrath of the Righteein Perfect Harmony on Your PC</u></a></li>
-<li><a href="https://article-tips.techidaily.com/exploring-the-metaphysics-of-metaverse-selling-for-2024/"><u>Exploring the Metaphysics of Metaverse Selling for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-samsung-galaxy-a23-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Samsung Galaxy A23 5G | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/seamless-communication-setting-up-gmail-on-your-apple-watch/"><u>Seamless Communication: Setting Up Gmail on Your Apple Watch</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-navigating-the-world-of-content-delivery-a-comprehensive-video-upload-guide-for-youtube/"><u>[New] In 2024, Navigating the World of Content Delivery A Comprehensive Video Upload Guide for YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/astering-content-structure-elevated-templates-for-yt/"><u>[New] Mastering Content Structure Elevated Templates for YT</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/op-8-sites-to-get-free-green-screen-backgrounds-and-footage-for-2024/"><u>[New] Top 8 Sites to Get Free Green Screen Backgrounds and Footage for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ltimate-shot-selection-best-stabilizers-reviewed-for-2024/"><u>[New] Ultimate Shot Selection - Best Stabilizers Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exploring-effective-financial-gains-through-youtube-shorts/"><u>[Updated] Exploring Effective Financial Gains Through YouTube Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-from-screens-to-spreads-the-dos-and-donts-of-live-blogging/"><u>[Updated] From Screens to Spreads The Do's and Don'ts of Live Blogging</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-link-length-limit-check-out-these-5-youtube-minisizers/"><u>[Updated] Link Length Limit? Check Out These 5 YouTube Minisizers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-maximizing-youtube-earnings-master-the-art-with-500-subscribers/"><u>[Updated] Maximizing YouTube Earnings Master the Art with 500 Subscribers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/uding-coverage-craftsmanship-for-2024/"><u>Concluding Coverage Craftsmanship for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/essential-printing-fresh-drivers-for-hp-officejet-pro-69n8-printers/"><u>Essential Printing: Fresh Drivers for HP OfficeJet Pro 69N8 Printers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/gratis-konverteren-van-mp4-naar-webm-veilige-en-efficient-online-video-converter-voor-movavi/"><u>Gratis Konverteren Van MP4 Naar WEBM - Veilige en Efficiënt Online Video-Converter Voor Movavi</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-jaunt-vr-unleashed-an-in-depth-look/"><u>In 2024, Jaunt VR Unleashed An In-Depth Look</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/july-7th-walter-a-brown-an-american-ice-hockey-player-who-achieved-great-success-as-both-a-player-and-coach-his-legacy-continues-to-inspire-future-generatio638/"><u>July 7Th - Walter A. Brown, an American Ice Hockey Player Who Achieved Great Success as Both a Player and Coach. His Legacy Continues to Inspire Future Generations of Athletes</u></a></li>
 </ul></div>
 

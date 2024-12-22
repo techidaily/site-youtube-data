@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Perfecting YT Thumbnails  Quick & Simple Guide\""
-date: 2024-08-23T06:31:27.456Z
-updated: 2024-08-24T06:31:27.456Z
+date: 2024-12-19T17:04:50.294Z
+updated: 2024-12-22T18:31:16.353Z
 tags:
   - ai video
   - ai youtube
@@ -59,6 +59,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
@@ -75,6 +79,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
@@ -83,9 +91,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -95,6 +111,10 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,9 +136,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-crop-chronicles-the-ultimate-farm-farewell-fest/"><u>[New] Crop Chronicles The Ultimate Farm Farewell Fest</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-win10s-elite-screen-recording-and-capture-software-selection/"><u>[New] Win10's Elite Screen Recording & Capture Software Selection</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-best-scribblers-ios-and-androids-leading-image-editors/"><u>[Updated] Best Scribblers IOS & Android's Leading Image Editors</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-chortlecraft-funny-visuals-for-social-engagement-for-2024/"><u>[Updated] ChortleCraft Funny Visuals for Social Engagement for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-enhance-your-editing-with-fcps-top-10-plugins/"><u>[Updated] Enhance Your Editing with FCP's Top 10 Plugins</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-mastering-azures-transcription-service/"><u>[Updated] In 2024, Mastering Azure's Transcription Service</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-polarr-editor-essentials-unlocking-the-potential-of-images/"><u>2024 Approved Polarr Editor Essentials Unlocking the Potential of Images</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/correcting-absence-in-task-managers-startups/"><u>Correcting Absence in Task Manager's Startups</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/essential-tips-for-resolving-sound-distortions-and-issues-in-outriders/"><u>Essential Tips for Resolving Sound Distortions and Issues in Outriders</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-charting-your-path-to-youtube-affiliate-status-with-10k-vistas-goal/"><u>In 2024, Charting Your Path to YouTube Affiliate Status with 10K Vistas Goal</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-cognitive-conclaves-educational-yt-powerhouses/"><u>In 2024, Cognitive Conclaves Educational YT Powerhouses</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-craft-the-perfect-gif-message-in-snapchat-easy-steps/"><u>In 2024, Craft the Perfect Gif Message in Snapchat [Easy Steps]</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-dive-deep-into-the-world-of-creator-studio/"><u>In 2024, Dive Deep Into the World of Creator Studio</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-earnings-expansion-on-glamour-channels/"><u>In 2024, Earnings Expansion on Glamour Channels</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-expert-audio-adjustments-for-youtube-content-makers/"><u>In 2024, Expert Audio Adjustments for YouTube Content Makers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-from-concept-to-creation-youtube-trailer-production-via-filmora/"><u>In 2024, From Concept to Creation YouTube Trailer Production via Filmora</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-innovative-filmmaking-tools-best-lenses-for-content-makers/"><u>In 2024, Innovative Filmmaking Tools Best Lenses for Content Makers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-mastering-creativity-top-10-yt-reaction-hacks/"><u>In 2024, Mastering Creativity Top 10 YT Reaction Hacks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-navigating-the-settings-youtube-comments-activation/"><u>In 2024, Navigating the Settings YouTube Comments Activation</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->

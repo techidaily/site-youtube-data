@@ -1,7 +1,7 @@
 ---
 title: "A Vlogger's Guide To Camera Lenses | Wondershare Filmora for 2024"
-date: 2024-08-23T06:31:33.244Z
-updated: 2024-08-24T06:31:33.244Z
+date: 2024-12-18T16:13:56.960Z
+updated: 2024-12-22T16:49:00.343Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ In this article, I’m going to help you figure that out.
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -55,6 +59,10 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 #### Telephoto Lens
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
 
@@ -86,9 +94,6 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -105,23 +110,21 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
@@ -142,9 +145,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -160,22 +160,20 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -184,4 +182,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-voice-clarity-overcoming-skype-noise-issues/"><u>[New] 2024 Approved Voice Clarity Overcoming Skype Noise Issues</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-giggles-in-a-box-iphone-fun/"><u>[New] In 2024, Giggles in a Box (iPhone Fun)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-instantize-dynamic-images-in-photoshop/"><u>[Updated] Instantize Dynamic Images in Photoshop</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unveiling-the-hidden-accessing-youtube-video-comments/"><u>[Updated] Unveiling the Hidden Accessing YouTube Video Comments</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-lenovo-thinkphone-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Lenovo ThinkPhone Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-vivo-y36-drfone-by-drfone-android/"><u>How to Screen Mirroring Vivo Y36? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-building-inspiring-lifestyle-content-for-viewers/"><u>In 2024, Building Inspiring Lifestyle Content for Viewers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-cosmetics-confidentials-building-a-beauty-channel-on-youtube/"><u>In 2024, Cosmetics Confidentials Building a Beauty Channel on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-crafting-success-leading-business-channels-for-professionals/"><u>In 2024, Crafting Success Leading Business Channels for Professionals</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-cutting-through-the-noise-optimal-thumbnail-sizes/"><u>In 2024, Cutting Through the Noise Optimal Thumbnail Sizes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-decoding-the-mechanics-of-subscriber-tracking/"><u>In 2024, Decoding the Mechanics of Subscriber Tracking</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-final-thoughts-on-youtubing-best-makers-tips-and-templates/"><u>In 2024, Final Thoughts on YouTubing - Best Makers, Tips, and Templates</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-in-depth-insights-for-youtube-sound-enhancement/"><u>In 2024, In-Depth Insights for YouTube Sound Enhancement</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/meet-the-monstrous-m1-ultra-by-apple-redefining-processor-power-and-efficiency/"><u>Meet the Monstrous M1 Ultra by Apple - Redefining Processor Power and Efficiency</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-gemini-15-how-a-billion-words-change-the-game-for-ai-technology/"><u>Unveiling Gemini 1.5 – How a Billion Words Change the Game for AI Technology</u></a></li>
+</ul></div>
 

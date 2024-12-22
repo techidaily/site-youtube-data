@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Block Youtube Channels on Computer and Mobile Phones\""
-date: 2024-08-23T06:34:52.572Z
-updated: 2024-08-24T06:34:52.572Z
+date: 2024-12-21T16:46:31.964Z
+updated: 2024-12-22T17:29:43.662Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/31e3ae8455d50c80842cdc2a354e8096f8d646d3d
 * [**Part 2:** **How to block YouTube channels on Mobile Phones (Android & iPhone)**](#part2)
 * [**Part 3:** **How to block content on YouTube Kids**](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 1: How to block YouTube channels on a computer (Mac & Windows)**
 
  Blocking will prevent the user from trolling and bullying you or your channel subscribers. This will effectively prevent them to comment and interact with your video content. However, there is no way for you to prevent the bullies from watching your content you can at least prevent them from damaging your reputation, badmouthing, and inciting your active subscribers.
@@ -44,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/31e3ae8455d50c80842cdc2a354e8096f8d646d3d
 * 2\. When you’re in the account head over to the **About** section. You can find it in the toolbar beneath the channel art or banner.
 
 ![find about option](https://images.wondershare.com/filmora/article-images/find-about-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 3\. On the right-hand side right under the **Stats**, you will find a **flag** icon. Press the icon and it will show a drop-down menu, select **Block user**.
 
@@ -67,9 +75,6 @@ thumbnail: https://thmb.techidaily.com/31e3ae8455d50c80842cdc2a354e8096f8d646d3d
 
 ![tap block users](https://images.wondershare.com/filmora/article-images/tap-block-user2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## **Part 3: Block content on YouTube kids**
 
  YouTube Kids is the alternative version of YouTube’s video service dedicated and designed for kids. It’s entirely for children with all the content curated for kids’ education, family-friendly videos, and channels surrounding kid’s liking. The interface features colorful large images, and icons with five categories to explore from.
@@ -80,37 +85,38 @@ thumbnail: https://thmb.techidaily.com/31e3ae8455d50c80842cdc2a354e8096f8d646d3d
 
 ![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 2\. Sign in with your preferred Google account.
 
 ![parent account](https://images.wondershare.com/filmora/article-images/parent-account4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 * 3\. Here you’ll see a button **Send Parental Consent Emai**l, press it.
 * 4\. You’ll get an activation code on your email address.
 * 5\. Come back to the application and enter the code.
 
  Now as you’re signed in as a parent you can block channels and specific content.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **I. Block on Home screen**
 
 * 1\. On the Home screen press the dotted menu next to the video
 
 ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
 
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **II. Block from Watch Page**
 
@@ -118,23 +124,24 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
 ![more option](https://images.wondershare.com/filmora/article-images/more-option7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 2\. Press the **Block** option.
 * 3\. A dialog box will appear with two options, **Block this video** for blocking only this particular video or **Block this channel** to block the entire channel associated with the video.
 
 ![block this channel](https://images.wondershare.com/filmora/article-images/block-this-channel8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 * 4\. Select any of the two options and then press **Block** again.
 * 5\. Enter the numbers you calculate from the presented numbers or a custom passcode.
 
 ![get passcode again](https://images.wondershare.com/filmora/article-images/pass-code-again8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Conclusion**
 
  Every minute more than 300 hours of video content is uploaded on to the YouTube databases while 5 billion videos are watched every day. This only shows the metrics a content creator and a user have to deal with. Content creators need to protect themselves from the unending trolls and scams that hit every other channel and affect its userbase. While kids and sensitive portions of the human population have to maintain a safe distance from damaging and provoking content that circulates on the platform. To safeguard both ends of the platform I made this guide to streamline the process of **how to block YouTube channels** and videos from affecting your happy life.
@@ -147,14 +154,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,4 +167,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/xplore-the-8-premier-zero-cost-video-editors-for-social-media-pros/"><u>[New] Explore the 8 Premier Zero-Cost Video Editors for Social Media Pros</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-expertly-selected-graphics-cards-for-peak-streaming-clarity/"><u>[Updated] 2024 Approved Expertly Selected Graphics Cards for Peak Streaming Clarity</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-exploring-adsense-revenue-streams-on-youtube-for-every-1k-watcher/"><u>[Updated] 2024 Approved Exploring AdSense Revenue Streams on YouTube for Every 1K Watcher</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-navigate-youtube-post-production-with-adobe-premiere/"><u>[Updated] 2024 Approved Navigate YouTube Post-Production with Adobe Premiere</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-snappy-guide-image-to-youtube-thumbnail-conversion-made-easy/"><u>[Updated] 2024 Approved Snappy Guide Image to YouTube Thumbnail Conversion Made Easy</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-12-best-vlogging-cameras-for-vloggers/"><u>[Updated] In 2024, 12 Best Vlogging Cameras for Vloggers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-pro-gamers-and-casters-to-subscribe-now/"><u>[Updated] In 2024, Pro Gamers & Casters to Subscribe Now!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Samsung Galaxy A25 5G? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-easy-setup-making-a-direct-path-for-youtube-subscribers/"><u>In 2024, Easy Setup Making a Direct Path for YouTube Subscribers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-video-venues-verdict-find-your-fit-fast/"><u>In 2024, Video Venues Verdict Find Your Fit Fast</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/last-minute-deals-alert-scoop-up-top-october-prime-day-game-bargains-and-save-hundreds-act-fast/"><u>Last-Minute Deals Alert: Scoop up Top October Prime Day Game Bargains and Save Hundreds – Act Fast!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/e-sound-shakers-the-ultimate-playlist/"><u>Mobile Sound Shakers The Ultimate Playlist</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/msi-implements-intel-recommended-power-specifications-for-i9-processors-aiming-to-resolve-stability-issues-during-continuous-investigation-by-intel/"><u>MSI Implements Intel Recommended Power Specifications for I9 Processors, Aiming to Resolve Stability Issues During Continuous Investigation by Intel</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/navigating-future-security-with-digital-intellect-insights-from-abbyy-industry-leaders/"><u>Navigating Future Security with Digital Intellect Insights From ABBYY Industry Leaders</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138582521-9781452541501-psychic-integrity/"><u>Psychic Integrity | Free Book</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-10-essential-fcpx-plugins-to-elevate-your-video-editing-game-free-and-paid/"><u>Updated In 2024, 10 Essential FCPX Plugins to Elevate Your Video Editing Game Free and Paid</u></a></li>
+</ul></div>
 

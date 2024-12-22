@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Glam-Rific Guide to Hauls and Hair Care for 2024\""
-date: 2024-08-23T06:33:01.391Z
-updated: 2024-08-24T06:33:01.391Z
+date: 2024-12-15T17:02:02.900Z
+updated: 2024-12-22T17:13:57.720Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,10 @@ People looking for beauty tutorials are often looking for someone who has someth
 Another way you could find a niche is by taking on a specific area of interest, like a skincare channel with a focus on coping with acne or a makeup channel with a focus on natural products.
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Types of Beauty Videos – Your Content Strategy**
 
@@ -116,9 +120,6 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -157,8 +158,9 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
@@ -181,10 +183,6 @@ If you only have a ring light/front light then you may end up looking like you�
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
 A front light that’s lighting you evenly is also lighting whatever’s behind you evenly, which can make your overall picture look flat.
@@ -208,8 +206,9 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -227,6 +226,10 @@ This light is dimmable and can be adjusted to the angle that suits your shot. Th
 This lightweight ring light is easy to transport, set up, and mount your phone or camera to. It’s a fluorescent ‘daylight’ (5400K) light, so the colors in your videos will look natural.
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
 
@@ -255,9 +258,6 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Before You Start**
 
 Before you start recording your makeup tutorial there are a few things you should do.
@@ -269,8 +269,9 @@ Before you start recording your makeup tutorial there are a few things you shoul
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -281,8 +282,9 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **How to Make a Makeup Tutorial – After Shooting**
 
 Once you’ve finished recording and put away all your camera gear, there’s still work to do. You still need to edit your video and post it on YouTube. Here are some tips for that:
@@ -305,14 +307,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -321,4 +320,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-top-edge-video-editing-programs-for-instagram-on-android/"><u>[New] 2024 Approved Top Edge Video Editing Programs for Instagram on Android</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/levating-your-youtube-experience-tips-on-channel-art-and-sizes/"><u>[New] Elevating Your YouTube Experience Tips on Channel Art and Sizes</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-cheap-but-effective-the-1-to-10-free-desktop-recorders/"><u>[New] In 2024, Cheap but Effective The #1 to #10 Free Desktop Recorders</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/astering-mobile-media-a-guide-to-the-9-smartest-gadgets-for-filmmakers/"><u>[New] Mastering Mobile Media A Guide to the 9 Smartest Gadgets for Filmmakers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-streamlining-virtual-screen-display-in-google-meet-chats/"><u>[New] Streamlining Virtual Screen Display in Google Meet Chats</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-polishing-resilience-for-online-criticism/"><u>[Updated] 2024 Approved Polishing Resilience for Online Criticism</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-editors-workshop-enhancing-your-youtube-video-visibility-for-2024/"><u>[Updated] Editor's Workshop Enhancing Your Youtube Video Visibility for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-leading-list-of-16-youtube-openers-for-audience-expansion/"><u>[Updated] In 2024, Leading List of 16 YouTube Openers for Audience Expansion</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/6-proven-ways-to-unlock-huawei-nova-y91-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Huawei Nova Y91 Phone When You Forget the Password</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ces-2023-highlights-from-day-two-top-unveilings-and-innovations-featured/"><u>CES 2023 Highlights From Day Two: Top Unveilings and Innovations Featured</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/to-follow-steps-crafting-animated-gifs-from-youtube-content-pcmobile/"><u>Easy-to-Follow Steps Crafting Animated GIFs From YouTube Content (PC/Mobile)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tial-guidelines-for-creating-compelling-youtube-shorts-templates/"><u>Essential Guidelines for Creating Compelling YouTube Shorts Templates</u></a></li>
+<li><a href="https://games-able.techidaily.com/immerse-in-conflict-11-best-ww2-commanders-cuts/"><u>Immerse in Conflict: 11 Best WW2 Commanders' Cuts</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-samsung-galaxy-a05s-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Samsung Galaxy A05s Device SIM</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-iphone-8-plus-with-forgotten-passcode-different-methods-you-can-try-drfone-by-drfone-ios/"><u>Unlock iPhone 8 Plus With Forgotten Passcode Different Methods You Can Try | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eling-youtubes-monetization-shifts-for-2024/"><u>Unraveling YouTube's Monetization Shifts for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209862531-9780997146738-womens-rites-womens-mysteries/"><u>Women's Rites, Women's Mysteries | Free Book</u></a></li>
+</ul></div>
 

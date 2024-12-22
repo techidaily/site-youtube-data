@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Vloggers' Fears Decoded  Combat Strategies for Everyone\""
-date: 2024-12-10T00:02:55.992Z
-updated: 2024-12-12T23:36:21.443Z
+date: 2024-12-18T17:50:22.780Z
+updated: 2024-12-22T16:42:17.628Z
 tags:
   - ai video
   - ai youtube
@@ -39,10 +39,6 @@ Below is a list of 10 of the most common fears people have with vlogging and way
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. Fear of Looking Stupid Talking To Your Camera
 
 It can be nerve-racking to talk to your camera in public, especially if your vlog set-up attracts a lot of attention (Casey Neistat’s famous rig consisting of a DSLR camera with a GorillaPod tripod and a Rode shotgun mic attached to it definitely attracts more attention than just your everyday smartphone). Despite a lot of vloggers suggesting that people don’t care as much as you think they care, it still is an activity that stands out, gets noticed, and creates curiosity, which is plenty to feel nervous about.
@@ -51,15 +47,15 @@ My advice is to start with shorter conversations with your camera in public and 
 
 As you continue to vlog in public more, you’ll become increasingly comfortable with it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2. Fear of Being Judged by Others
 
 After uploading your vlog online, the next thing you might worry about is being judged and criticized by anonymous haters on the internet. No matter how perfectly you present yourself, this will happen. But you will be ok.
 
 You just need to be strongly grounded in your intrinsic worth and not take too seriously the judgments of those who don’t even know you. You can adjust your community settings on YouTube so that you have more control over others’ comments. But I suggest you just get used to others’ disapproval because it’s something that comes with putting yourself out there on such a public platform.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3. Fear of Not Being Interesting Enough
 
@@ -70,7 +66,7 @@ A lot of people fear that they aren’t interesting enough to watch. This fear s
 When you look at the vlogs of many of the top YouTubers, their lives appear so action-packed. It’s hard not to think that all vlogs are meant to be very stimulating. But if you believe that that is the standard for vlogs, you might either be discouraged and drop vlogging altogether or you might try too hard to schedule your life around getting stimulating vlog content. Neither is a good option. Face your fear of your audience getting bored and just go ahead and vlog your lifestyle just as it is.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5. Fear of Losing Your Authenticity
@@ -81,11 +77,19 @@ When you have the ability to control what others see, you may be tempted to pres
 
 Fearing that your production quality won’t measure up is another common fear that holds people back from vlogging. Just get started and put something together with the equipment and skills you already have. Loosen up a bit on your rigid high standards and experience for yourself that the consequences of doing your best with what you have are not so bad. You will develop your equipment and skills as you get more and more into vlogging.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7. Fear of Failing To Get Big
 
 Getting a lot of subscribers is a common end goal for many who go into vlogging. This goal can seem impossible to reach with how crowded the vlogosphere has become with so many ambitious vloggers who are competing for views and subscribers.
 
 How can you know for sure that you won’t be wasting your time and effort trying? The truth is… you can’t know for sure. But dismissing all of your time and effort as a waste just because you’re not at the end yet will take away from the joy you could have with vlogging. Rather than focusing on getting big, focus on enjoying the process of vlogging.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8. Fear of Being Distracted From the Moment
 
@@ -113,14 +117,10 @@ In post-production, you can use some video editing software to [delete unwanted 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -144,24 +144,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/reakdown-fundamental-aspects-of-asmr-videos/"><u>[New] Breakdown Fundamental Aspects of ASMR Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/kyrocketing-view-count-on-youtube-two-hacks/"><u>[New] Skyrocketing View Count on YouTube (Two Hacks)</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-hashtag-hacks-for-amplifying-gamer-content/"><u>[Updated] 2024 Approved Hashtag Hacks for Amplifying Gamer Content</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unlocking-youtubes-potential-with-a-subscription-plan/"><u>[Updated] 2024 Approved Unlocking YouTube's Potential with a Subscription Plan</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-achieve-perfect-views-with-aspect-ratio-knowledge-on-youtube-for-2024/"><u>[Updated] Achieve Perfect Views with Aspect Ratio Knowledge on YOUTUBE for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-depth-video-metrics-at-your-fingertips-social-blade-for-youtube-for-2024/"><u>[Updated] In-Depth Video Metrics at Your Fingertips Social Blade for YouTube for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-step-by-step-to-youtube-fame-implementing-featured-channels-successfully-for-2024/"><u>[Updated] Step-by-Step to YouTube Fame Implementing Featured Channels Successfully for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-samsung-galaxy-a15-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Samsung Galaxy A15 5G Activity | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-best-youtube-to-gif-makers-you-should-use-online-and-desktop/"><u>2024 Approved Best YouTube To GIF Makers You Should Use (Online & Desktop)</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-exploring-the-depths-of-screen-recording-software/"><u>2024 Approved Exploring the Depths of Screen Recording Software</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-newest-epson-xp-440-driver-software-download-instructions-inside/"><u>Get the Newest Epson XP-440 Driver Software - Download Instructions Inside</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-chrome-to-iphone-a-guide-to-stripping-youtube-ads/"><u>In 2024, Chrome to iPhone A Guide to Stripping YouTube Ads</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/progressive-presentation-kick-off-for-2024/"><u>Progressive Presentation Kick-Off for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/stream-disneys-magic-on-the-big-screen-a-simple-guide-to-connect-disney-plus-with-chromecast/"><u>Stream Disney's Magic on the Big Screen: A Simple Guide to Connect Disney Plus with Chromecast</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ltimate-money-making-guide-to-streaming-services-for-2024/"><u>The Ultimate Money-Making Guide to Streaming Services for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/2-vlogger-friendly-cameras-unveiled-in-2024/"><u>Top 12 Vlogger-Friendly Cameras Unveiled, In 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-convertidor-hevc-h265-para-windows-y-mac-de-202/"><u>Top Convertidor HEVC (H.265) Para Windows Y Mac De 202</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-online-video-promotion-experts/"><u>Updated Online Video Promotion Experts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rom-capture-to-share-proven-methods-for-live-360-video-on-youtube-for-2024/"><u>[New] From Capture to Share Proven Methods for Live 360° Video on Youtube for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-crafting-soundscape-journeys-with-seamless-audacity-mixes/"><u>[New] In 2024, Crafting Soundscape Journeys with Seamless Audacity Mixes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/astering-the-art-of-audio-capture-sans-microphone-for-2024/"><u>[New] Mastering the Art of Audio Capture Sans Microphone for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-pinnacle-phones-the-supreme-choices-in-mobile-video-recording/"><u>[New] Pinnacle Phones The Supreme Choices in Mobile Video Recording</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-creating-heartfelt-youtube-journeys/"><u>[Updated] Creating Heartfelt YouTube Journeys</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-streaming-made-simple-free-downloader-to-mp3s-now/"><u>[Updated] Streaming Made Simple Free Downloader to MP3s Now</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-how-to-pinpoint-premium-video-keywords-on-youtube/"><u>2024 Approved How to Pinpoint Premium Video Keywords on YouTube</u></a></li>
+<li><a href="https://discover-best.techidaily.com/find-windows-movie-maker-feature-detailed-instructions-for-windows-10-and-11-users/"><u>Find Windows Movie Maker Feature: Detailed Instructions for Windows 10 and 11 Users</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-consumer-reactions-vllo-edition/"><u>In 2024, Consumer Reactions VLLO Edition</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-create-an-apple-developer-account-on-apple-iphone-15-pro-by-drfone-ios/"><u>In 2024, How To Create an Apple Developer Account On Apple iPhone 15 Pro</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-spark-10-4g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Tecno Spark 10 4G Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-the-ultimate-guide-to-visualizing-audio-brilliance/"><u>In 2024, The Ultimate Guide to Visualizing Audio Brilliance</u></a></li>
+<li><a href="https://discover-help.techidaily.com/premium-soundscape-unleashed-an-in-depth-analysis-of-the-soundcore-space-one-headphones/"><u>Premium Soundscape Unleashed: An In-Depth Analysis of the Soundcore Space One Headphones</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211270107-9781914613494-the-spark/"><u>The Spark | Free Book</u></a></li>
 </ul></div>
 

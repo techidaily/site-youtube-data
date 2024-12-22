@@ -1,7 +1,7 @@
 ---
 title: "Master the Art of YouTube Thumbnails in Minutes"
-date: 2024-08-16T03:35:47.415Z
-updated: 2024-08-17T03:35:47.415Z
+date: 2024-12-21T16:32:40.728Z
+updated: 2024-12-22T18:00:36.340Z
 tags:
   - ai video
   - ai youtube
@@ -63,6 +63,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
@@ -79,6 +83,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
@@ -86,6 +94,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -95,7 +107,15 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-construct-a-careerscape-on-camera-by-critiquing-closets/"><u>[New] 2024 Approved Construct a Careerscape on Camera by Critiquing Closets</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-navigating-the-world-of-content-delivery-a-comprehensive-video-upload-guide-for-youtube/"><u>[Updated] Navigating the World of Content Delivery A Comprehensive Video Upload Guide for YouTube</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/call-recorder-iphone-captures-all-calls/"><u>Call Recorder IPhone Captures All Calls</u></a></li>
+<li><a href="https://fox-that.techidaily.com/eradicate-ghost-touch-problems-on-iphones-with-these-10-strategies/"><u>Eradicate Ghost Touch Problems on iPhones with These 10 Strategies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-advances-in-photography-with-lut-technology/"><u>In 2024, Advances in Photography with LUT Technology</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-brain-mechanisms-guiding-high-stakes-business-conclusions/"><u>In 2024, Brain Mechanisms Guiding High-Stakes Business Conclusions</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-capturing-the-web-in-full-color-the-best-screen-recorders-reviewed/"><u>In 2024, Capturing the Web in Full Color The Best Screen Recorders Reviewed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-channel-expansion-techniques-for-30plus-online-platforms/"><u>In 2024, Channel Expansion Techniques for 30+ Online Platforms</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-conquering-camera-fear-paving-the-path-to-youtube-success/"><u>In 2024, Conquering Camera Fear Paving the Path to YouTube Success</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-constructing-youtube-playlists-made-simple/"><u>In 2024, Constructing YouTube Playlists Made Simple</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-coping-with-youtube-copyright-claims-a-step-by-step-guide/"><u>In 2024, Coping with YouTube Copyright Claims A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-mastering-youtube-shorts-key-facts/"><u>In 2024, Mastering YouTube Shorts Key Facts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-maximize-youtube-potential-leading-rank-tracker-software/"><u>In 2024, Maximize YouTube Potential Leading Rank Tracker Software</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-meme-master-tracking-jake-pauls-youtube-evolution/"><u>In 2024, Meme Master Tracking Jake Paul's YouTube Evolution</u></a></li>
+<li><a href="https://fox-that.techidaily.com/instant-remedies-for-dysfunctional-widgets-on-apple-touch-devices/"><u>Instant Remedies for Dysfunctional Widgets on Apple Touch Devices</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-link-between-video-views-and-youtube-earning-potential/"><u>The Link Between Video Views and YouTube Earning Potential</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unverified-wisdom-why-you-shouldnt-trust-chatgpt-for-health/"><u>Unverified Wisdom: Why You Shouldn't Trust ChatGPT for Health</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Write a Script for a YouTube Video"
-date: 2024-12-11T16:14:48.680Z
-updated: 2024-12-13T09:15:47.422Z
+date: 2024-12-18T16:20:59.067Z
+updated: 2024-12-22T16:47:00.529Z
 tags:
   - ai video
   - ai youtube
@@ -41,20 +41,20 @@ You have a great idea for a video, but you’re just not sure how to express it 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Before You Write Your YouTube Script
 
 Here are some things to do before you start writing your script for YouTube:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
@@ -68,17 +68,21 @@ Now that you're ready to sit down and write, here's what you do:
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -108,10 +112,6 @@ After writing the script, the next step is to invite a trusted friend or family 
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
@@ -121,7 +121,7 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -145,21 +145,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-captivate-audiences-with-perfectly-tailored-youtube-descriptions/"><u>[New] 2024 Approved Captivate Audiences with Perfectly Tailored Youtube Descriptions</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-free-youtube-money-calculators-calculate-youtube-money/"><u>[New] 2024 Approved Free YouTube Money Calculators-Calculate YouTube Money</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-live-feed-capture-via-obs-for-instagram/"><u>[New] 2024 Approved Live Feed Capture via OBS for Instagram</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-secrets-revealed-the-best-youtube-thumbnails-for-virality/"><u>[New] 2024 Approved Secrets Revealed The Best YouTube Thumbnails for Virality</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-unlock-vfx-magic-top-4-youtube-tutorials-for-no-cost-green-screen-techniques/"><u>[New] 2024 Approved Unlock VFX Magic Top 4 YouTube Tutorials for No-Cost Green Screen Techniques</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-unlocking-superior-sound-recordings-minus-the-mic/"><u>[New] 2024 Approved Unlocking Superior Sound Recordings Minus the Mic</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-youtube-loop-mastery-unlock-the-art-of-endless-viewing/"><u>[New] 2024 Approved YouTube Loop Mastery Unlock the Art of Endless Viewing</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-youtube-vs-dailymention-spotlighting-key-aspects/"><u>[New] 2024 Approved YouTube Vs. DailyMention Spotlighting Key Aspects</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-covert-calls-chroniclers-top-secret-audio-gadgets-androidios/"><u>[New] In 2024, Covert Calls Chroniclers Top-Secret Audio Gadgets (Android/iOS)</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-key-20-free-pubg-thumbnail-collections/"><u>[New] Key 20 Free PUBG Thumbnail Collections</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-key-to-staying-put-mastering-6-viewer-friendly-genres/"><u>2024 Approved The Key to Staying Put Mastering 6 Viewer-Friendly Genres</u></a></li>
-<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Nokia C12 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-honor-magic5-ultimate-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Honor Magic5 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-vivo-y36-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Vivo Y36? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-insiders-technique-how-to-use-macos-terminal-commands-to-reveal-hidden-files/"><u>The Insider's Technique: How to Use macOS Terminal Commands to Reveal Hidden Files</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-a-meticulous-review-the-complete-guide-to-androids-lightroom/"><u>[New] A Meticulous Review The Complete Guide to Android's Lightroom</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-elevate-your-snap-game-learn-to-zoom-effectively/"><u>[New] Elevate Your Snap Game Learn to Zoom Effectively</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ngage-audiences-writing-magical-youtube-description-templates-for-higher-views/"><u>[New] Engage Audiences Writing Magical YouTube Description Templates for Higher Views</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aking-compelling-media-previews-for-channels-for-2024/"><u>[New] Making Compelling Media Previews for Channels for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ecrets-of-asmr-success-with-top-recorder-mics-for-2024/"><u>[New] Secrets of ASMR Success with Top Recorder Mics for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtubes-top-marketing-moves-for-business-growth-unveiled/"><u>[Updated] YouTube's Top Marketing Moves for Business Growth Unveiled</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-quantum-realms-unraveling-new-worlds-with-10-sci-fi-titles/"><u>2024 Approved Quantum Realms Unraveling New Worlds with 10 Sci-Fi Titles</u></a></li>
+<li><a href="https://win-lab.techidaily.com/effortless-windows-update-configuration-made-simple-with-yl-software-insights/"><u>Effortless Windows Update Configuration Made Simple with YL Software Insights</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96417758-9780486113005-the-kybalion/"><u>The Kybalion | Free Book</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-freeware-harmonies-to-accentuate-photo-stories/"><u>Updated 2024 Approved Freeware Harmonies to Accentuate Photo Stories</u></a></li>
 </ul></div>
 

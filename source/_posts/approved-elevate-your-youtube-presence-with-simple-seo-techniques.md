@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Elevate Your YouTube Presence with Simple SEO Techniques\""
-date: 2024-08-23T06:34:45.602Z
-updated: 2024-08-24T06:34:45.602Z
+date: 2024-12-20T17:32:21.027Z
+updated: 2024-12-22T16:04:15.718Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ Ready?
 
 Let’s Go!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -57,6 +61,10 @@ Uh oh… your video will be competing against celebrities like Gordon Ramsay and
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
 
 ![fantastic quote](https://images.wondershare.com/filmora/article-images/fantastic-quote-do-not-compare-beginning-to-middle.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 While researching your competition, you will feel overwhelmed, but remember, you are at the beginning, and Gordon Ramsay and Jamie Oliver are not even at their middle, they are way passed the finish line. You still have a long journey to go, so don’t get discouraged, get inspired!
 
@@ -83,6 +91,10 @@ Come up with as many relevant keywords as you can. Start by entering a keyword i
 Once you have an idea of what people are searching for related to your topic, you’ll want to find more relevant keywords. I like to use the free app, [Ubersuggest](https://neilpatel.com/ubersuggest/)to do that.
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
@@ -209,17 +221,9 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
@@ -227,8 +231,9 @@ Well done finishing the video! You are almost there… but not there yet.
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Come on, keep going!
 
 #### Step 10: Fill Out Your Videos Assets
@@ -237,9 +242,6 @@ The video is done, the thumbnail is designed, and you have all your title, descr
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 #### Step 11: Add Transcripts
 
 In addition to making your content accessible for people who don’t want to or can’t listen to the audio in your video, adding subtitles and closed captions will help YouTube understand the spoken content in your video.
@@ -264,31 +266,21 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -297,4 +289,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-essential-techniques-for-youtube-image-crafting/"><u>[New] In 2024, The Essential Techniques for YouTube Image Crafting</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nstant-subscriber-growth-trackers/"><u>[New] Instant Subscriber Growth Trackers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-keep-the-sparkle-alive-sustaining-your-snapchat-streak/"><u>[New] Keep the Sparkle Alive Sustaining Your Snapchat Streak</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ioneering-methods-to-develop-a-memorable-youtube-introduction/"><u>[New] Pioneering Methods to Develop a Memorable YouTube Introduction</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-guide-top-20-cost-free-video-editing-websites/"><u>[New] Ultimate Guide Top 20 Cost-Free Video Editing Websites</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/atch-9-festive-feasts-of-film-with-zero-charges-online-for-2024/"><u>[New] Watch 9 Festive Feasts of Film with Zero Charges Online for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-step-by-step-guide-mp3-to-youtube-live-streaming-3-phases/"><u>[Updated] In 2024, Step-By-Step Guide MP3 to YouTube Live Streaming [3 Phases]</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-master-plan-top-6-modernist-minecraft-villas-for-2024/"><u>[Updated] Master Plan Top 6 Modernist Minecraft Villas for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-funnyface-creator/"><u>2024 Approved FunnyFace Creator</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/beginning-with-windows-10-sound-recording/"><u>Beginning with Windows 10 Sound Recording</u></a></li>
+<li><a href="https://facebook.techidaily.com/easing-out-ending-your-facebook-friend-list/"><u>Easing Out: Ending Your Facebook Friend List</u></a></li>
+<li><a href="https://windows11.techidaily.com/essential-guide-to-using-microsoft-copilot-in-development/"><u>Essential Guide to Using Microsoft Copilot in Development</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-photos-from-honor-magic-6-pro-by-fonelab-android-recover-photos/"><u>How to Rescue Lost Photos from Honor Magic 6 Pro?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-honor-magic-5-lite-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Honor Magic 5 Lite</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-ultimate-guide-online-audio-recordings-from-youtube/"><u>In 2024, The Ultimate Guide Online Audio Recordings From YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/insight-top-8-online-repositories-for-free-green-screen-scenery/"><u>Pros' Insight Top 8 Online Repositories for Free Green Screen Scenery</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/k-6-free-youtube-endings-for-pros/"><u>Unlock 6 Free YouTube Endings for Pros</u></a></li>
+</ul></div>
 
