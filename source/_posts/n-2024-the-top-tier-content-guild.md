@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Top Tier Content Guild"
-date: 2024-08-16T03:27:36.344Z
-updated: 2024-08-17T03:27:36.345Z
+date: 2024-12-25T19:56:27.715Z
+updated: 2024-12-27T18:44:03.063Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,10 @@ _Nick talks about arriving in New York and goes through the swag box waiting in 
 
 There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -59,38 +63,38 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
@@ -104,14 +108,12 @@ Most creators here on Filmora are still trying to grow their channels, but one d
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -119,14 +121,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,4 +134,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-social-blade-the-comprehensive-guide-to-youtube-performance-tracking/"><u>[New] In 2024, Social Blade The Comprehensive Guide to YouTube Performance Tracking</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aster-class-in-live-streaming-your-pathway-to-successful-youtube-channels-via-wirecast/"><u>[New] Master Class in Live Streaming Your Pathway to Successful Youtube Channels via WireCast</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-real-time-film-extractor-for-2024/"><u>[New] Real-Time Film Extractor for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ips-for-clearing-blank-youtube-playback/"><u>[New] Tips for Clearing Blank YouTube Playback</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-top-15-hilarious-youtube-hubs-for-your-next-vacation/"><u>[Updated] 2024 Approved Top 15 Hilarious YouTube Hubs for Your Next Vacation</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-maximize-your-visuals-10-free-image-editing-tools-for-smartphones/"><u>[Updated] Maximize Your Visuals 10 Free Image Editing Tools for Smartphones</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-mr-beasts-monetary-milestones/"><u>2024 Approved Mr. Beast’s Monetary Milestones</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-youth-inspiration-tales-of-overcoming-challenges/"><u>2024 Approved Youth Inspiration Tales of Overcoming Challenges</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/complete-guide-to-downloading-the-right-oculus-drivers-for-any-windows-version-111087/"><u>Complete Guide to Downloading the Right Oculus Drivers for Any Windows Version (11/10/8/7)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Honor Magic 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/simple-guide-fast-and-easy-ways-to-link-your-laptop-with-television-tips-from-zdnet/"><u>Simple Guide: Fast & Easy Ways to Link Your Laptop with Television - Tips From ZDNet</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-resolving-a-disabled-bluetooth-feature/"><u>Step-by-Step Guide: Resolving a Disabled Bluetooth Feature</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/steps-to-obtain-trustee-access-from-trustedinstaller-for-file-modifications/"><u>Steps to Obtain Trustee Access From TrustedInstaller for File Modifications</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/mers-selection-most-popular-livestream-software-and-devices/"><u>Streamer's Selection Most Popular Livestream Software and Devices</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/the-future-of-video-recording-insights-into-fraps/"><u>The Future of Video Recording Insights Into Fraps</u></a></li>
+</ul></div>
 

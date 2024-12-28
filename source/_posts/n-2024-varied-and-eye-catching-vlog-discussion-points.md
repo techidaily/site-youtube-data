@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Varied and Eye-Catching Vlog Discussion Points\""
-date: 2024-12-16T18:37:05.202Z
-updated: 2024-12-22T18:24:30.453Z
+date: 2024-12-21T17:56:40.346Z
+updated: 2024-12-28T06:10:22.815Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ Before starting your daily vlogging, you have to figure out one important thing 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -51,7 +55,7 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 Here are 4 things to talk about in your daily vlog:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What are you watching/reading?
@@ -60,6 +64,10 @@ Here are 4 things to talk about in your daily vlog:
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
@@ -67,7 +75,7 @@ By commenting on what you’re watching/reading you have a better chance of capi
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
@@ -79,10 +87,6 @@ _Flula is frequently puzzled by English expressions, like 'Party Pooper', and ne
 It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What did you learn today?
 
@@ -100,13 +104,13 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 
 Sea monkeys can survive in space.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
@@ -117,10 +121,6 @@ You could also just flick the camera on and tell the full story of your day like
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -143,17 +143,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/rime-position-predictor-highest-charting-videos/"><u>[New] Prime Position Predictor Highest Charting Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-diy-tips-for-instant-custom-youtube-shorts-coverage/"><u>[Updated] 2024 Approved DIY Tips for Instant Custom YouTube Shorts Coverage</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-acclaimed-top-5-compact-cameras-for-filming/"><u>[Updated] Acclaimed Top 5 Compact Cameras for Filming</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-explore-12-prime-flip-screen-cameras-revolutionizing-vlogs/"><u>[Updated] Explore 12 Prime Flip Screen Cameras Revolutionizing Vlogs</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-captivating-captions-writing-copy-that-drives-engagement-and-views/"><u>[Updated] In 2024, Captivating Captions Writing Copy That Drives Engagement and Views</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-toggle-picture-in-picture-feature-for-youtube-app/"><u>[Updated] Toggle Picture-in-Picture Feature for Youtube App</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-techniques-for-professional-voice-capture/"><u>2024 Approved Top Techniques for Professional Voice Capture</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-samsung-galaxy-xcover-7-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Samsung Galaxy XCover 7 Phone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-seamless-creation-at-your-fingertips-selecting-androids-top-editors/"><u>In 2024, Seamless Creation at Your Fingertips Selecting Android's Top Editors</u></a></li>
-<li><a href="https://techidaily.com/step-by-step-guide-activating-family-safety-features-in-windows-11/"><u>Step-by-Step Guide: Activating Family Safety Features in Windows 11</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/top-5-infinix-note-30i-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Infinix Note 30i Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-movie-selections-watch-the-best-films-online-today/"><u>Top Movie Selections: Watch the Best Films Online Today</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/lub-vibes-best-dj-template-video-selections/"><u>[New] Club Vibes Best DJ Template Video Selections</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-why-you-shouldnt-trust-your-eyes-when-it-comes-to-youtube-views/"><u>[New] In 2024, Why You Shouldn't Trust Your Eyes When It Comes to YouTube Views</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unlock-the-potential-of-your-youtube-videos-in-movie-maker/"><u>[Updated] 2024 Approved Unlock the Potential of Your YouTube Videos in Movie Maker</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-elevate-engagement-youtube-seo-must-haves/"><u>[Updated] In 2024, Elevate Engagement - YouTube SEO Must-Haves</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-stream-wars-evaluation-who-comes-out-on-top-obs-or-twitch-studio/"><u>2024 Approved Stream Wars Evaluation Who Comes Out on Top, OBS or Twitch Studio?</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/brace-yourself-higher-costs-await-in-the-max-market/"><u>Brace Yourself: Higher Costs Await in the 'Max' Market</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-a-thriving-biz-channel-proven-strategies-and-examples-for-2024/"><u>Build a Thriving Biz Channel Proven Strategies and Examples for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ate-the-looping-world-with-our-yt-video-playback-hacks/"><u>Navigate the Looping World with Our YT Video Playback Hacks</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quick-restoration-techniques-to-reactivate-virus-protection-in-windows/"><u>Quick Restoration Techniques to Reactivate Virus Protection in Windows</u></a></li>
 </ul></div>
 

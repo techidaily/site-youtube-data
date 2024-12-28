@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step Into the Spotlight  Learning YouTube Vlogger Etiquette\""
-date: 2024-08-16T03:28:48.175Z
-updated: 2024-08-17T03:28:48.175Z
+date: 2024-12-20T21:01:02.043Z
+updated: 2024-12-28T01:30:52.140Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ For most people, vlogging is not something that comes naturally. Like any skill,
 
 When we watch the most popular YouTubers, the traits that make them successful are often invisible, because we are so consumed by their vlog. In this article, I’ll highlight 8 tips from the most accomplished vloggers on the Internet, so that you can vlog confidently and make the best YouTube videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -50,9 +54,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -61,9 +62,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -72,9 +70,6 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **5\. Compose the Shot**
 
 Vlogging is a visual medium, and while the story is important, what is captured in the frame will play an impactful role in the video as well.
@@ -87,9 +82,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -101,8 +93,9 @@ Good preparation includes having all your gear ready for filming when you need i
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -114,8 +107,9 @@ Consider your audience: they are coming home from school or work, where there we
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -140,7 +134,15 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -148,14 +150,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -164,4 +163,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/emystifying-youtube-premium-membership-benefits-for-2024/"><u>[New] Demystifying YouTube Premium Membership Benefits for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/vent-ensemble-curating-best-dj-templates/"><u>[New] Event Ensemble Curating Best DJ Templates</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unlocked-design-potential-100-free-pp-templates/"><u>[New] Unlocked Design Potential 100% Free PP Templates</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-copyright-claims-and-how-to-deal-with-a-strike/"><u>[New] YouTube Copyright Claims and How to Deal with a Strike?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-revenue-the-unfavorable-guidelines-for-2024/"><u>[New] YouTube Revenue The Unfavorable Guidelines for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-10-expert-suggestions-to-make-your-yt-shorts-stand-out-for-2024/"><u>[Updated] 10 Expert Suggestions to Make Your YT Shorts Stand Out for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-global-content-makers-conference/"><u>[Updated] Global Content Makers' Conference</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-streamlining-process-clean-up-youtubes-buffered-list-for-2024/"><u>[Updated] Streamlining Process Clean Up YouTube's Buffered List for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-curating-the-perfect-soundtrack-youtubes-best-audio-sites-ranked/"><u>2024 Approved Curating the Perfect Soundtrack YouTube's Best Audio Sites Ranked</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/5-solutions-for-realme-11-5g-unlock-without-password-by-drfone-android/"><u>5 Solutions For Realme 11 5G Unlock Without Password</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mkv-m4a-movavi/"><u>免費在線 MKV-M4A格式轉換 - 利用 Movavi 工具便捷範圍</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/advanced-editing-guide-for-creating-compelling-360-degree-videos-using-premiere-pro/"><u>Advanced Editing Guide for Creating Compelling 360-Degree Videos Using Premiere Pro</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/capture-screens-free-cross-platform-for-windowsmac-users-for-2024/"><u>Capture Screens, Free! - Cross-Platform for Windows/Mac Users for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-samsung-galaxy-a05-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Samsung Galaxy A05 to Protect Your Individual Information</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/laying-down-an-elegant-tiktok-credits-panel/"><u>Laying Down an Elegant TikTok Credits Panel</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ry-in-mapping-out-your-youtube-audience/"><u>Mastery in Mapping Out Your YouTube Audience</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eat-drops-highlighting-this-years-best-music-vids/"><u>The Beat Drops Highlighting This Year's Best Music Vids</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Oppo A78 | Dr.fone</u></a></li>
+</ul></div>
 

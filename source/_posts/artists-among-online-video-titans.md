@@ -1,7 +1,7 @@
 ---
 title: "Apex Artists Among Online Video Titans"
-date: 2024-08-16T03:30:30.260Z
-updated: 2024-08-17T03:30:30.260Z
+date: 2024-12-24T19:35:49.725Z
+updated: 2024-12-27T16:27:26.209Z
 tags:
   - ai video
   - ai youtube
@@ -54,14 +54,14 @@ In this article, we will take you through the 5 most popular creator channels on
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ###  2\.  HolaSoyGerman
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
@@ -74,6 +74,10 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
@@ -82,21 +86,19 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -107,19 +109,18 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -127,14 +128,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,4 +141,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/udience-engagement-and-its-impact-on-youtube-performance/"><u>[New] Audience Engagement and Its Impact on YouTube Performance</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-embedding-yt-playlists-seamlessly-on-webpages/"><u>[New] Embedding YT Playlists Seamlessly on Webpages</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-exciting-vlog-subjects-daily-selection/"><u>[New] In 2024, Exciting Vlog Subjects Daily Selection</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-how-regular-are-youtube-monetization-payments/"><u>[New] In 2024, How Regular Are YouTube Monetization Payments?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-essential-guide-to-aspect-ratio-standards-on-yt/"><u>[New] In 2024, The Essential Guide to Aspect Ratio Standards on YT</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outubes-opposite-end-video-retrospective-techniques-for-2024/"><u>[New] YouTube's Opposite End Video Retrospective Techniques for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-quick-guide-embedding-time-markers-on-youtube-videos-desktopmobile/"><u>[Updated] Quick Guide Embedding Time Markers on YouTube Videos (Desktop/Mobile)</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-top-vr-game-engines-2023-update-for-2024/"><u>[Updated] Top VR Game Engines -2023 Update for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/effortless-fixes-for-non-responsive-keys-on-your-hp-laptop/"><u>Effortless Fixes for Non-Responsive Keys on Your HP Laptop</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-from-apple-iphone-se-2022-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code From Apple iPhone SE (2022) in the Best Ways</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-dissecting-inshots-dominance-in-editing-apps/"><u>In 2024, Dissecting InShot's Dominance in Editing Apps</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/optimize-your-gaming-by-learning-ps3-video-capture-techniques/"><u>Optimize Your Gaming by Learning PS3 Video Capture Techniques</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/seamless-video-transfer-from-youtube-to-instagram-for-2024/"><u>Seamless Video Transfer From YouTube to Instagram for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/successful-connection-of-print-device/"><u>Successful Connection of Print Device</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unmissable-tech-savings-snag-a-macbook-air-viral-tiktok-style-backpacks-budget-friendly-webcams-and-other-essentials/"><u>Unmissable Tech Savings: Snag a MacBook Air, Viral TikTok Style Backpacks, Budget-Friendly Webcams & Other Essentials!</u></a></li>
+</ul></div>
 

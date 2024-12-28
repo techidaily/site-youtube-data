@@ -1,7 +1,7 @@
 ---
 title: "\"Audience Appreciation Assessment  Self and Seekers Vs. Rival Repertoires\""
-date: 2024-08-16T03:28:28.728Z
-updated: 2024-08-17T03:28:28.728Z
+date: 2024-12-25T21:12:14.371Z
+updated: 2024-12-27T19:51:57.499Z
 tags:
   - ai video
   - ai youtube
@@ -64,11 +64,19 @@ thumbnail: https://thmb.techidaily.com/06629510e11e9d29470adf181e231bb23d34ab4b2
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\.  Devices
 
  It is important to know which device is being used to watch the video. The metrics is distributed among mobile phones, computer, TV, tablet etc. you will be able to understand whether your video needs to be optimized for a certain video or not.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7\.  Likes and dislikes
 
@@ -110,6 +118,10 @@ thumbnail: https://thmb.techidaily.com/06629510e11e9d29470adf181e231bb23d34ab4b2
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-sharing.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 13\.  Videos in playlists
 
  Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
@@ -117,8 +129,13 @@ thumbnail: https://thmb.techidaily.com/06629510e11e9d29470adf181e231bb23d34ab4b2
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to analyze your competitors
 
  Although, you can't see the dashboard data of your competitor, there are still some ways to observe and study your competitors' successful videos and from their views, favorites, ratings, and comments find out the driving force behind it.
@@ -132,9 +149,6 @@ thumbnail: https://thmb.techidaily.com/06629510e11e9d29470adf181e231bb23d34ab4b2
  InflueNex is a helpful influencer marketing tool for Analyzing, searching, and managing YouTubers. With the help of this YouTube analytics tool, you're able to learn your competitors' channels and videos with detailed information.
 
 ![InflueNex YouTube Marketing Paltform ](https://images.wondershare.com/filmora/article-images/influenex-youtube-marketing-paltform.jpg)
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2\. [Rival IQ](https://www.rivaliq.com/)
 
@@ -147,8 +161,9 @@ thumbnail: https://thmb.techidaily.com/06629510e11e9d29470adf181e231bb23d34ab4b2
  Read More to Get: [5 Methods to Go Frame by Frame on YouTube Video >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -157,14 +172,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +185,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-from-search-patterns-to-screenplay-crafting-videos-from-google-data/"><u>[New] 2024 Approved From Search Patterns to Screenplay Crafting Videos From Google Data</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/asy-tutorial-uploading-youtube-shorts-video-via-computer-and-phone-for-2024/"><u>[New] Easy Tutorial Uploading YouTube Shorts Video via Computer & Phone for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ssential-tips-and-tricks-for-creating-killer-short-videos-on-yt/"><u>[New] Essential Tips and Tricks for Creating Killer Short Videos on YT</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-mastering-youtube-link-building-a-strategic-guide/"><u>[New] In 2024, Mastering YouTube Link Building A Strategic Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-professional-screen-grabber-for-win11/"><u>[New] Professional Screen Grabber for Win11</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-valheims-pc-performance-solutions-for-smoother-gameplay/"><u>Fixing Valheim's PC Performance: Solutions for Smoother Gameplay</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-intel-dual-band-7260-wireless-ac-drivers-with-just-a-few-clicks/"><u>Get the Intel Dual Band 7260 Wireless-AC Drivers with Just a Few Clicks!</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-fix-the-apple-iphone-xs-gps-not-working-issue-drfone-by-drfone-virtual-ios/"><u>How to Fix the Apple iPhone XS GPS not Working Issue | Dr.fone</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/ideal-tools-and-websites-for-transforming-your-digital-signatures-canvas-to-a-crisp-clean-white-hue/"><u>Ideal Tools & Websites for Transforming Your Digital Signature's Canvas to a Crisp, Clean White Hue</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-becoming-a-color-connoisseur-top-techniques/"><u>In 2024, Becoming a Color Connoisseur Top Techniques</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-poco-x5-pro-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Poco X5 Pro and Browser | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-dimensions-online-aspect-tweaking-for-2024/"><u>Mastering Dimensions Online Aspect Tweaking for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ling-the-past-essential-historical-yt-creators-for-students/"><u>Unveiling the Past Essential Historical YT Creators for Students</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/be-video-magic-advanced-editing-with-premiere-pro-for-2024/"><u>YouTube Video Magic Advanced Editing with Premiere Pro for 2024</u></a></li>
+</ul></div>
 

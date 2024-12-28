@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Embracing Resilience Against Online Detractors"
-date: 2024-12-16T16:05:08.362Z
-updated: 2024-12-22T18:03:48.941Z
+date: 2024-12-23T22:34:59.510Z
+updated: 2024-12-27T19:04:26.200Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/98f34ca3fe8cce60e4b7bdc2a18ea2c36cd4a116d
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/98f34ca3fe8cce60e4b7bdc2a18ea2c36cd4a116d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,18 +83,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-navigating-the-world-of-content-delivery-a-comprehensive-video-upload-guide-for-youtube/"><u>[New] In 2024, Navigating the World of Content Delivery A Comprehensive Video Upload Guide for YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/astering-content-structure-elevated-templates-for-yt/"><u>[New] Mastering Content Structure Elevated Templates for YT</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/op-8-sites-to-get-free-green-screen-backgrounds-and-footage-for-2024/"><u>[New] Top 8 Sites to Get Free Green Screen Backgrounds and Footage for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ltimate-shot-selection-best-stabilizers-reviewed-for-2024/"><u>[New] Ultimate Shot Selection - Best Stabilizers Reviewed for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-exploring-effective-financial-gains-through-youtube-shorts/"><u>[Updated] Exploring Effective Financial Gains Through YouTube Shorts</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-from-screens-to-spreads-the-dos-and-donts-of-live-blogging/"><u>[Updated] From Screens to Spreads The Do's and Don'ts of Live Blogging</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-link-length-limit-check-out-these-5-youtube-minisizers/"><u>[Updated] Link Length Limit? Check Out These 5 YouTube Minisizers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-maximizing-youtube-earnings-master-the-art-with-500-subscribers/"><u>[Updated] Maximizing YouTube Earnings Master the Art with 500 Subscribers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/uding-coverage-craftsmanship-for-2024/"><u>Concluding Coverage Craftsmanship for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/essential-printing-fresh-drivers-for-hp-officejet-pro-69n8-printers/"><u>Essential Printing: Fresh Drivers for HP OfficeJet Pro 69N8 Printers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/gratis-konverteren-van-mp4-naar-webm-veilige-en-efficient-online-video-converter-voor-movavi/"><u>Gratis Konverteren Van MP4 Naar WEBM - Veilige en Efficiënt Online Video-Converter Voor Movavi</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-jaunt-vr-unleashed-an-in-depth-look/"><u>In 2024, Jaunt VR Unleashed An In-Depth Look</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/july-7th-walter-a-brown-an-american-ice-hockey-player-who-achieved-great-success-as-both-a-player-and-coach-his-legacy-continues-to-inspire-future-generatio638/"><u>July 7Th - Walter A. Brown, an American Ice Hockey Player Who Achieved Great Success as Both a Player and Coach. His Legacy Continues to Inspire Future Generations of Athletes</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-speech-to-script-top-apps-for-on-the-go-text-generation/"><u>[New] In 2024, Speech to Script Top Apps for On-the-Go Text Generation</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/earn-the-role-youtube-shorts-music-plays/"><u>[New] Learn the Role YouTube Shorts Music Plays</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-your-viewers-your-wealth-building-an-earning-strategy/"><u>[Updated] 2024 Approved Your Viewers, Your Wealth Building an Earning Strategy</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-boost-creativity-with-free-audio-effects-online/"><u>[Updated] Boost Creativity with Free Audio Effects Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-convert-and-edit-wonders-select-10-best-youtube-converters/"><u>[Updated] Convert & Edit Wonders Select 10 Best YouTube Converters</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-direct-download-of-youtube-videos/"><u>[Updated] In 2024, Direct Download of YouTube Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-global-viewer-count-triumphs-play-button-honors/"><u>[Updated] In 2024, Global Viewer Count Triumphs Play Button Honors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-livestream-giants-rivalry-facebook-vs-youtube-vs-periscope/"><u>[Updated] Livestream Giants' Rivalry Facebook Vs. YouTube Vs. Periscope</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-realities-redefined-the-metaverse-vs-omniverse-showdown-explained/"><u>2024 Approved Realities Redefined The Metaverse Vs. Omniverse Showdown Explained</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-try-these-free-online-tempo-trackers-today/"><u>2024 Approved Try These FREE Online Tempo Trackers Today</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-newest-epson-wf-3620-driver-update-for-pcs-running-windows-1087-free-download/"><u>Get the Newest Epson WF-3620 Driver Update for PCs Running Windows 10/8/7 - Free Download!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-itel-a60-is-unlocked-by-drfone-android/"><u>How To Check if Your Itel A60 Is Unlocked</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-xs-max-without-apple-password-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Reset iPhone XS Max Without Apple Password? | Stellar</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-comparative-study-of-toolwizs-photography-tools/"><u>In 2024, Comparative Study of Toolwiz's Photography Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-ad-blocking-in-chrome-firefox-android-and-ios-for-youtube/"><u>Navigating Ad-Blocking in Chrome, Firefox, Android, & iOS for YouTube</u></a></li>
+<li><a href="https://techtrends.techidaily.com/steps-to-remove-images-from-icloud-without-losing-them-on-your-iphone/"><u>Steps to Remove Images From iCloud Without Losing Them on Your iPhone</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-realme-narzo-60-pro-5g-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Realme Narzo 60 Pro 5G</u></a></li>
 </ul></div>
 

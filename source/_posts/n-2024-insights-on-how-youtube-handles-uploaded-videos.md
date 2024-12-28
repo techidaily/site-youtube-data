@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Insights on How YouTube Handles Uploaded Videos"
-date: 2024-12-19T18:51:34.903Z
-updated: 2024-12-22T16:07:13.048Z
+date: 2024-12-26T01:05:40.642Z
+updated: 2024-12-28T07:19:12.482Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ You use YouTube to watch videos, post your own content, and build up a following
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does YouTube Work
@@ -45,7 +45,7 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
@@ -53,7 +53,7 @@ As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data sto
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
@@ -67,7 +67,7 @@ If videos take a long time to load for you then there are a few things you can d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -91,14 +91,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-best-practices-the-8-truly-effective-promotion-techniques/"><u>[New] In 2024, Best Practices The 8 Truly Effective Promotion Techniques</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-zero-to-hero-amplifying-youtube-influence-via-famebit-partnerships/"><u>[New] In 2024, From Zero to Hero Amplifying YouTube Influence via FameBit Partnerships</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-join-the-fortune-changing-club-free-50-banners-await/"><u>[Updated] 2024 Approved Join The Fortune-Changing Club Free 50 Banners Await</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-visionaries-of-video-workshop/"><u>[Updated] 2024 Approved The Visionaries of Video Workshop</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-streamlined-video-grabber-your-free-downloader-companion-for-2024/"><u>[Updated] Streamlined Video Grabber Your Free Downloader Companion for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-asus-rog-phone-8-pro-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Asus ROG Phone 8 Pro in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-honor-magic5-ultimate-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Honor Magic5 Ultimate Phone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-understanding-your-earning-potential-youtubes-latest-rules/"><u>In 2024, Understanding Your Earning Potential - YouTube's Latest Rules</u></a></li>
-<li><a href="https://network-issues.techidaily.com/nvidias-next-gen-drivers-for-rtx210-in-win11/"><u>NVIDIA's Next-Gen Drivers for RTX210 in Win11</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-motion-text-artisan/"><u>[New] In 2024, Motion Text Artisan</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/remium-gadgets-to-save-livestreamed-vids-on-youtube/"><u>[New] Premium Gadgets to Save Livestreamed Vids on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-from-concept-to-classroom-a-guide-to-creating-engaging-edu-videos-on-youtube/"><u>[Updated] 2024 Approved From Concept to Classroom A Guide to Creating Engaging Edu-Videos on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-video-editing-mastery-leveraging-youtube-then-expanding-beyond/"><u>[Updated] 2024 Approved Video Editing Mastery Leveraging YouTube, Then Expanding Beyond</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-screen-sanctuary-your-haven-of-a-thousand-games-for-2024/"><u>[Updated] Screen Sanctuary Your Haven of a Thousand Games for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/1-taming-chaos-a-strategic-guide-to-organizing-linux-and-open-source-manuals-zdnet/"><u>1. Taming Chaos: A Strategic Guide to Organizing Linux & Open Source Manuals | ZDNet</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-detecting-instagram-disconnections-fast/"><u>2024 Approved Detecting Instagram Disconnections Fast</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-realme-c55-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-your-infinix-note-30-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Infinix Note 30 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/mastering-screen-recording-in-adobe-captivate-a-step-by-step-guide/"><u>Mastering Screen Recording in Adobe Captivate A Step-by-Step Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-honor-x50i-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Honor X50i IMEI without Root A Comprehensive Guide</u></a></li>
 </ul></div>
 

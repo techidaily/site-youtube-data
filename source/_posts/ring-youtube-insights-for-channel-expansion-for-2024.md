@@ -1,7 +1,7 @@
 ---
 title: "Mastering YouTube Insights for Channel Expansion for 2024"
-date: 2024-08-16T03:29:21.903Z
-updated: 2024-08-17T03:29:21.903Z
+date: 2024-12-27T01:17:39.220Z
+updated: 2024-12-28T04:03:47.530Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,10 @@ By default, the dashboard will show you the stats from the last 28 days, but you
 
 ![data-of-specific-period](https://images.wondershare.com/filmora/data-of-specific-period.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you only want to focus on the performance of your channel on a specific region, you can customize that as well:
 
 ![data-of-specific-region](https://images.wondershare.com/filmora/data-of-specific-region.jpg)  
@@ -156,6 +160,11 @@ There are 3 ways to change the timeline:
 
 ![revenue-drop-down-menu](https://images.wondershare.com/filmora/revenue-drop-down-menu.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Calendar
 
 ![revenue-calendar](https://images.wondershare.com/filmora/revenue-calendar.jpg)  
@@ -168,6 +177,11 @@ You can also change how you view your data, whether Daily, Weekly, Monthly, etc.
 
 ![slide-bar-daily-view](https://images.wondershare.com/filmora/slide-bar-daily-view.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Identify Your Highest Earning Videos**
 
 In the Revenue report, you can see which videos are earning you the most. Consider how these videos are successful:
@@ -194,6 +208,11 @@ Know more about how your data are related by comparing to see if Revenue is affe
 
 ![revenue-earning-to-other-metrics](https://images.wondershare.com/filmora/revenue-earning-to-other-metrics.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **How to Use the Revenue Dashboard**
 
 Figuring [how to make money on YouTube](https://tools.techidaily.com/wondershare/filmora/download/) is tricky and any insight you can get can give you an advantage, steer you in the right direction, and help you focus on what matters.
@@ -208,6 +227,11 @@ This tells you that while Views may be an important metric, it won’t affect yo
 
 ![the-ad-rates-report](https://images.wondershare.com/filmora/the-ad-rates-report.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **YouTube Ad Revenue:** This is the estimated gross total of all the money you made from ads sold via Google and Google partners.
 
 **Estimated Monetized Playbacks:** This is the number of times your audience is shown an ad.
@@ -313,6 +337,10 @@ In the example below, we see that there is a peak at the point in this video whe
 
 ![how-to-use-audience-retention](https://images.wondershare.com/filmora/how-to-use-audience-retention.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Knowing this, for the next video you make, you can better anticipate where your viewers are going to need more time on a specific part or whether you should skip ahead to something more interesting.
 
 **7\. Demographics**
@@ -343,6 +371,11 @@ Not only will you be able to see which region the majority of your viewerships a
 
 ![geographic-distribution](https://images.wondershare.com/filmora/geographic-distribution.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Additionally, you can click into specific videos on your channel and see how it is performing in different regions.
 
 #### **How to Use Demographics Report**
@@ -505,6 +538,11 @@ Having videos added to playlists is a good thing because it increases the chance
 
 ![videos-in-playlists](https://images.wondershare.com/filmora/videos-in-playlists.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **See Which Video Is In The Most Playlists**
 
 By having a report to see which videos have been added to the playlist, you can see that there is an interest in this type of content. With this knowledge, you can decide that perhaps the audience may be interested in a series around this topic.
@@ -593,6 +631,11 @@ This report allows you to see which type of annotations are performing the best 
 
 ![compare-performance-of-different-annotations](https://images.wondershare.com/filmora/compare-performance-of-different-annotations.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **See Annotation Performance of a Specific Video**
 
 Click into a specific video to see which type of annotations are getting engagement and at what time it is happening. If you see that many annotation clicks are happening at a certain point in your video, going forward with your new videos that is where you can insert it.
@@ -659,13 +702,15 @@ By clicking into the Best for Viewer section you can see the top-performing vide
 
 ![top-performing-videos-that-youtube-suggest](https://images.wondershare.com/filmora/top-performing-videos-that-youtube-suggest.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **How to Use The End Screens Report**
 
 The End Screens report is great for letting you know which of your existing content the audience is interested in seeing after they finished watching one of your videos. As you learn more about your viewers and accumulate more videos, with the help of the End Screens report, you can determine which videos to use to increase Views and Watch Time.
   
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Conclusion**
 
 Television producers pay hundreds of thousands of dollars to data companies to get the same set of analytics that YouTube offers its creators for free.
@@ -677,15 +722,8 @@ Understanding how your videos are performing shines a light on your process, hel
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **[Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/)** and will definitely enhance your productivity and helps you to make money by making videos much easier.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -693,14 +731,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -709,4 +744,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/levate-your-viewing-game-with-concurrent-channel-watches/"><u>[New] Elevate Your Viewing Game with Concurrent Channel Watches</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-chronology-conundrum-best-podcast-times/"><u>[New] In 2024, Chronology Conundrum Best Podcast Times</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-complete-lowdown-navigating-creative-commons-licenses/"><u>[New] In 2024, The Complete Lowdown Navigating Creative Commons Licenses</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-youtube-phenomenon-forecast-for-2024/"><u>[New] YouTube Phenomenon Forecast for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-video-editing-simplified-the-best-hacks-for-new-creators/"><u>[Updated] In 2024, Video Editing Simplified The Best Hacks for New Creators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ving-prominence-in-online-gaming-content-for-2024/"><u>Achieving Prominence in Online Gaming Content for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-11-to-other-iphone-13-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 11 to other iPhone 13 devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-the-ultimate-guide-to-free-fb-downloaders/"><u>In 2024, The Ultimate Guide to Free FB Downloaders</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/optimal-mac-conversion-software-expert-guide-to-handbrake-alternatives/"><u>Optimal Mac Conversion Software: Expert Guide to Handbrake Alternatives</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/board-the-best-video-to-mp3-convertors/"><u>Scoreboard The Best Video to Mp3 Convertors</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Infinix Note 30 5G | Dr.fone</u></a></li>
+</ul></div>
 

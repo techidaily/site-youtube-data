@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Polishing Resilience for Online Criticism\""
-date: 2024-12-21T16:31:22.175Z
-updated: 2024-12-22T18:23:35.594Z
+date: 2024-12-21T03:56:33.655Z
+updated: 2024-12-28T01:11:12.492Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d21
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d21
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,19 +83,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-capturafx-firefox-add-ons/"><u>[New] In 2024, CapturaFX FireFox Add-Ons</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-uniting-voices-and-visions-the-top-mics-for-educational-gaming-and-lifestyle-yt-screens/"><u>[New] In 2024, Uniting Voices & Visions The Top Mics For Educational, Gaming, and Lifestyle YT Screens</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-quicktweet-clip-swiftly-gather-social-media-vids/"><u>[New] QuickTweet Clip Swiftly Gather Social Media Vids</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-dynamic-duo-of-filmmaking-and-thumbnail-design-for-2024/"><u>[New] The Dynamic Duo of Filmmaking and Thumbnail Design for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nderstanding-and-applying-youtube-markup/"><u>[New] Understanding & Applying YouTube Markup</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-create-effective-youtube-advertisements-on-a-budget/"><u>[Updated] Create Effective YouTube Advertisements on a Budget</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-creating-channel-names-that-capture-attention/"><u>[Updated] In 2024, Creating Channel Names That Capture Attention</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-podcast-perfection-for-the-modern-iphone-user-for-2024/"><u>[Updated] Podcast Perfection for the Modern iPhone User for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/diy-developing-a-customized-chatgpt-model-powered-by-personal-data-sources/"><u>DIY: Developing a Customized ChatGPT Model Powered by Personal Data Sources</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722958641944-easy-download-of-hp-deskjet-3520-software-ensure-compatible-operation-with-any-pc/"><u>Easy Download of HP DeskJet 3520 Software - Ensure Compatible Operation with Any PC</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-can-we-unlock-our-samsung-galaxy-a14-4g-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Samsung Galaxy A14 4G Phone Screen?</u></a></li>
-<li><a href="https://driver-error.techidaily.com/how-to-resolve-usb-installer-problems-when-you-get-an-access-is-denied/"><u>How to Resolve USB Installer Problems When You Get an 'Access Is Denied'</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-unravel-the-revenue-riddle-googles-guided-triple-steps-to-youtube-income-analysis/"><u>In 2024, Unravel the Revenue Riddle Google's Guided Triple Steps to YouTube Income Analysis</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-the-ultimate-guide-to-streaming-local-media-to-chromecast-on-windows-mac-android-and-ios-for-2024/"><u>Updated The Ultimate Guide to Streaming Local Media to Chromecast on Windows, Mac, Android, and iOS for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-essential-insights-on-asmr-videos-unveiled/"><u>[New] In 2024, Essential Insights on ASMR Videos Unveiled</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-gathering-of-heartfelt-weddings-youtube-and-vimeo-edition/"><u>[New] In 2024, The Ultimate Gathering of Heartfelt Weddings - Youtube & Vimeo Edition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-precision-in-numbers-a-3-step-process-to-examine-your-youtube-earnings/"><u>[Updated] 2024 Approved Precision in Numbers A 3-Step Process to Examine Your YouTube Earnings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-streamline-your-online-experience-blocking-youtube-channels-effectively/"><u>[Updated] 2024 Approved Streamline Your Online Experience Blocking Youtube Channels Effectively</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-a-deep-dive-into-the-world-of-youtubes-minis-for-2024/"><u>[Updated] A Deep Dive Into the World of Youtube's Minis for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-combining-youtube-and-imovie-for-professional-results/"><u>[Updated] Combining YouTube and iMovie for Professional Results</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-edu-favorites-best-learning-yt-channels/"><u>[Updated] Edu-Favorites Best Learning YT Channels</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-how-to-record-skype-with-obs-for-2024/"><u>[Updated] How to Record Skype with OBS for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/apples-latest-showdown-iphone-16-vs-iphone-15-essential-factors-for-upgraders/"><u>Apple's Latest Showdown: IPhone 16 Vs. IPhone 15 - Essential Factors for Upgraders</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exploring-unexpected-uses-of-linux-beyond-expectations-revealed/"><u>Exploring Unexpected Uses of Linux - Beyond Expectations Revealed!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-resolve-sound-glitches-with-your-pcs-speakers-in-windows-operating-systems/"><u>How to Resolve Sound Glitches with Your PC's Speakers in Windows Operating Systems</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-art-of-picking-perfect-oled-display-dont-follow-my-errors/"><u>The Art of Picking Perfect OLED Display: Don't Follow My Errors</u></a></li>
 </ul></div>
 

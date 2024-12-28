@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Fundamental Equipment for Channel Foundations"
-date: 2024-08-16T03:33:01.779Z
-updated: 2024-08-17T03:33:01.779Z
+date: 2024-12-25T22:34:05.766Z
+updated: 2024-12-27T17:49:54.108Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ The smartest way to get started is to go through a list of **necessary equipment
 * [Tripods and Camera Stands](#tripod)
 * [Smartphone Camera Gear](#phone)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YouTube Cameras
 
 **The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
@@ -61,8 +65,9 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -75,6 +80,10 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -86,14 +95,12 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -103,20 +110,15 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -124,14 +126,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,4 +139,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/rom-script-to-screen-professional-youtube-editing-secrets/"><u>[New] From Script to Screen Professional YouTube Editing Secrets</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/mprove-viewability-master-the-art-of-adding-timestamps-to-youtube-urls/"><u>[New] Improve Viewability Master the Art of Adding Timestamps to YouTube URLs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-effortless-youtube-content-crafting-10-basic-video-ideas-for-all/"><u>[New] In 2024, Effortless YouTube Content Crafting 10 Basic Video Ideas for All</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-pair-off-in-perfection-7-stunning-wedding-films-from-youtube-plus-vimeo/"><u>[New] In 2024, Pair Off in Perfection 7 Stunning Wedding Films From Youtube + Vimeo</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/s-it-lawful-to-screen-capture-youtube-content-in-2024/"><u>[New] Is It Lawful to Screen-Capture YouTube Content, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-best-of-budget-a-guide-to-the-top-10-economical-video-design-schools-on-youtube/"><u>[New] The Best of Budget A Guide to the Top 10 Economical Video Design Schools on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-crafting-visuals-the-science-of-youtube-banners-and-thumbnails/"><u>[Updated] In 2024, Crafting Visuals The Science of YouTube Banners & Thumbnails</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-spectacularly-in-3d-apt-selection-of-top-decks/"><u>[Updated] In 2024, Spectacularly in 3D Apt Selection of Top Decks</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-navigating-the-world-of-youtubers-and-gaming-sessions/"><u>[Updated] Navigating the World of YouTubers and Gaming Sessions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-balancing-act-weaving-b-roll-into-main-scenes/"><u>2024 Approved Balancing Act Weaving B Roll Into Main Scenes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-content-delivery-spectrum-vimeo-and-youtube-reviewed/"><u>2024 Approved The Content Delivery Spectrum Vimeo & YouTube Reviewed</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/easy-steps-for-broadcasting-live-playthroughs-from-your-ps5-system/"><u>Easy Steps for Broadcasting Live Playthroughs From Your PS5 System</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-steps-to-download-newest-canon-mg2520-driver-version-for-your-windows-device/"><u>Easy Steps to Download Newest Canon MG2520 Driver Version for Your Windows Device</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-realme-note-50-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Realme Note 50 To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/starcraft-2-update-patches-graphics-hardware-access-problems/"><u>StarCraft 2 Update Patches Graphics Hardware Access Problems</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/standing-youtube-shorts-revenue-strategy-for-2024/"><u>Understanding YouTube Shorts Revenue Strategy for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/x-men-movie-marathon-how-to-experience-them-in-their-official-release-order/"><u>X-Men Movie Marathon: How to Experience Them in Their Official Release Order</u></a></li>
+</ul></div>
 

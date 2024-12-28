@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unlocking Insights  Crafting Videos via Google Trends for 2024\""
-date: 2024-08-16T03:30:46.407Z
-updated: 2024-08-17T03:30:46.407Z
+date: 2024-12-25T03:42:29.944Z
+updated: 2024-12-27T20:13:05.344Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ Google Trends is a completely free tool you can use to determine what’s trendi
 
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _You’ll need to be signed into your Google account to use Google Trends._
 
 Start off at [trends.google.com](https://trends.google.com/trends/) and you’ll see what’s trending in general – usually big news stories or things like sports finals. The data is laid out like this: at the top there are three ‘Featured Insights’. These are three of the most popular trending topics paired with graphs of their recent search traffic. Underneath these there will be a list of stories that are currently trending. You can click on them to see charts of their search data and links to where the stories are being covered online.
@@ -47,10 +51,9 @@ Unless you do news or political commentary on your channel these probably aren�
 To get information more relevant to your channel you’re going to have to do some filtering.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -60,9 +63,6 @@ Then click from 'Daily Search Trends' to 'Realtime Search Trends'.
 On top you will see two drop-down menus, one is for the category and one is for location.
 
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 Under **All categories** select the general theme your channel falls under.
 
@@ -77,9 +77,9 @@ Once you have narrowed down your results you can just scroll through and pick ou
 For example, if you have a gaming channel and you’re looking for a non-gameplay topic to make a video on, you would look under Sci/Tech. If I look under that category today (May 29, 2017) and specify that I want topics trending in the United States then these are my top 5 results:
 
 ![Google Trends Category YouTube Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-categories.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The first two happen to be about gaming. If you, as a gamer, had any strong reaction to either of these topics – whether it’s that you feel like you’re knowledgeable about them, or that you’re excited by something that’s coming up, or that something made you groan – then that would be a sign that you should make a video. Capitalizing on a trend while also covering a topic you have a lot to say about is always a good move.
@@ -97,18 +97,6 @@ A [keyword is a word or short phrase](https://www.filmora.io/community-blog/the-
 Once you have a keyword in mind, type it into the Explore bar at the top of your page in Google Trends.
 
 ![Google Trends Keywords YouTube Video](https://images.wondershare.com/filmora/article-images/explore-topic-in-google-trends.jpg)
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
@@ -118,11 +106,19 @@ You can see near the top that this chart represents searches for the topic over 
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
 
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
 
@@ -142,9 +138,6 @@ One of the biggest benefits of identifying trends and making videos about them q
 
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
@@ -152,10 +145,6 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -163,14 +152,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +165,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/eciphering-youtube-shorts-a-comprehensive-overview/"><u>[New] Deciphering YouTube Shorts A Comprehensive Overview</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-climb-the-ladder-the-best-12-tycoon-games-for-aspiring-leaders/"><u>[New] In 2024, Climb the Ladder The Best 12 Tycoon Games for Aspiring Leaders</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-pause-unrequested-youtube-video-selections/"><u>[Updated] 2024 Approved Pause Unrequested YouTube Video Selections</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-infographic-index-youtubes-surprising-stat-treasury-2017/"><u>[Updated] 2024 Approved The Infographic Index YouTube's Surprising Stat Treasury (2017)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-leading-5-video-editors-outside-youtube-realm/"><u>[Updated] In 2024, Leading 5 Video Editors Outside YouTube Realm</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-no-caps-lock-required-android-and-ios-downloader-hacks/"><u>[Updated] No Caps Lock Required Android and iOS Downloader Hacks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-cutting-edge-editing-meets-online-video-sharing/"><u>2024 Approved Cutting-Edge Editing Meets Online Video Sharing</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/customizing-chatgpt-with-gpt-technology-for-enhanced-conversations/"><u>Customizing ChatGPT with GPT Technology for Enhanced Conversations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ver-8-trustworthy-online-content-promoters-for-2024/"><u>Discover 8 Trustworthy Online Content Promoters for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/master-smooth-gaming-eliminate-minecraft-freezes-with-cutting-edge-tips-for-pc-gamers/"><u>Master Smooth Gaming: Eliminate Minecraft Freezes with Cutting-Edge Tips for PC Gamers</u></a></li>
+<li><a href="https://win-community.techidaily.com/schritt-fur-schritt-anleitungen-zum-zurucksetzen-von-windows-11-auf-werkseinstellungen/"><u>Schritt-Für-Schritt Anleitungen Zum Zurücksetzen Von Windows 11 Auf Werkseinstellungen</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/secure-your-hp-victus-15-pro-at-an-unbelievable-price-of-530-dont-miss-out-on-our-in-depth-review-and-prime-day-blowout/"><u>Secure Your HP Victus 15 Pro at an Unbelievable Price of $530! Don't Miss Out on Our In-Depth Review & Prime Day Blowout!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unlock-ios-1-updates-step-by-step-installation-and-eligible-iphone-models-revealed-gadgetpundit/"><u>Unlock iOS 1# Updates: Step-by-Step Installation & Eligible iPhone Models Revealed | GadgetPundit</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/unlocking-the-full-potential-of-obs-for-your-mac/"><u>Unlocking the Full Potential of OBS for Your Mac</u></a></li>
+</ul></div>
 

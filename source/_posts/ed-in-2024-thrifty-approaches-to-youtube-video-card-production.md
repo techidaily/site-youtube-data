@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Thrifty Approaches to YouTube Video Card Production"
-date: 2024-12-17T17:25:22.134Z
-updated: 2024-12-22T18:45:37.931Z
+date: 2024-12-27T06:31:41.712Z
+updated: 2024-12-28T04:01:28.077Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/f68ad44dfce4596bff961c8c73128e503881dbfbd
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -78,7 +78,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -91,7 +91,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -130,7 +130,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -154,17 +154,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-essential-game-picks-ghost-of-tsushima-rival-edition/"><u>[New] Essential Game Picks Ghost of Tsushima Rival Edition</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-from-blank-canvas-to-biggest-hit-mastering-youtube-thumbnail-sizes/"><u>[New] In 2024, From Blank Canvas to Biggest Hit Mastering YouTube Thumbnail Sizes</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-insta-turn-techniques-flipping-your-photos-and-gaining-followers-for-2024/"><u>[New] Insta-Turn Techniques Flipping Your Photos and Gaining Followers for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/latform-power-play-which-one-dominates-vimeo-youtubeplusdailymotion-for-2024/"><u>[New] Platform Power Play Which One Dominates - Vimeo, YouTube+DailyMotion for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-duplex-monitoring-transcription/"><u>[Updated] In 2024, Duplex Monitoring Transcription</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-quick-start-to-clear-background-filming/"><u>In 2024, Quick Start to Clear Background Filming</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-unlocking-the-potential-of-feast-filled-videography/"><u>In 2024, Unlocking the Potential of Feast-Filled Videography</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/optimizing-windows-11-build-2004-with-enhanced-performance-via-new-conexant-driver-update/"><u>Optimizing Windows 11 (Build 2004) with Enhanced Performance via New Conexant Driver Update</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/reviewing-the-unseen-assessing-your-facebook-past-for-2024/"><u>Reviewing the Unseen Assessing Your Facebook Past for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tech-savvy-tips-restarting-windows-11-apps/"><u>Tech Savvy Tips: Restarting Windows 11 Apps</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-steps-for-resolving-d3dx927dll-file-errors/"><u>Troubleshooting Steps for Resolving d3dx9_27.dll File Errors</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ing-video-rhythms-on-youtube-desktopmobile/"><u>Tweaking Video Rhythms on YouTube (Desktop/Mobile)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-comprehensive-tips-for-constructing-podcast-rss-feeds-for-2024/"><u>[New] Comprehensive Tips for Constructing Podcast RSS Feeds for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-discover-top-platforms-for-youtube-brand-partnerships/"><u>[New] In 2024, Discover Top Platforms for YouTube Brand Partnerships</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-obs-vs-streamlabs-the-ultimate-guide-for-live-streamers/"><u>[New] In 2024, OBS Vs. Streamlabs The Ultimate Guide for Live Streamers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aster-your-content-a-complete-list-of-essential-audio-visual-tools/"><u>[New] Master Your Content A Complete List of Essential Audio-Visual Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-social-media-sensation-spotlights/"><u>[Updated] 2024 Approved Social Media Sensation Spotlights</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unlocking-insights-crafting-videos-via-google-trends/"><u>[Updated] 2024 Approved Unlocking Insights Crafting Videos via Google Trends</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-top-6-best-4k-dslr-cameras/"><u>[Updated] Top 6 Best 4K DSLR Cameras</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unleash-creative-potential-at-no-expense-dive-into-the-world-of-green-screen-with-free-lessons-from-youtube-channels/"><u>[Updated] Unleash Creative Potential at No Expense Dive Into the World of Green Screen with Free Lessons From YouTube Channels</u></a></li>
+<li><a href="https://driver-error.techidaily.com/cddvd-non-detect-in-win11-repair-complete/"><u>CD/DVD Non-Detect in Win11 - Repair Complete</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-unlock-from-apple-iphone-xr-how-to-fix-it-by-drfone-ios/"><u>In 2024, Apple ID Unlock From Apple iPhone XR? How to Fix it?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/realme-10t-5g-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme 10T 5G Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/xsplit-reviews-in-depth-game-split-analysis/"><u>XSplit Reviews In-Depth Game Split Analysis</u></a></li>
 </ul></div>
 

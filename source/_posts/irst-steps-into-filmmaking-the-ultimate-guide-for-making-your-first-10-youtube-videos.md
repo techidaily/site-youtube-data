@@ -1,7 +1,7 @@
 ---
 title: "\"[New] First Steps Into Filmmaking  The Ultimate Guide for Making Your First 10 YouTube Videos\""
-date: 2024-08-16T03:28:11.119Z
-updated: 2024-08-17T03:28:11.119Z
+date: 2024-12-21T19:40:00.392Z
+updated: 2024-12-27T19:42:05.043Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,10 @@ They say that less is more, so let's have a look at how you can apply this princ
 9. [10 Things About You](#nine)
 10. [Video Rant](#ten)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Introduce Yourself
 
 Let the world know who you are and what you do. If you are planning on starting a YouTube channel, or if you’ve already been posting videos on a topic but haven’t formally introduced yourself, it’s a great idea to put some thought into an introduction video. Producing such a YouTube video will enable you to introduce yourself to your future subscribers and give them an idea as to what your channel is all about.
@@ -52,6 +56,10 @@ These kinds of videos make great channel trailers, and they’re a good way to h
 Anything that happens during your day can become a topic for your YouTube vlog. Traffic jams, treacherous pets who keep stealing your shoes, or the ridiculous amount of things you had to do in a single day can all become topics for videos you upload to your YouTube channel. Being candid and spontaneous is a sure way to grab the attention of a viewer, but limiting the duration of a vlog to a few minutes is key to ensuring that viewers watch the video until the end.
 
 Strive to make visually dynamic videos, because just sitting or standing and talking in front of a camera for a few minutes isn't going to create much on-screen action.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Express An Opinion
 
@@ -67,9 +75,6 @@ Everywhere around you, there are items you can review. The Apple Watch and the l
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
@@ -88,18 +93,12 @@ There's no need to constantly produce new videos because you can just take some 
 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. Make a Tutorial
 
 Education is our only hope for a better world so if you know how to do something well, don't be afraid to share your knowledge. A tutorial is a powerful educational tool that enables you to guide people through the entire process of making origami, solving a complicated video editing problem, maintaining a motorcycle, or anything else.
 
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. 10 Things About You
 
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
@@ -107,8 +106,9 @@ Being open is important, so why not share 10 things about yourself you think you
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10\. Video Rant
 
 Doing things when you are angry is usually a bad idea, but if you feel so strongly about a particular subject then creating a video rant can be a great idea. Rants don’t even have to be angry, they can be about something that puzzles you or something so great you just can’t get over it. These kinds of videos can get your YouTube channel a lot of comments, likes, and subscribers.
@@ -117,18 +117,20 @@ Don't try to fake a rant, because they only work if they are natural. Scripting 
 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Start Editing Videos with Beginner-friendly Software
 
 If you start your YouTube channel but have no video editing experience, Wondershare Filmora will definitely help you get over the problems. Download Filmora now!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -137,14 +139,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,4 +152,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/iscovering-the-best-youtube-mp3-transformers-for-2024/"><u>[New] Discovering the Best YouTube MP3 Transformers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/astering-metadata-title-and-description-for-youtube-traction-for-2024/"><u>[New] Mastering Metadata Title and Description for YouTube Traction for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ailoring-trailers-for-virtual-broadcasts/"><u>[New] Tailoring Trailers for Virtual Broadcasts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-record-your-iphone-or-ipad-screen-for-youtube/"><u>[Updated] 2024 Approved How to Record Your iPhone or iPad Screen for YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-driving-income-through-youtube-shorts-crucial-elements-and-earnings-potential-for-2024/"><u>[Updated] Driving Income Through YouTube Shorts Crucial Elements and Earnings Potential for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-breaking-barriers-youtube-marketing-mastery/"><u>[Updated] In 2024, Breaking Barriers YouTube Marketing Mastery</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/beyond-clips-deciphering-the-relationship-between-ai-and-paperclip-challenges/"><u>Beyond Clips: Deciphering The Relationship Between AI & Paperclip Challenges</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/google-docs-mastery-enhance-efficiency-and-retrieve-missing-files/"><u>Google Docs Mastery: Enhance Efficiency & Retrieve Missing Files</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-update-your-oculus-drivers-for-seamless-experience-on-all-windows-systems-including-111087/"><u>How To Update Your Oculus Drivers for Seamless Experience on All Windows Systems Including 11/10/8/7</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-professional-moving-less-imagery-tips/"><u>In 2024, Professional Moving-Less Imagery Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/hing-success-streamline-your-first-youtube-business-channels/"><u>Launching Success Streamline Your First YouTube Business Channels</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/recording-facebook-video-calls-4-methods/"><u>Recording Facebook Video Calls [4 Methods]</u></a></li>
+<li><a href="https://fox-access.techidaily.com/top-10-exclusive-iphone-photo-editors-enhance-selfies-without-spending-for-2024/"><u>Top 10 Exclusive iPhone Photo Editors Enhance Selfies Without Spending for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/transient-gaming-experiences-worth-attention/"><u>Transient Gaming Experiences – Worth Attention?</u></a></li>
+</ul></div>
 

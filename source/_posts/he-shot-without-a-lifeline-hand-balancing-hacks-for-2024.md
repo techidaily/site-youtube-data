@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Shot Without a Lifeline  Hand Balancing Hacks for 2024\""
-date: 2024-08-16T03:28:27.620Z
-updated: 2024-08-17T03:28:27.620Z
+date: 2024-12-24T23:01:51.178Z
+updated: 2024-12-27T16:44:00.501Z
 tags:
   - ai video
   - ai youtube
@@ -34,11 +34,16 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -53,20 +58,22 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -84,9 +91,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -94,9 +98,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -119,8 +120,9 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -129,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,4 +144,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/nhancing-youtube-presence-with-strategic-banners-for-2024/"><u>[New] Enhancing YouTube Presence with Strategic Banners for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-crafting-youtube-video-trailers-with-filmoras-guide/"><u>[New] In 2024, Crafting YouTube Video Trailers with Filmora's Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-master-list-of-affordable-websites-boosting-vector-graphics-skills/"><u>[New] In 2024, Master List of Affordable Websites Boosting Vector Graphics Skills</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-step-into-fantasy-youtubes-top-10-vr-gems/"><u>[New] In 2024, Step Into Fantasy Youtube's Top 10 VR Gems</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-youtubes-flawless-beauty-masterclass-skincare-hairdos-and-cosmetics/"><u>[New] In 2024, YouTube's Flawless Beauty Masterclass Skincare, Hairdos & Cosmetics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-action-cams-duel-black-hero5-against-sj7/"><u>[Updated] Action Cams Duel Black Hero5 Against SJ7</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-crafting-visuals-the-science-of-youtube-banners-and-thumbnails-for-2024/"><u>[Updated] Crafting Visuals The Science of YouTube Banners & Thumbnails for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-quick-connectivity-iphone-images-to-windows/"><u>[Updated] In 2024, Quick Connectivity IPhone Images to Windows</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-capture-and-store-videos-effortlessly-with-our-top-list/"><u>2024 Approved Capture & Store Videos Effortlessly with Our Top List</u></a></li>
+<li><a href="https://win-webster.techidaily.com/how-does-disconnecting-from-onedrive-affect-your-file-storage-understanding-the-consequences/"><u>How Does Disconnecting From OneDrive Affect Your File Storage – Understanding the Consequences</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-apple-iphone-7-could-not-be-activatedreached-issue-by-drfone-ios/"><u>How To Fix Apple iPhone 7 Could Not Be Activated/Reached Issue</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-samsung-galaxy-m54-5g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Samsung Galaxy M54 5G to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-nokia-c12-pro-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/outmaneuvering-algorithms-in-content-creation-with-skill/"><u>Outmaneuvering Algorithms in Content Creation with Skill</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-the-virtual-world-social-medias-new-heroes/"><u>Revolutionizing the Virtual World: Social Media's New Heroes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/mline-your-youtube-short-experience-for-2024/"><u>Streamline Your YouTube Short Experience for 2024</u></a></li>
+</ul></div>
 

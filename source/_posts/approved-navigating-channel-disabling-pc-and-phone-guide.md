@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Navigating Channel Disabling  PC & Phone Guide\""
-date: 2024-08-16T03:31:58.206Z
-updated: 2024-08-17T03:31:58.206Z
+date: 2024-12-21T23:43:40.074Z
+updated: 2024-12-27T19:25:32.940Z
 tags:
   - ai video
   - ai youtube
@@ -54,8 +54,9 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 ![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
 
  One can also block YouTube channels on mobile devices in the same manner as you would do it on the desktop computer. It will do the same effect and prevent bullying users from interacting with your content.
@@ -65,9 +66,6 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 * 3\. Open a particular account that you intend to block and go to their main account page.
 
 ![find users](https://images.wondershare.com/filmora/article-images/find-users.jpg)
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * 4\. When you’re on the account page, open the menu at the top-right corner of the screen and tap Block user.
 
@@ -83,11 +81,16 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 
 ![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 2\. Sign in with your preferred Google account.
 
 ![parent account](https://images.wondershare.com/filmora/article-images/parent-account4.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 3\. Here you’ll see a button **Send Parental Consent Emai**l, press it.
@@ -102,35 +105,41 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 
 ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
 
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **II. Block from Watch Page**
 
 * 1\. On the Watch Page tap the dotted **More** option at the top right corner of the video.
 
 ![more option](https://images.wondershare.com/filmora/article-images/more-option7.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 
 * 2\. Press the **Block** option.
 * 3\. A dialog box will appear with two options, **Block this video** for blocking only this particular video or **Block this channel** to block the entire channel associated with the video.
 
 ![block this channel](https://images.wondershare.com/filmora/article-images/block-this-channel8.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 4\. Select any of the two options and then press **Block** again.
 * 5\. Enter the numbers you calculate from the presented numbers or a custom passcode.
 
 ![get passcode again](https://images.wondershare.com/filmora/article-images/pass-code-again8.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Conclusion**
@@ -138,9 +147,6 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
  Every minute more than 300 hours of video content is uploaded on to the YouTube databases while 5 billion videos are watched every day. This only shows the metrics a content creator and a user have to deal with. Content creators need to protect themselves from the unending trolls and scams that hit every other channel and affect its userbase. While kids and sensitive portions of the human population have to maintain a safe distance from damaging and provoking content that circulates on the platform. To safeguard both ends of the platform I made this guide to streamline the process of **how to block YouTube channels** and videos from affecting your happy life.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -148,14 +154,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -164,4 +167,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-elevate-your-yt-marketing-essential-tips-for-higher-rankings/"><u>[New] In 2024, Elevate Your YT Marketing Essential Tips for Higher Rankings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-perfect-end-youtube-outro-essentials-and-top-creators-for-2024/"><u>[New] The Perfect End YouTube Outro Essentials & Top Creators for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-comedy-crusade-youtubes-hottest-laughter-leaders/"><u>[Updated] 2024 Approved Comedy Crusade YouTube's Hottest Laughter Leaders</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-your-go-to-list-asmr-on-phone-platforms/"><u>[Updated] 2024 Approved Your Go-To List ASMR on Phone Platforms</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-fast-techniques-for-reordering-youtube-video-queues/"><u>[Updated] In 2024, Fast Techniques for Reordering YouTube Video Queues</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-securing-your-youtube-footage-a-quick-walkthrough/"><u>[Updated] In 2024, Securing Your YouTube Footage A Quick Walkthrough</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-innovative-discussion-themes-for-vloggers/"><u>[Updated] Innovative Discussion Themes for Vloggers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-cutting-costs-with-low-priced-vr-technology-china/"><u>2024 Approved Cutting Costs with Low-Priced VR Technology (China)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-smartest-screens-top-11-general-knowledge-channels/"><u>2024 Approved Smartest Screens Top 11 General Knowledge Channels</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unveiling-the-top-6-head-mounts-expert-reviews-for-action-photography/"><u>2024 Approved Unveiling The Top 6 Head Mounts Expert Reviews for Action Photography</u></a></li>
+<li><a href="https://win11.techidaily.com/iuacgombqeobquodkplusodhplusocquoduplusocquodvoodhplusocoplusocquodleocoeocpoodqplusobrueiuuiqjeobqpluswheimgshjgrpjg7zjg4fjg4pjgqjg4hjgqfjg4pjgqvjg7zmjqjlp77/"><u>最適なビデオ・オーディオファイルの確認に必要!コーデックチェッカー推奨:映像･音声用</u></a></li>
+<li><a href="https://program-issues.techidaily.com/defeating-the-darkness-resolving-your-pcs-zoom-black-screen-troubleshooting-guide/"><u>Defeating the Darkness: Resolving Your PC's Zoom Black Screen Troubleshooting Guide</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabled-apple-iphone-15-plus-how-to-unlock-a-disabled-apple-iphone-15-plus-drfone-by-drfone-ios/"><u>Disabled Apple iPhone 15 Plus How to Unlock a Disabled Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/making-triggered-memes-with-filmora-video-editor-for-2024/"><u>Making Triggered Memes with Filmora Video Editor for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-price-debate-is-it-cheaper-to-take-an-uber-or-a-taxi/"><u>The Price Debate: Is It Cheaper to Take an Uber or a Taxi?</u></a></li>
+</ul></div>
 

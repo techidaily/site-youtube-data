@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Exploring Video Threads on YouTube"
-date: 2024-08-16T03:28:44.895Z
-updated: 2024-08-17T03:28:44.895Z
+date: 2024-12-21T05:26:36.884Z
+updated: 2024-12-28T03:10:52.157Z
 tags:
   - ai video
   - ai youtube
@@ -74,8 +74,13 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -102,9 +107,6 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -112,8 +114,9 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -123,15 +126,13 @@ You can see all the comments you have posted in the Comment History in a few qui
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -154,8 +155,9 @@ YouTube is a global platform to share helpful and entertaining videos. The comme
 Find feedback or questions. Report offensive comments. If you are a regular YouTube user, use our tips and tricks to search comments quickly and grow your channel.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -164,14 +166,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +179,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-advanced-tips-for-ps4-screen-capture/"><u>[New] In 2024, Advanced Tips for PS4 Screen Capture</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/avigating-social-media-app-selection-tiktok-or-youtubes-shorts-preference/"><u>[New] Navigating Social Media App Selection TikTok or YouTubes' Shorts Preference</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/potlight-series-the-top-10-women-of-video-content-for-2024/"><u>[New] Spotlight Series The Top 10 Women of Video Content for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/our-complimentary-access-to-50-premium-youtube-banners-in-2024/"><u>[New] Your Complimentary Access to 50 Premium YouTube Banners, In 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-guide-on-transforming-youtube-videos-into-mp3-using-safe-procedures/"><u>[Updated] 2024 Approved Guide on Transforming YouTube Videos Into MP3 Using Safe Procedures</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-global-content-makers-conference-for-2024/"><u>[Updated] Global Content Makers' Conference for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-making-sense-of-creative-commons-licensing-and-usage-for-2024/"><u>[Updated] Making Sense of Creative Commons Licensing & Usage for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-peering-into-the-future-lg-tv-bp550-2023-review-for-2024/"><u>[Updated] Peering Into the Future LG TV BP550 2023 Review for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-pro-tips-for-utilizing-green-screen-effects-professionally/"><u>[Updated] Pro Tips for Utilizing Green Screen Effects Professionally</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-conquer-youtubes-copy-paste-loop-mastery-essentials/"><u>2024 Approved Conquer YouTube's Copy-Paste Loop Mastery Essentials</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-text-to-titles-an-in-depth-guide-to-srt-conversion/"><u>2024 Approved From Text to Titles An In-Depth Guide to SRT Conversion</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/breaking-barriers-womens-journey-through-coding-in-predominantly-male-sectors-featuring-insights-by-zdnet/"><u>Breaking Barriers: Women's Journey Through Coding in Predominantly Male Sectors, Featuring Insights by ZDNet</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-laptop-speaker-issues-a-comprehensive-guide/"><u>Fixing Laptop Speaker Issues: A Comprehensive Guide</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-13-pro-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 13 Pro to other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/low-cost-twitch-channel-setup-check-if-your-current-equipment-fits-the-bill/"><u>Low-Cost Twitch Channel Setup? Check if Your Current Equipment Fits the Bill!</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/motorola-mg7700-assessment-dependable-and-fast-performance/"><u>Motorola MG7700 Assessment - Dependable and Fast Performance</u></a></li>
+</ul></div>
 

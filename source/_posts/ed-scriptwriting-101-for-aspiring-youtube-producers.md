@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Scriptwriting 101 for Aspiring YouTube Producers"
-date: 2024-12-19T18:20:31.974Z
-updated: 2024-12-22T18:33:53.957Z
+date: 2024-12-22T22:16:08.214Z
+updated: 2024-12-28T05:36:29.905Z
 tags:
   - ai video
   - ai youtube
@@ -45,32 +45,32 @@ You have a great idea for a video, but you’re just not sure how to express it 
 Here are some things to do before you start writing your script for YouTube:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Set the tone
 
@@ -79,10 +79,6 @@ The tone you pick for the video will depend on your audience. It’s safe to ass
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -106,15 +102,15 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
@@ -123,6 +119,10 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -145,17 +145,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/reaking-down-8-common-blunders-in-early-stage-youtube-success/"><u>[New] Breaking Down 8 Common Blunders in Early-Stage YouTube Success</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-fast-and-flawless-mastering-the-art-of-multi-snap-chats/"><u>[New] In 2024, Fast & Flawless Mastering the Art of Multi-Snap Chats</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-extraordinary-12-tools-for-endless-screen-capture/"><u>[Updated] Extraordinary 12 Tools for Endless Screen Capture</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-your-iphones-mp3-fix-6-free-tools-to-convert-youtube-audio-for-2024/"><u>[Updated] Your iPhone's MP3 Fix 6 Free Tools to Convert YouTube Audio for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/te-storytelling-free-soundtrack-options-available-for-2024/"><u>Elevate Storytelling - Free Soundtrack Options Available for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-realme-gt-neo-5-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Realme GT Neo 5? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nubia-red-magic-9-proplus-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Nubia Red Magic 9 Pro+ Phone Without Password?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Lava Yuva 2? | Dr.fone</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/mastering-ark-survival-ascended-with-a-boosted-fps-for-an-unbeatable-pc-adventure/"><u>Mastering ARK: Survival Ascended with a Boosted FPS for an Unbeatable PC Adventure</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ess-youtube-experience-on-apple-gear-downloading-made-easy/"><u>Seamless Youtube Experience on Apple Gear Downloading Made Easy</u></a></li>
-<li><a href="https://win-able.techidaily.com/trouble-with-wwe-2k22-on-pc-heres-how-to-keep-it-running-smoothly/"><u>Trouble with WWE 2K22 on PC? Here's How to Keep It Running Smoothly</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/vlcs-advanced-webcam-functionality-for-video-archiving-for-2024/"><u>VLC's Advanced Webcam Functionality for Video Archiving for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-eliminate-youtube-shorts-permanent-guide/"><u>[New] In 2024, Eliminate YouTube Shorts Permanent Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/op-profit-generating-online-entertainer/"><u>[New] Top Profit Generating Online Entertainer</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/urbocharge-youtube-videos-efficient-rendering-fast-transfer/"><u>[New] Turbocharge YouTube Videos Efficient Rendering, Fast Transfer</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unveiling-elite-choices-a-guide-to-hdr-cameras-for-2024/"><u>[New] Unveiling Elite Choices A Guide to HDR Cameras for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-io-screen-recording-essentials-quick-start/"><u>[Updated] 2024 Approved IO Screen Recording Essentials Quick Start</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-mastering-your-camera-essential-tactics-for-hit-youtube-videos/"><u>[Updated] 2024 Approved Mastering Your Camera Essential Tactics for Hit YouTube Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-rise-above-reach-heights-5-tips-to-skyrocket-your-visibility/"><u>[Updated] 2024 Approved Rise Above, Reach Heights 5 Tips to Skyrocket Your Visibility</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-21plus-puzzling-pictures-assemble-a-joyous-vision/"><u>[Updated] In 2024, 21+ Puzzling Pictures Assemble a Joyous Vision</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-leading-links-to-googles-advertising-networks-on-videos-for-2024/"><u>[Updated] Leading Links to Google's Advertising Networks on Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-making-money-with-youtube-understanding-partner-program-for-2024/"><u>[Updated] Making Money with YouTube Understanding Partner Program for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-close-up-cinematography-through-zooming/"><u>[Updated] Mastering Close-Up Cinematography Through Zooming</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-mastering-online-monetization-with-universal-studio-use/"><u>2024 Approved Mastering Online Monetization with Universal Studio Use</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/enhancing-your-well-being-with-fitbit-sense-the-ideal-rival-to-apples-timepiece/"><u>Enhancing Your Well-Being with Fitbit Sense - The Ideal Rival to Apple's Timepiece</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/viewer-to-video-voyager-building-strong-backlinks-in-youtube/"><u>From Viewer to Video Voyager Building Strong Backlinks in YouTube</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/how-to-find-missing-files-or-partitions-on-windows-versions-11-10-8-and-7/"><u>How to Find Missing Files or Partitions on Windows Versions 11, 10, 8 & 7</u></a></li>
+<li><a href="https://fox-that.techidaily.com/imbalanced-audio-issue-on-airpods-learn-the-causes-and-effective-fixes-for-uneven-volume-levels/"><u>Imbalanced Audio Issue on AirPods? Learn the Causes and Effective Fixes for Uneven Volume Levels</u></a></li>
+<li><a href="https://fox-access.techidaily.com/revealing-successful-markets-for-2024/"><u>Revealing Successful Markets for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/transform-wmv-videos-into-3gpp-format-for-free-using-movavis-web-service/"><u>Transform WMV Videos Into 3GPP Format for Free - Using Movavi's Web Service</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/iuodkeocveocsplusodspluswbnuwplusqeawueazltog44k344k544og44og44oj44op44kk44ow44gu44k144kk44k65yi26zmq44gr44gk44ge44gmig/"><u>パソコン回復方法: システムドライブのサイズ制限について</u></a></li>
 </ul></div>
 

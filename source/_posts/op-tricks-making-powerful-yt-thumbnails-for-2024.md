@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Top Tricks  Making Powerful YT Thumbnails for 2024\""
-date: 2024-08-16T03:28:51.473Z
-updated: 2024-08-17T03:28:51.473Z
+date: 2024-12-27T05:25:27.925Z
+updated: 2024-12-27T17:12:52.450Z
 tags:
   - ai video
   - ai youtube
@@ -43,9 +43,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
@@ -63,6 +71,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
@@ -74,6 +86,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
@@ -97,20 +113,21 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/-complete-guide-to-utilizing-youtubes-adsense-for-success-for-2024/"><u>[New] A Complete Guide to Utilizing YouTube’s AdSense for Success for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-instagram-4-pro-tips-for-looped-video-content/"><u>[New] In 2024, Mastering Instagram 4 Pro Tips for Looped Video Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ne-youtube-showcase-mastering-media-merging-for-2024/"><u>[New] One Youtube Showcase Mastering Media Merging for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-from-novice-to-pro-youtube-editing-and-alternatives/"><u>[Updated] In 2024, From Novice to Pro YouTube Editing & Alternatives</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-spike-youtube-engagement-through-strategic-timing-for-2024/"><u>[Updated] Spike YouTube Engagement Through Strategic Timing for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-transform-your-videos-secrets-of-effective-youtube-seo-tools/"><u>2024 Approved Transform Your Videos Secrets of Effective YouTube SEO Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-upload-mastery-understanding-and-using-correct-video-sizes-on-youtube/"><u>2024 Approved Upload Mastery Understanding and Using Correct Video Sizes on YouTube</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/advanced-techniques-in-final-cut-pro-for-2024/"><u>Advanced Techniques in Final Cut Pro for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-apple-id-and-apple-password-on-apple-iphone-xs-max-by-drfone-ios/"><u>In 2024, How to Reset Apple ID and Apple Password On Apple iPhone XS Max</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mastering-windows-11s-in-built-auto-hdr-feature/"><u>Mastering Windows 11'S In-Built Auto HDR Feature</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ts-of-content-creators-finding-free-music/"><u>Secrets of Content Creators Finding Free Music</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/cket-your-view-count-youtube-success-via-sony-vegas-editing-for-2024/"><u>Skyrocket Your View Count YouTube Success via Sony Vegas Editing for 2024</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/step-by-step-guide-converting-and-editing-heic-images-in-photoshop-on-both-windows-and-macos/"><u>Step-by-Step Guide: Converting and Editing HEIC Images in Photoshop on Both Windows & macOS</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-proco-advantage-copilots-advanced-offering/"><u>The Proco Advantage - Copilot's Advanced Offering</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mpeg-asf-movavi/"><u>オンラインで簡単なMPEG ASFファイルの変換 - Movavi無料サービス</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1724766198890-ps5/"><u>プレミアムPS5情報:発売日、性能詳細、お得な商品が次々登場!新機能も披露します</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Taking Photos Steadily on One Leg for 2024"
-date: 2024-08-16T03:32:17.918Z
-updated: 2024-08-17T03:32:17.918Z
+date: 2024-12-25T05:57:37.712Z
+updated: 2024-12-28T06:29:57.461Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/4da3de972356b3a0046491847cf09381445449045
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
@@ -37,8 +41,9 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -52,9 +57,6 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 And here it is with hair clips:
 
@@ -65,8 +67,9 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -85,8 +88,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -94,9 +98,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -119,8 +120,9 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -129,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,4 +144,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-vimeo-monetization-101-a-step-by-step-guide-for-profits/"><u>[New] 2024 Approved Vimeo Monetization 101 A Step-by-Step Guide for Profits</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-enhancing-youtube-visibility-with-featured-channels-techniques/"><u>[New] In 2024, Enhancing YouTube Visibility with Featured Channels Techniques</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-expert-advice-incorporating-narrative-elements-into-youtube-videos/"><u>[Updated] 2024 Approved Expert Advice Incorporating Narrative Elements Into YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-curated-online-cinema-top-youtube-essentials/"><u>[Updated] Curated Online Cinema Top YouTube Essentials</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-becoming-a-wealthy-beauty-channel-host/"><u>[Updated] In 2024, Becoming a Wealthy Beauty Channel Host</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-ultimate-guide-to-cost-effective-media-providers-online/"><u>[Updated] In 2024, The Ultimate Guide to Cost-Effective Media Providers Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unwind-with-laughter-curating-15-hilarious-youtube-masterpieces/"><u>[Updated] Unwind with Laughter Curating 15 Hilarious YouTube Masterpieces</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-fine-tuning-focus-the-ultimate-guide-to-zooming-in-on-videoleap/"><u>2024 Approved Fine-Tuning Focus The Ultimate Guide to Zooming in on Videoleap</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-apple-iphone-xs-max-to-enjoy-more-fun-drfone-by-drfone-virtual-ios/"><u>Change Location on Yik Yak For your Apple iPhone XS Max to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/el-transformation-through-strategic-use-of-youtube-outros/"><u>Channel Transformation Through Strategic Use of YouTube Outros</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-the-right-video-sharing-platform-tiktok-vs-youtubes-shorts-in-2024/"><u>Choosing the Right Video Sharing Platform TikTok vs YouTubes' Shorts, In 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-youtubes-best-video-editing-practices/"><u>Decoding YouTube's Best Video Editing Practices</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-video-flipper-tools-top-10-picks-for-rotating-footage/"><u>Free Video Flipper Tools Top 10 Picks for Rotating Footage</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-105-classic-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Nokia 105 Classic Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-elite-no-price-facebook-visual-storytelling-suite/"><u>In 2024, Elite No-Price Facebook Visual Storytelling Suite</u></a></li>
+<li><a href="https://extra-support.techidaily.com/innovative-windows-podcast-solutions-top-8-cutting-edge-apps-for-2024/"><u>Innovative Windows Podcast Solutions Top 8 Cutting-Edge Apps for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-playstation-4-pro-how-it-elevates-4k-gaming-experience/"><u>Unveiling the Power of PlayStation 4 Pro: How It Elevates 4K Gaming Experience</u></a></li>
+</ul></div>
 

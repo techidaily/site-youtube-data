@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 12 Simple Tricks to Make Your YouTube Videos Go Viral for 2024"
-date: 2024-08-16T03:30:06.988Z
-updated: 2024-08-17T03:30:06.988Z
+date: 2024-12-22T22:30:57.376Z
+updated: 2024-12-28T05:19:38.488Z
 tags:
   - ai video
   - ai youtube
@@ -46,9 +46,9 @@ The keywords that you choose to use with your video will be the greatest factors
 Consider doing some keyword research into your video’s subject using the Google Keyword Planner in or a variety of other[keyword tools](https://tools.techidaily.com/wondershare/filmora/download/). Make sure the most important keywords are in your tags, title, and description.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Make Full Use of Your Video's Tags
 
 Tags are essential. A lot of creators either skip tags or only put in 1-5, and their actions will benefit you if you choose to use a lot.
@@ -58,15 +58,17 @@ Loading up your tags with keywords that are relevant to your video and genre wil
 Including the maximum amount of tags possible will help to give YouTube the maximum amount of information to use in order to place your video in the results of different searches or to have it come up as ‘related’ to other videos. Users that only post 3 or 4 tags with each video could be missing out on countless amounts of traffic for their content.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Post a Transcript in Your Video Description
 
 If you have a script or a transcript for your entire video you should consider posting it in the description of your video in order to improve your search engine ranking. This can also help for users that would like to have a written article to accompany your video and for indexing your video in search engine results. There are so many people that don't make proper use of their video descriptions on YouTube that doing so will give you an advantage.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Write Searchable YouTube Video Tiles
 
 By including your 1 or 2 most important keywords in the title of your video you will help YouTube sort your video into the correct search results. Generally, your most important keywords will be things like the name of the game you’re playing or the brand of makeup you’re reviewing.
@@ -76,17 +78,15 @@ Try to write titles that are searchable and which also get potential viewers exc
 Phrases such as ‘review’, ‘how-to’, and ‘tutorial’ get searched for a lot, so always include them in your titles when they apply to your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Optimize your Video Description for YouTube SEO
 
 Video descriptions should generally include around 4000 characters (about 900 words) in which you describe the content of your YouTube video, include important keywords, provide links to your other social media accounts, and ask viewers to subscribe. Using up all the space in your description is a good way to ensure you’re getting the maximum search value out of it.
 
 If you use a lot of products in your videos (i.e. you make cooking videos, so your favorite frying pan is in a lot of shots) then it is a good idea to look into affiliate programs. Amazon has one of the best. If you become an affiliate you can post links to the products you use in your video description and, if a viewer follows one and buys something (even if it’s not the thing you liked to) you’ll earn a commission. This won’t help you with search rankings, but it’s a nice bonus.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Use Custom Video Thumbnails
 
 A [custom thumbnail](https://tools.techidaily.com/wondershare/filmora/download/) is an excellent way to make your videos stand out ([check out these awesome thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)). A good thumbnail is its own piece of quality, customized, visual content that has the power to draw in audiences from search engine results. Make sure to take thumbnail-specific photos and perfect those images with text and graphics in Photoshop or a free alternative like Canva.
@@ -98,8 +98,9 @@ In order to[create a thumbnail that stands out](https://tools.techidaily.com/won
 If you are interested in generating more traffic to any YouTube video be sure to follow these 6 steps for how to get your YouTube video seen (and check out [4 more here!](https://tools.techidaily.com/wondershare/filmora/download/)).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -108,14 +109,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,4 +122,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-affiliate-allies-for-small-channels-an-easy-approach/"><u>[New] 2024 Approved Affiliate Allies for Small Channels An Easy Approach</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/inding-a-different-way-to-naming-your-channel-with-filmora-for-2024/"><u>[New] Finding a Different Way to Naming Your Channel with Filmora for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-pinterest-vid-extraction-made-easy-the-best-tools-ranked/"><u>[New] In 2024, Pinterest Vid Extraction Made Easy The Best Tools Ranked</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/yric-video-creation-secrets-unveiled-by-lyric-video-maker-for-2024/"><u>[New] Lyric Video Creation Secrets Unveiled by Lyric Video Maker for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-affordable-art-of-youtube-introsends-for-2024/"><u>[New] The Affordable Art of YouTube Intros/Ends for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-historical-insights-at-your-fingertips-top-10-for-students/"><u>[Updated] 2024 Approved Historical Insights at Your Fingertips – Top 10 for Students</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-navigating-the-online-marketplace-for-profitable-yt-content/"><u>[Updated] 2024 Approved Navigating the Online Marketplace for Profitable YT Content</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/youtube-mp3-downloader-compilation-top-10-for-2024/"><u>Best YouTube Mp3 Downloader Compilation (Top 10) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/detecting-irony-facebooks-latest-policy/"><u>Detecting Irony: Facebook's Latest Policy</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/easy-guide-to-handling-user-profiles-within-control-panels-yl-computing/"><u>Easy Guide to Handling User Profiles Within Control Panels - YL Computing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-the-financial-seas-of-youtube-success-carryminati-for-2024/"><u>Navigating the Financial Seas of YouTube Success (CarryMinati) for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/pc-gaming-saved-discover-5-quick-fixes-to-avoid-world-of-warships-crashing-down/"><u>PC Gaming Saved! Discover 5 Quick Fixes to Avoid World of Warships Crashing Down</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solution-steps-for-the-resident-evil-village-not-launching-correctly/"><u>Solution Steps for the 'Resident Evil Village Not Launching Correctly'</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/sysprep-windows-781011-aomei-image-deploy/"><u>Sysprep ライクな機能を提供する Windows 7/8/10/11用の優れた代替ツール: AOMEI Image Deploy 解説</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nto-endless-creativity-our-compilation-of-over-50-free-advertising-masterpieces-in-2024/"><u>Tap Into Endless Creativity – Our Compilation of over 50 FREE Advertising Masterpieces, In 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/king-the-secrets-of-your-personalized-youtube-playlists/"><u>Unlocking the Secrets of Your Personalized Youtube Playlists</u></a></li>
+</ul></div>
 

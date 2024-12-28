@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Charting Success  Top Online Video Channels\""
-date: 2024-08-16T03:34:19.792Z
-updated: 2024-08-17T03:34:19.792Z
+date: 2024-12-23T00:12:47.808Z
+updated: 2024-12-27T18:06:00.888Z
 tags:
   - ai video
   - ai youtube
@@ -61,19 +61,21 @@ The most common videos on Felix's channel are gaming videos in which he comments
 ###  2\.  HolaSoyGerman
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  3\.  ElrubiusOMG
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
@@ -83,9 +85,6 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 ###  4\.  Smosh
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -94,13 +93,15 @@ Most channels that have one viral video do not go on to have sustained success o
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
@@ -116,8 +117,9 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,14 +128,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,4 +141,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/asy-guide-turning-your-favorite-youtube-videos-into-animated-gifs/"><u>[New] Easy Guide Turning Your Favorite YouTube Videos Into Animated GIFs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-navigating-vector-editing-beyond-magixs-domain/"><u>[New] In 2024, Navigating Vector Editing Beyond Magix's Domain</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-transcoding-vimeo-to-mp3-audio-file/"><u>[New] In 2024, Transcoding Vimeo to MP3 Audio File</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-numbers-game-estimating-income-from-viral-content/"><u>[Updated] 2024 Approved The Numbers Game Estimating Income From Viral Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-essential-choice-10-budget-friendly-caption-tools/"><u>[Updated] In 2024, Essential Choice 10 Budget-Friendly Caption Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-infallible-way-to-forbid-youtubes-snappy-videos/"><u>[Updated] Infallible Way to Forbid YouTube's Snappy Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-path-to-youtube-prosperity-unlocking-monetization-with-500plus-views/"><u>[Updated] Path to YouTube Prosperity Unlocking Monetization with 500+ Views</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-future-of-televising-social-media-for-2024/"><u>[Updated] The Future of Televising Social Media for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-best-budget-cameras-for-creating-quality-vlogs/"><u>2024 Approved Best Budget Cameras for Creating Quality Vlogs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-boosting-visibility-the-art-of-crafting-youtube-channel-backlinks/"><u>2024 Approved Boosting Visibility The Art of Crafting YouTube Channel Backlinks</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ai-showdown-can-chatgpt-plus-outperform-perplexity/"><u>AI Showdown: Can ChatGPT Plus Outperform Perplexity?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tifying-the-journey-to-knowing-who-watches-you-for-2024/"><u>Demystifying the Journey to Knowing Who Watches You for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-capture-perfection-at-home-these-are-the-best-5-filming-hacks/"><u>In 2024, Capture Perfection at Home These Are the Best 5 Filming Hacks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/astery-guide-top-10-video-to-audio-picks-for-2024/"><u>MP3 Mastery Guide Top 10 Video-to-Audio Picks for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/pixel-perfect-preservation-the-best-practices-of-recording-games/"><u>Pixel-Perfect Preservation The Best Practices of Recording Games</u></a></li>
+<li><a href="https://program-issues.techidaily.com/red-dead-redemption-2-upgraded-say-goodbye-to-stutter-enjoy-seamless-gameplay-with-better-fps/"><u>Red Dead Redemption 2 Upgraded: Say Goodbye to Stutter, Enjoy Seamless Gameplay with Better FPS</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-realme-v30t-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Realme V30T Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+</ul></div>
 
