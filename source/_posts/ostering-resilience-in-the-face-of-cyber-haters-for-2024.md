@@ -1,7 +1,7 @@
 ---
 title: "[New] Fostering Resilience in the Face of Cyber Haters for 2024"
-date: 2024-08-08T13:51:31.698Z
-updated: 2024-08-09T13:51:31.698Z
+date: 2025-01-02T16:07:04.173Z
+updated: 2025-01-06T20:27:39.150Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/571b6953560c969952a7e82657ab3c73d752ed211
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,13 +27,9 @@ thumbnail: https://thmb.techidaily.com/571b6953560c969952a7e82657ab3c73d752ed211
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -63,11 +56,11 @@ thumbnail: https://thmb.techidaily.com/571b6953560c969952a7e82657ab3c73d752ed211
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -75,14 +68,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -91,4 +81,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-expert-audio-adjustments-for-youtube-content-makers/"><u>[New] 2024 Approved Expert Audio Adjustments for YouTube Content Makers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-settled-unseen-videos-a-fix/"><u>[New] In 2024, Settled Unseen Videos - A Fix</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagrams-best-practices-for-sensational-video-loops/"><u>[New] Instagram's Best Practices for Sensational Video Loops</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-smartphone-solutions-top-voice-changer-applications/"><u>[New] Smartphone Solutions Top Voice Changer Applications</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-discover-device-friendly-ways-to-locate-your-yt-comments/"><u>[Updated] 2024 Approved Discover Device-Friendly Ways to Locate Your YT Comments</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-analyzing-per-view-gain-for-content-making-on-video-platforms/"><u>[Updated] Analyzing Per-View Gain for Content Making on Video Platforms</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-flavorful-footage-kitchen-film-making-101/"><u>[Updated] In 2024, Flavorful Footage Kitchen Film-Making 101</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-mastering-obs-recording-setup-and-usage-tips-for-mac-users/"><u>[Updated] Mastering OBS Recording Setup & Usage Tips for Mac Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/id-audio-archive-a-curated-list-of-top-6-free-music-downloading-apps-for-2024/"><u>Android Audio Archive A Curated List of Top 6 Free Music Downloading Apps for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209746254-9781506263151-beyond-the-content/"><u>Beyond the Content | Free Book</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/leading-enterprise-cloud-vault-optimal-data-management/"><u>Leading Enterprise Cloud Vault Optimal Data Management</u></a></li>
+<li><a href="https://solve-help.techidaily.com/oneplus-12-comprehensive-analysis-a-cost-effective-substitute-for-high-end-iphones-and-samsung-galaxies/"><u>OnePlus 12 Comprehensive Analysis - A Cost-Effective Substitute for High-End iPhones & Samsung Galaxies</u></a></li>
+</ul></div>
 

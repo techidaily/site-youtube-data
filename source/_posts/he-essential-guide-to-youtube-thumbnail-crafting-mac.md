@@ -1,7 +1,7 @@
 ---
 title: "[New] The Essential Guide to YouTube Thumbnail Crafting (Mac)"
-date: 2024-12-25T21:40:17.063Z
-updated: 2024-12-27T22:33:47.049Z
+date: 2025-01-02T16:52:26.854Z
+updated: 2025-01-06T21:19:45.831Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,10 @@ If you don’t create a thumbnail then youtube will generate one by itself which
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. Preview the video and choose the still snapshot
 
 The first step in creating a thumbnail is to import the final video into the FilmoraX editor on your MacBook.
@@ -64,11 +68,7 @@ You can easily choose the frame from the video or use the preview frame button t
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. Add text, shape, and image overlays
@@ -78,7 +78,7 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -86,6 +86,10 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -102,14 +106,10 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -132,22 +132,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/chieving-profitability-on-youtube-average-view-count-for-success/"><u>[New] Achieving Profitability on YouTube Average View Count for Success</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-best-photo-to-cartoon-software-for-windows-and-mac-for-2024/"><u>[New] Best Photo to Cartoon Software for Windows & Mac for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-reclaiming-brightness-in-youtube-videos/"><u>[Updated] 2024 Approved Reclaiming Brightness in YouTube Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-pro-level-cams-for-aspiring-youtube-creators/"><u>[Updated] In 2024, Pro-Level Cams for Aspiring YouTube Creators</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-leveraging-google-meet-for-youtube-streaming-a-step-by-step-process/"><u>[Updated] Leveraging Google Meet for YouTube Streaming A Step-by-Step Process</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-pitch-perfect-techniques-for-integrating-tunes-into-vimeo-videos-for-2024/"><u>[Updated] Pitch Perfect Techniques for Integrating Tunes Into Vimeo Videos for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-a-step-by-step-journey-through-high-impact-youtube-banner-designs/"><u>2024 Approved A Step-by-Step Journey Through High-Impact YouTube Banner Designs</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-rapidly-rendering-fortnite-cover-images/"><u>2024 Approved Rapidly Rendering Fortnite Cover Images</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/38533923-2024-approved-your-guide-to-exceptional-online-marketing-savor-our-selection-of-50-free-ads/"><u>2024 Approved Your Guide to Exceptional Online Marketing – Savor Our Selection of 50 FREE Ads!</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/advanced-ebay-strategies-2009-mastering-search-and-bulk-messaging-with-expert-tips/"><u>Advanced eBay Strategies 2009: Mastering Search & Bulk Messaging with Expert Tips</u></a></li>
-<li><a href="https://win-forum.techidaily.com/command-prompt-techniques-for-permanent-deletion-of-files-and-directories-on-windows-11-computers/"><u>Command Prompt Techniques for Permanent Deletion of Files and Directories on Windows 11 Computers</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Xiaomi Redmi 13C | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-the-ultimate-checklist-for-youtube-rule-adherence/"><u>In 2024, The Ultimate Checklist for YouTube Rule Adherence</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210966356-9781088233481-leila-la-hija-de-charles-la-verdadera-historia-de-yvonne-a-pereira/"><u>Leila, la hija de Charles. La verdadera historia de Yvonne A. Pereira | Free Book</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/mislead-no-more-recognize-real-and-rigged-chatgpt-apps/"><u>Mislead No More: Recognize Real and Rigged ChatGPT Apps!</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtubes-competition-best-3-online-videostreaming-hubs-for-2024/"><u>YouTube's Competition Best 3 Online Videostreaming Hubs for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-mastering-youtubes-short-form-content-key-tips-revealed/"><u>[New] In 2024, Mastering YouTube's Short-Form Content Key Tips Revealed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-merging-youtube-with-imovie-a-soundtrack-journey/"><u>[New] In 2024, Merging Youtube with iMovie A Soundtrack Journey</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-ultimate-guide-to-efficiently-using-look-up-tables-luts/"><u>[New] In 2024, The Ultimate Guide to Efficiently Using Look-Up Tables (LUTs)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ound-sanitization-cleaning-up-your-online-footage-for-2024/"><u>[New] Sound Sanitization Cleaning Up Your Online Footage for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-making-text-dance-2-creative-animation-strategies/"><u>[Updated] 2024 Approved Making Text Dance 2 Creative Animation Strategies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-dodge-digital-watchers-accelerating-view-count-growth-for-2024/"><u>[Updated] Dodge Digital Watchers Accelerating View Count Growth for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-top-ranked-hd-screen-capturing-tools/"><u>[Updated] In 2024, Top-Ranked HD Screen Capturing Tools</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-unmatched-story-design-arena/"><u>[Updated] In 2024, Unmatched Story Design Arena</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-making-your-slides-come-alive-with-youtube-in-ppt-for-2024/"><u>[Updated] Making Your Slides Come Alive with YouTube in PPT for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-lava-blaze-curve-5g-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Lava Blaze Curve 5G? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/complete-instructions-for-performing-an-emergency-restart-and-entering-iphones-safe-mode/"><u>Complete Instructions for Performing an Emergency Restart and Entering iPhone's Safe Mode</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/how-to-accelerate-your-computer-performance-without-upgrading-equipment-expert-advice-from-yl-computing/"><u>How to Accelerate Your Computer Performance Without Upgrading Equipment - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-quick-fixes-how-to-shorten-youtube-videos-easily/"><u>In 2024, Quick Fixes How to Shorten YouTube Videos Easily</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-realtek-sound-card-drivers-compatible-with-windows-11-10-and-7-download-now/"><u>Latest Realtek Sound Card Drivers Compatible with Windows 11, 10 & 7 - Download Now!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ly-earnings-potential-on-youtube/"><u>Monthly Earnings Potential on YouTube</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/step-by-step-instructions-for-crafting-dynamic-visual-impact-with-imovie-effects/"><u>Step-by-Step Instructions for Crafting Dynamic Visual Impact with iMovie Effects</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-virtual-reality-vr-bikes-to-check-out-for-2024/"><u>Top Virtual Reality (VR) Bikes to Check Out for 2024</u></a></li>
 </ul></div>
 

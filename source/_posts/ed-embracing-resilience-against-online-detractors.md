@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Embracing Resilience Against Online Detractors"
-date: 2024-12-23T22:34:59.510Z
-updated: 2024-12-27T19:04:26.200Z
+date: 2025-01-04T17:16:50.208Z
+updated: 2025-01-06T21:44:02.435Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/98f34ca3fe8cce60e4b7bdc2a18ea2c36cd4a116d
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/98f34ca3fe8cce60e4b7bdc2a18ea2c36cd4a116d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,22 +83,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-speech-to-script-top-apps-for-on-the-go-text-generation/"><u>[New] In 2024, Speech to Script Top Apps for On-the-Go Text Generation</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/earn-the-role-youtube-shorts-music-plays/"><u>[New] Learn the Role YouTube Shorts Music Plays</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-your-viewers-your-wealth-building-an-earning-strategy/"><u>[Updated] 2024 Approved Your Viewers, Your Wealth Building an Earning Strategy</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-boost-creativity-with-free-audio-effects-online/"><u>[Updated] Boost Creativity with Free Audio Effects Online</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-convert-and-edit-wonders-select-10-best-youtube-converters/"><u>[Updated] Convert & Edit Wonders Select 10 Best YouTube Converters</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-direct-download-of-youtube-videos/"><u>[Updated] In 2024, Direct Download of YouTube Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-global-viewer-count-triumphs-play-button-honors/"><u>[Updated] In 2024, Global Viewer Count Triumphs Play Button Honors</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-livestream-giants-rivalry-facebook-vs-youtube-vs-periscope/"><u>[Updated] Livestream Giants' Rivalry Facebook Vs. YouTube Vs. Periscope</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-realities-redefined-the-metaverse-vs-omniverse-showdown-explained/"><u>2024 Approved Realities Redefined The Metaverse Vs. Omniverse Showdown Explained</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-try-these-free-online-tempo-trackers-today/"><u>2024 Approved Try These FREE Online Tempo Trackers Today</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-newest-epson-wf-3620-driver-update-for-pcs-running-windows-1087-free-download/"><u>Get the Newest Epson WF-3620 Driver Update for PCs Running Windows 10/8/7 - Free Download!</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-itel-a60-is-unlocked-by-drfone-android/"><u>How To Check if Your Itel A60 Is Unlocked</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-xs-max-without-apple-password-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Reset iPhone XS Max Without Apple Password? | Stellar</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-comparative-study-of-toolwizs-photography-tools/"><u>In 2024, Comparative Study of Toolwiz's Photography Tools</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ating-ad-blocking-in-chrome-firefox-android-and-ios-for-youtube/"><u>Navigating Ad-Blocking in Chrome, Firefox, Android, & iOS for YouTube</u></a></li>
-<li><a href="https://techtrends.techidaily.com/steps-to-remove-images-from-icloud-without-losing-them-on-your-iphone/"><u>Steps to Remove Images From iCloud Without Losing Them on Your iPhone</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-realme-narzo-60-pro-5g-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Realme Narzo 60 Pro 5G</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-minimize-external-noise-find-a-quiet-environment-to-minimize-distractions-that-can-hinder-understanding/"><u>[New] 2024 Approved Minimize External Noise Find a Quiet Environment to Minimize Distractions that Can Hinder Understanding</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ffortless-video-streams-youtube-loops-for-television-viewers-for-2024/"><u>[New] Effortless Video Streams YouTube Loops for Television Viewers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aximize-your-youtube-impact-with-perfect-aspect-ratios/"><u>[New] Maximize Your YouTube Impact with Perfect Aspect Ratios</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nleash-your-videos-full-potential-with-these-seo-mastery-tips-for-2024/"><u>[New] Unleash Your Videos' Full Potential with These SEO Mastery Tips for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-visionaries-of-synthetic-environment-tech/"><u>[New] Visionaries of Synthetic Environment Tech</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-cutting-edge-essential-editing-tips-for-youtube-experts/"><u>[Updated] 2024 Approved The Cutting Edge Essential Editing Tips for YouTube Experts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-youtube-video-reverser-online-for-2024/"><u>[Updated] Best YouTube Video Reverser Online for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-elite-race-sims-ultimate-selection-for-2024/"><u>[Updated] Elite Race Sims Ultimate Selection for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-analytics-unlocked-your-step-by-step-youtube-guide/"><u>[Updated] In 2024, Analytics Unlocked Your Step-by-Step YouTube Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-transform-your-streaming-journey-by-activating-youtubes-av1-for-2024/"><u>[Updated] Transform Your Streaming Journey by Activating YouTube's AV1 for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-persistent-portrait-enabling-iphone-screen-orientation-changes-easily/"><u>Fixing Persistent Portrait: Enabling iPhone Screen Orientation Changes Easily</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/flair-and-finesse-in-your-gaming-youtube-channel-for-2024/"><u>Flair and Finesse in Your Gaming YouTube Channel for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/navigating-iphone-xs-biometrics-addressing-face-id-glitches-for-2024/"><u>Navigating iPhone X's Biometrics Addressing Face ID Glitches for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/step-by-step-guide-adding-libdvdcss-to-handbrake-on-your-mac-and-windows-10-device-for-dvd-conversion/"><u>Step-by-Step Guide: Adding Libdvdcss to Handbrake on Your Mac and Windows 10 Device for DVD Conversion</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ling-tseries-income-stream-from-youtube-content-consumption-for-2024/"><u>Unveiling TSeries’ Income Stream From Youtube Content Consumption for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/r-vibes-selecting-heated-background-ideas/"><u>Winter Vibes Selecting Heated Background Ideas</u></a></li>
 </ul></div>
 
