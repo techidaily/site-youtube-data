@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Life's Journey Videos  Creating Authentic Online Experiences\""
-date: 2025-01-08T23:23:42.261Z
-updated: 2025-01-12T19:38:55.559Z
+date: 2025-01-12T12:51:19.764Z
+updated: 2025-01-19T06:35:18.052Z
 tags:
   - ai video
   - ai youtube
@@ -54,17 +54,21 @@ YouTuber Shameless Maya does an excellent job of this. She created a visually ap
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\.  Never Have I Ever Q & A
 
@@ -78,25 +82,17 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\.  25 Facts About Me Tag
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10\.  YouTube Live/Webinar
 
@@ -106,10 +102,14 @@ YouTube live videos are probably the best ways to interact and share your story 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -133,21 +133,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-understanding-and-proficiently-implementing-cc-copyrights/"><u>[New] 2024 Approved Understanding and Proficiently Implementing CC Copyrights</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-unpacking-the-virb-ultra-30-action-cam-by-garmin/"><u>[New] 2024 Approved Unpacking the VIRB Ultra 30 Action Cam by Garmin</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-visual-voyage-amds-radeon-reborn/"><u>[New] 2024 Approved Visual Voyage AMD's Radeon Reborn</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-az-record-app-deep-dive-and-alternatives-guide-for-2024/"><u>[New] AZ Record App Deep Dive & Alternatives Guide for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-continuous-screenshot-providers/"><u>[New] Continuous Screenshot Providers</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-elite-adventurers-playground-top-10-games-revealed/"><u>[New] Elite Adventurers' Playground – Top 10 Games Revealed</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/iggles-in-a-gigabyte-10-hilarious-video-concepts-to-share-online/"><u>[New] Giggles in a Gigabyte 10 Hilarious Video Concepts to Share Online</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-boost-your-channels-a-guide-to-best-youtube-seo-resources/"><u>[New] In 2024, Boost Your Channels A Guide to Best YouTube SEO Resources</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/uick-win-strategies-top-20-video-tips-for-content-boosters/"><u>[New] Quick-Win Strategies Top 20 Video Tips for Content Boosters</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-ancient-artifacts-iphone-x-selfies/"><u>[Updated] Ancient Artifacts – iPhone X Selfies</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-boosting-subscriber-commitment-top-strategies-for-keeping-viewers-coming-back-on-youtube-for-2024/"><u>[Updated] Boosting Subscriber Commitment Top Strategies for Keeping Viewers Coming Back on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-frame-by-frame-mastery-in-youtube-no-cost-required/"><u>[Updated] In 2024, Frame by Frame Mastery in YouTube - No Cost Required</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unleashing-creativity-converting-youtube-videos-into-captivating-gifs/"><u>[Updated] In 2024, Unleashing Creativity Converting YouTube Videos Into Captivating GIFs</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-streamline-slides-to-cinematic-content-for-2024/"><u>[Updated] Streamline Slides to Cinematic Content for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-navigating-keyword-optimization-in-podcast-seo/"><u>In 2024, Navigating Keyword Optimization in Podcast SEO</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/the-guide-to-capturing-web-radio-frequencies-flawlessly/"><u>The Guide to Capturing Web Radio Frequencies Flawlessly</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-quickly-locating-your-curated-music-compilation-on-youtube/"><u>[New] In 2024, Quickly Locating Your Curated Music Compilation on Youtube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/roven-youtube-seo-tricks-boosting-video-reach-and-visibility-for-2024/"><u>[New] Proven YouTube SEO Tricks Boosting Video Reach and Visibility for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-from-basic-snaps-to-expertly-crafted-images-on-snapchat-for-2024/"><u>[Updated] From Basic Snaps to Expertly Crafted Images on Snapchat for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-mastering-the-art-of-retrieving-tweets-as-gifs/"><u>[Updated] In 2024, Mastering the Art of Retrieving Tweets as GIFs</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-preventing-unwanted-filming-in-quicktime/"><u>[Updated] In 2024, Preventing Unwanted Filming in QuickTime</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-understanding-youtube-lives-image-language/"><u>[Updated] In 2024, Understanding YouTube Live's Image Language</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-insiders-look-at-top-9-free-platforms-for-designing-youtube-logos/"><u>[Updated] Insider's Look at Top 9 FREE Platforms for Designing YouTube Logos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-zip-to-srt-transform-subtitled-content-swiftly/"><u>2024 Approved Mastering Zip-to-Srt Transform Subtitled Content Swiftly</u></a></li>
+<li><a href="https://discover-great.techidaily.com/boost-your-computers-performance-tips-for-turning-off-unnecessary-services-and-processes-expert-advice-by-yl-computing/"><u>Boost Your Computer's Performance: Tips for Turning Off Unnecessary Services & Processes - Expert Advice by YL Computing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/conquer-youtube-photos-an-experts-step-by-step-guide/"><u>Conquer YouTube Photos An Expert's Step-by-Step Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-tecno-spark-20-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Tecno Spark 20 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/acular-gaming-capture-options/"><u>Spectacular Gaming Capture Options</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nail-tactics-for-top-views-on-youtube-videos/"><u>Thumbnail Tactics for Top Views on YouTube Videos</u></a></li>
 </ul></div>
 

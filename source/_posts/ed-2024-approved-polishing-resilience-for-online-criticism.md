@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Polishing Resilience for Online Criticism\""
-date: 2025-01-01T22:09:52.303Z
-updated: 2025-01-06T19:28:31.244Z
+date: 2025-01-16T05:35:41.916Z
+updated: 2025-01-19T01:26:32.256Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d21
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d21
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,20 +83,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-apex-audio-streamer-androids-choice-for-2024/"><u>[New] Apex Audio Streamer, Android's Choice for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/est-alternative-top-10-flv-to-youtube-converter-apps/"><u>[New] Best Alternative Top 10 FLV to YouTube Converter Apps</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-how-to-edit-the-length-of-a-video-on-youtube-for-2024/"><u>[New] How to Edit the Length of a Video on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-how-to-blur-background-of-your-youtube-video-2-easy-ways/"><u>[New] In 2024, How to Blur Background of Your YouTube Video - 2 Easy Ways</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/treamlining-youtube-audio-pace-via-devices/"><u>[New] Streamlining YouTube Audio Pace via Devices</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/advanced-pc-knowledge-with-toms-circuitry-experts/"><u>Advanced PC Knowledge with Tom's Circuitry Experts</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ver-how-to-craft-videos-flawlessly-in-8-tools/"><u>Discover How to Craft Videos Flawlessly in 8 Tools</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/downloading-twitters-animated-content-simplified/"><u>Downloading Twitter's Animated Content Simplified</u></a></li>
-<li><a href="https://win-answers.techidaily.com/easy-solutions-for-smoothing-out-bloodhunts-performance-glitches-on-desktop-systems/"><u>Easy Solutions for Smoothing Out Bloodhunt's Performance Glitches on Desktop Systems</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ce-visibility-amplify-impact-video-seo/"><u>Enhance Visibility, Amplify Impact (Video SEO)</u></a></li>
-<li><a href="https://win-docs.techidaily.com/explore-top-substitutes-to-ahrefs-enhancing-your-seo-strategy-with-seo-powersuites-analytics-and-research-features/"><u>Explore Top Substitutes to Ahrefs: Enhancing Your SEO Strategy with SEO PowerSuite's Analytics and Research Features</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/fixing-the-silence-troubleshooting-audio-issues-in-skyrim/"><u>Fixing the Silence: Troubleshooting Audio Issues in Skyrim</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-oppo-reno-11f-5g-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Oppo Reno 11F 5G FRP</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/toward-balance-best-yoga-series-to-watch-and-learn-from-for-2024/"><u>Step Toward Balance Best Yoga Series to Watch and Learn From for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/why-your-infinix-note-30-5g-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Infinix Note 30 5G Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-break-free-top-10-exclusive-web-photo-workstations/"><u>[New] Break Free Top 10 Exclusive Web Photo Workstations</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-create-digital-humor-kapwings-meme-builder/"><u>[New] Create Digital Humor Kapwing's Meme Builder</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-premier-directory-of-economical-visual-content-providers/"><u>[Updated] 2024 Approved Premier Directory of Economical Visual Content Providers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-visionaries-of-video-workshop/"><u>[Updated] 2024 Approved The Visionaries of Video Workshop</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-behind-the-scenes-creating-successful-youtube-shorts-videos/"><u>[Updated] In 2024, Behind the Scenes Creating Successful YouTube Shorts Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-savory-streamers-the-creme-de-la-cuisine/"><u>[Updated] Savory Streamers The Crème De La Cuisine</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Lava Blaze 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Samsung Galaxy S23 FE? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-motorola-razr-40-ultra-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Motorola Razr 40 Ultra to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/en-your-content-for-unlimited-youtube-exposure/"><u>Sharpen Your Content for Unlimited YouTube Exposure</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-techniques-for-new-world-sound-glitches/"><u>Troubleshooting Techniques for New World Sound Glitches</u></a></li>
 </ul></div>
 

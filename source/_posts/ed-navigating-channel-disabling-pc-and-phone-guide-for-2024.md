@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating Channel Disabling  PC & Phone Guide for 2024\""
-date: 2025-01-07T08:05:15.258Z
-updated: 2025-01-12T21:25:34.970Z
+date: 2025-01-18T02:45:24.687Z
+updated: 2025-01-19T03:06:36.947Z
 tags:
   - ai video
   - ai youtube
@@ -50,16 +50,12 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 
 ![find about option](https://images.wondershare.com/filmora/article-images/find-about-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 3\. On the right-hand side right under the **Stats**, you will find a **flag** icon. Press the icon and it will show a drop-down menu, select **Block user**.
 
 ![block user](https://images.wondershare.com/filmora/article-images/block-user2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 4\. You will be prompted to confirm your selection, click **Submit** to confirm.
@@ -67,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 ![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
@@ -85,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 ![tap block users](https://images.wondershare.com/filmora/article-images/tap-block-user2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 3: Block content on YouTube kids**
@@ -97,6 +93,10 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 * 1\. Open the YouTube Kids app and tap on **I’m a parent** to set up the app.
 
 ![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 2\. Sign in with your preferred Google account.
 
@@ -114,18 +114,10 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 
 ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
 
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **II. Block from Watch Page**
 
@@ -138,13 +130,21 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 
 ![block this channel](https://images.wondershare.com/filmora/article-images/block-this-channel8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 4\. Select any of the two options and then press **Block** again.
 * 5\. Enter the numbers you calculate from the presented numbers or a custom passcode.
 
 ![get passcode again](https://images.wondershare.com/filmora/article-images/pass-code-again8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Conclusion**
@@ -174,15 +174,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-files.techidaily.com/new-seamlessly-step-into-a-tiktok-livestream-a-guide/"><u>[New] Seamlessly Step Into a TikTok Livestream A Guide</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-tailoring-teammate-backgrounds-on-teams-chat/"><u>[Updated] In 2024, Tailoring Teammate Backgrounds on Teams Chat</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-perfecting-channel-art-a-step-by-step-instructional-manual-for-2024/"><u>[Updated] Perfecting Channel Art A Step-by-Step Instructional Manual for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-free-video-credits-pro-the-best-suggestions-1-6/"><u>2024 Approved Free Video Credits Pro - The Best Suggestions #1-6</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-easy-cinematography-a-beginners-guide-to-making-movies/"><u>In 2024, Easy Cinematography A Beginners Guide to Making Movies</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-humor-hubbub-top-7-cheeky-content-concepts-for-laughter-lovers/"><u>In 2024, Humor Hubbub Top 7 Cheeky Content Concepts for Laughter Lovers</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/leverage-cookiebot-technology-for-enhanced-web-performance-and-seo-success/"><u>Leverage Cookiebot Technology for Enhanced Web Performance and SEO Success</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ommercial-side-of-casual-videography/"><u>The Commercial Side of Casual Videography</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/transform-your-web-exploration-with-microsofts-split-screen-functionality-for-2024/"><u>Transform Your Web Exploration with Microsoft's Split Screen Functionality for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-your-corsair-hs70-mic-for-improved-sound-quality-and-functionality/"><u>Troubleshooting Your Corsair HS70 Mic for Improved Sound Quality and Functionality</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-streamline-projects-with-free-video-intros/"><u>[New] 2024 Approved Streamline Projects with Free Video Intros</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-digital-recorder-hits-the-ultimate-list/"><u>[New] In 2024, Digital Recorder Hits The Ultimate List</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/comprehensive-guide-to-erasing-all-contents-from-an-iphone-windows-and-mac-solutions-by-stellar/"><u>Comprehensive Guide to Erasing All Contents From an iPhone - Windows & Mac Solutions by Stellar</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-itel-p55t-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Itel P55T Phone Screen?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-brief-snippet-analysis-for-beginners/"><u>In 2024, Brief Snippet Analysis for Beginners</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-building-a-professional-youtube-presence-via-smartphone/"><u>In 2024, Building a Professional YouTube Presence via Smartphone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Xiaomi 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-editors-dream-machine-top-portable-video-edits-tools/"><u>In 2024, Editor's Dream Machine Top Portable Video Edits Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-elevating-your-style-with-youtubes-best-hauls/"><u>In 2024, Elevating Your Style with YouTube's Best Hauls</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-inside-look-securing-a-profitable-monetized-youtube-space/"><u>In 2024, Inside Look Securing a Profitable Monetized Youtube Space</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Samsung Galaxy Z Fold 5? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-10-enterprise-cloud-options-for-2024/"><u>Top 10 Enterprise Cloud Options for 2024</u></a></li>
 </ul></div>
 

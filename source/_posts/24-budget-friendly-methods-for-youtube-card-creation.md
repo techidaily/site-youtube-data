@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Budget-Friendly Methods for YouTube Card Creation\""
-date: 2024-07-29T14:25:59.222Z
-updated: 2024-07-30T14:25:59.222Z
+date: 2025-01-17T20:09:58.037Z
+updated: 2025-01-18T21:31:50.702Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/c7faa06295ae09ceb9c04771af8ef4a70065bcb58
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -44,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/c7faa06295ae09ceb9c04771af8ef4a70065bcb58
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,10 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -87,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,10 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -133,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,4 +147,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-elevate-your-channel-identity-essential-youtube-naming-strategies/"><u>[New] 2024 Approved Elevate Your Channel Identity Essential YouTube Naming Strategies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-enhance-videos-seamlessly-using-youtube-studio-editor/"><u>[New] 2024 Approved Enhance Videos Seamlessly Using YouTube Studio Editor</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-from-vision-to-visual-impact-youtube-trailers-via-filmora/"><u>[New] 2024 Approved From Vision to Visual Impact YouTube Trailers via Filmora</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-streamline-your-listening-exclusive-access-to-this-curated-list-of-24-free-rippers/"><u>[New] 2024 Approved Streamline Your Listening Exclusive Access to This Curated List of 24 Free Rippers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-surging-views-selecting-best-hashtags-for-yt/"><u>[New] 2024 Approved Surging Views Selecting Best Hashtags for YT</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-transform-your-footage-tips-for-youtube-studios-video-editing/"><u>[New] 2024 Approved Transform Your Footage Tips for YouTube Studio's Video Editing</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-cut-to-the-chase-quick-background-blur-tricks-for-everyday-meets/"><u>[New] Cut to the Chase Quick Background Blur Tricks for Everyday Meets</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-streamlining-your-live-broadcast-ps4-recording-via-obs-studio/"><u>[Updated] 2024 Approved Streamlining Your Live Broadcast PS4 Recording via OBS Studio</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-home-studio-heroics-your-path-to-effectful-artistry/"><u>2024 Approved Home Studio Heroics Your Path to Effectful Artistry</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/apple-unveils-new-airpower-footage-is-it-a-rebirth-of-their-once-abandoned-qi-charging-mat/"><u>Apple Unveils New AirPower Footage – Is It a Rebirth of Their Once Abandoned Qi Charging Mat?</u></a></li>
+<li><a href="https://common-error.techidaily.com/comprehensive-solution-for-fixing-error-message-0x8007001f-during-windows-updates/"><u>Comprehensive Solution for Fixing Error Message 0X8007001f During Windows Updates</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcome-apple-transaction-hurdles-discover-these-6-critical-fixes/"><u>Overcome Apple Transaction Hurdles: Discover These 6 Critical Fixes</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quickly-update-xbox-wireless-adapters-simple-downloads-for-seamless-gaming/"><u>Quickly Update Xbox Wireless Adapters - Simple Downloads for Seamless Gaming</u></a></li>
+</ul></div>
 

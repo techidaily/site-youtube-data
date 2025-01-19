@@ -1,7 +1,7 @@
 ---
 title: "[New] The Essential Guide to YouTube Thumbnail Crafting (Mac)"
-date: 2025-01-07T09:48:12.845Z
-updated: 2025-01-13T07:37:50.874Z
+date: 2025-01-13T10:21:10.728Z
+updated: 2025-01-18T19:39:38.099Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ However, if you are wondering how that can be achieved then fret no longer for t
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is a Youtube Thumbnail?
 
 A youtube thumbnail is a smaller version of the video, a snapshot that you choose as a preview of your video. A Thumbnail is extremely important because it is essentially the outer packaging of your video; its front cover.
@@ -51,10 +55,6 @@ If you don’t create a thumbnail then youtube will generate one by itself which
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. Preview the video and choose the still snapshot
 
 The first step in creating a thumbnail is to import the final video into the FilmoraX editor on your MacBook.
@@ -68,11 +68,7 @@ You can easily choose the frame from the video or use the preview frame button t
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. Add text, shape, and image overlays
@@ -82,7 +78,7 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -92,7 +88,11 @@ FilmoraX has a wide range of effects that you can apply to your videos or pictur
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
@@ -132,19 +132,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-unveiling-profits-how-much-do-creators-earn-from-each-ad/"><u>[New] 2024 Approved Unveiling Profits How Much Do Creators Earn From Each Ad?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-premier-lineup-best-free-video-editors-unveiled/"><u>[New] In 2024, Premier Lineup Best Free Video Editors Unveiled</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-fresh-footage-frequent-flows-dos-and-donts-for-streamlining-video-content/"><u>[Updated] 2024 Approved Fresh Footage, Frequent Flows Do's & Don'ts for Streamlining Video Content</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/assessing-the-reliability-of-ais-like-chatgptbard-for-savings/"><u>Assessing the Reliability of AIs Like ChatGPT/Bard for Savings</u></a></li>
-<li><a href="https://driver-error.techidaily.com/bcm20702a0-component-failure-notice/"><u>BCM20702A0 Component Failure Notice</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/cing-youtube-videos-proper-lighting-methods-for-2024/"><u>Enhancing YouTube Videos Proper Lighting Methods for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/essential-guide-fetching-twitter-videos-directly-from-mobile-for-2024/"><u>Essential Guide Fetching Twitter Videos Directly From Mobile for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-lava-blaze-curve-5g-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Lava Blaze Curve 5G Phone without PIN</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Infinix Note 30 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ssional-tricks-for-youtube-audio-amplification/"><u>Professional Tricks for YouTube Audio Amplification</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/reining-in-flickering-monitors-hp-guide/"><u>Reining In Flickering Monitors: HP Guide</u></a></li>
-<li><a href="https://fox-that.techidaily.com/resetting-procedure-a-comprehensive-tutorial-for-reverting-your-ios-device-to-its-original-state/"><u>Resetting Procedure: A Comprehensive Tutorial for Reverting Your iOS Device to Its Original State</u></a></li>
-<li><a href="https://article-files.techidaily.com/video-vibrancy-picking-the-best-5-enhancement-aids-for-2024/"><u>Video Vibrancy Picking the Best 5 Enhancement Aids for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nhancing-engagement-professional-pc-techniques-for-youtube-editors-for-2024/"><u>[New] Enhancing Engagement Professional PC Techniques for YouTube Editors for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-discovering-and-dominating-unique-segments-in-youtube-for-2024/"><u>[Updated] Discovering and Dominating Unique Segments in YouTube for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-retro-cinema-a-look-at-the-goofy-adventure/"><u>[Updated] Retro Cinema A Look at 'The Goofy Adventure'</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-top-15-hilarious-youtube-hubs-for-your-next-vacation/"><u>2024 Approved Top 15 Hilarious YouTube Hubs for Your Next Vacation</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/beat-the-hurdle-best-video-extractors-for-your-iphoneipad-from-fb-for-2024/"><u>Beat the Hurdle Best Video Extractors for Your iPhone/iPad From FB for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-honor-v-purse-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Honor V Purse via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-vivo-v29-pro-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Vivo V29 Pro</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-hashtags-to-hit-6k-youtube-growth-for-2024/"><u>Mastering Hashtags to Hit $6K YouTube Growth for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-tips-for-hidden-or-missing-wi-fi-networks/"><u>Troubleshooting Tips for Hidden or Missing Wi-Fi Networks</u></a></li>
 </ul></div>
 
