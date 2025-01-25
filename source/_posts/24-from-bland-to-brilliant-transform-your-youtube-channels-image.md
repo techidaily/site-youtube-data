@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, From Bland to Brilliant  Transform Your YouTube Channels' Image\""
-date: 2024-07-29T14:21:41.770Z
-updated: 2024-07-30T14:21:41.770Z
+date: 2025-01-18T17:09:27.198Z
+updated: 2025-01-25T07:00:51.568Z
 tags:
   - ai video
   - ai youtube
@@ -41,8 +41,9 @@ _Michelle Phan’s YouTube brand is calm, whimsical, and aspirational._
 They have different branding because they want to reflect different feelings for different audiences.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bad Branding Causes Mistrust
 
 When a branding element does not align with the message or the tone does not match with the material, then the audience is not going to trust what you offer. Without trust, you won’t be able to get the advocacy that is essential for a YouTube channel to grow.
@@ -74,8 +75,9 @@ Here are notable elements of your channel’s branding:
 \- Style of video
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Start Branding Your YouTube Channel?
 
 Before you start designing thumbnails and coming up with a catchphrase, the first step in branding is understanding the purpose of your channel. Once you have a purpose, you will know how you want your viewers to feel.
@@ -84,10 +86,11 @@ Here is a quick exercise to find your channel’s purpose:
 
 Draw a 3 circle Venn diagram.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Branding YouTube Channel](https://images.wondershare.com/filmora/article-images/branding-youtube-channel.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In circle 1, write down everything you consider yourself an expert in.
 
@@ -159,9 +162,6 @@ However, if your channel has a specific theme or topic and you want your brandin
 
 The power of good branding is that your viewers will be able to spot your brand in a crowded space. On YouTube, the crowded space is the suggested video section.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Create Video Thumbnails](https://images.wondershare.com/filmora/article-images/create-video-thumbnails.jpg)
 
 _Epic Meal Time thumbnails standing out amongst other loud thumbnails._
@@ -196,16 +196,14 @@ When a viewer finds your video and considers it pretty interesting, they will th
 
 Consistent branding affirms the viewer that they are in the right place. Peter McKinnon’s brand is built upon his amazing photography, it only makes sense that his visual elements are awesome.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Peter McKinnon](https://images.wondershare.com/filmora/article-images/peter-mckinnon.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Peter McKinnon is best known for his photography and cinematography, and his branding amplifies that._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## But Branding Is Not Designing, It’s A Feeling
 
 Don’t get too caught up with a design.
@@ -222,10 +220,11 @@ Consistent branding is about making the elements of your channel: channel art, l
 
 The humor in PewDiePie’s brand is consistent, even though his thumbnails don’t look like Philip DeFranco’s. It is up to you how you define consistency, and that will happen over time.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ![Philip DeFranco](https://images.wondershare.com/filmora/article-images/philip-defranco.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Philip DeFranco supplies commentary on current events with a satirical flair. Like a news broadcast, his branding and video format are consistent, while the daily news is different._
 
@@ -237,6 +236,10 @@ Let’s be honest, YouTube content can all look the same, especially if you are 
 
  ![Improvement Pill](https://images.wondershare.com/filmora/article-images/improvement-pill.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Improvement Pill is a YouTube channel focused on inspiring and motivating its viewer to live a better life._
 
  Above we see an example of a watermark from the YouTube channel Improvement Pill. You can see the watermark in the lower right-hand corner.
@@ -247,14 +250,8 @@ When a viewer lands on their video, the watermark gives the viewer another way t
 
 Want to set up your subscription watermark? Here is a quick tutorial:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ##  
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## Coming Up With A Catchphrase
 
 A catchphrase can be your greeting or sign off, but it doesn’t have to be an original line, it can simply be the way you say “hello.”
@@ -263,9 +260,6 @@ Check out some of the popular YouTuber’s catchphrases:
 
   When coming up with a catchphrase that is connected to your channel’s branding remember how you want the viewer to feel. Do you want to leave them with a smile? Or do you want them to take action?
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Final Thoughts On YouTube Branding
 
 As you build and grow your YouTube channel, you can expand your purpose while still sticking within the overall theme. You might have started a channel that focused on the topic of nutrition, but as you grow, you will discover that your audience may also be interested in fitness tips or workout accessories as well. Take it slowly and grow with purpose.
@@ -282,14 +276,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -298,4 +289,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/inal-thoughts-on-youtubing-best-makers-tips-and-templates-for-2024/"><u>[New] Final Thoughts on YouTubing - Best Makers, Tips, and Templates for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-essential-youtube-marketing-techniques-ranked-from-best-to-worst/"><u>[New] In 2024, Essential YouTube Marketing Techniques – Ranked From Best to Worst</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/trategies-to-rectify-non-displayed-thumbnails-on-shorts-videos/"><u>[New] Strategies to Rectify Non-Displayed Thumbnails on Shorts Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-collect-premium-audio-for-video-editors/"><u>[Updated] 2024 Approved Collect Premium Audio for Video Editors!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-budget-friendly-bundles-startup-channels-for-newcomers/"><u>[Updated] Budget-Friendly Bundles Startup Channels for Newcomers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-shoot-hdr-photos-with-iphone/"><u>[Updated] How to Shoot HDR Photos with iPhone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-step-into-the-future-with-these-7-premier-live-streaming-apps-iphoneandroid/"><u>[Updated] In 2024, Step Into the Future with These 7 Premier LIVE Streaming Apps (iPhone/Android)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-nurture-harmony-and-well-being-the-finest-yogic-channels-alive/"><u>[Updated] Nurture Harmony & Well-Being - The Finest Yogic Channels Alive</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-pro-iphone-photo-illumination-tricks/"><u>[Updated] Pro Iphone Photo Illumination Tricks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-how-to-add-featured-channels-on-youtube-a-complete-guide/"><u>2024 Approved How to Add Featured Channels on YouTube A Complete Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-joke-makers-haven-get-it-today/"><u>2024 Approved Joke Makers' Haven - Get It Today</u></a></li>
+<li><a href="https://win11.techidaily.com/conquering-data-corruption-solutions-for-win11s-filesystem/"><u>Conquering Data Corruption: Solutions for Win11's Filesystem</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/how-to-seamlessly-acquire-and-enjoy-personalized-audio-collections-online/"><u>How to Seamlessly Acquire and Enjoy Personalized Audio Collections Online</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-6-proven-ways-to-unlock-realme-c33-2023-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Realme C33 2023 Phone When You Forget the Password</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pause-unrequested-youtube-video-selections/"><u>Pause Unrequested YouTube Video Selections</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/step-by-step-tutorial-preserving-dvd-video-quality-while-transforming-them-into-wmv-files-on-windows-pcs/"><u>Step-by-Step Tutorial: Preserving DVD Video Quality While Transforming Them Into WMV Files on Windows PCs</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/the-art-of-pan-and-zoom-how-to-achieve-the-ken-burns-effect/"><u>The Art of Pan and Zoom How to Achieve the Ken Burns Effect</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Embracing Resilience Against Online Detractors"
-date: 2025-01-14T08:54:52.767Z
-updated: 2025-01-19T07:26:27.998Z
+date: 2025-01-21T05:02:52.636Z
+updated: 2025-01-24T16:36:14.132Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/98f34ca3fe8cce60e4b7bdc2a18ea2c36cd4a116d
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/98f34ca3fe8cce60e4b7bdc2a18ea2c36cd4a116d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,24 +83,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ecoding-youtubes-mystery-a-sequential-exploration-guide/"><u>[New] Decoding YouTube's Mystery A Sequential Exploration Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/xpert-video-upload-techniques-for-youtube-via-premiere-for-2024/"><u>[New] Expert Video Upload Techniques for YouTube via Premiere for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-hasty-methods-for-mixed-up-youtube-playback-sequence/"><u>[New] In 2024, Hasty Methods for Mixed-Up YouTube Playback Sequence</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-laugh-ledger-premium-free-meme-collections/"><u>[New] Laugh Ledger Premium, FREE Meme Collections</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/everage-audience-engagement-through-strategic-posting-for-2024/"><u>[New] Leverage Audience Engagement Through Strategic Posting for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-accelerate-how-to-swiftly-broadcast-playlists/"><u>[Updated] 2024 Approved Accelerate How To Swiftly Broadcast Playlists</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-basics-of-online-videos-the-easiest-10-ideas-for-beginners-on-youtube/"><u>[Updated] 2024 Approved Basics of Online Videos The Easiest 10 Ideas for Beginners on YouTube</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-goofy-unleashed-the-movie-an-examination/"><u>[Updated] 2024 Approved Goofy Unleashed The Movie – An Examination</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-bridging-the-gap-integrating-spotify-and-youtube-music-playlists/"><u>[Updated] Bridging the Gap Integrating Spotify and YouTube Music Playlists</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-elite-workstations-cutting-edge-desktops-unleashed/"><u>[Updated] Elite Workstations Cutting-Edge Desktops Unleashed</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-charting-new-territory-youtubes-revised-policies/"><u>[Updated] In 2024, Charting New Territory YouTube's Revised Policies</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-ultimate-fps-levels-in-delayed-footage/"><u>[Updated] Ultimate FPS Levels in Delayed Footage</u></a></li>
-<li><a href="https://win-latest.techidaily.com/acceso-inmediato-a-la-diversion-online-con-la-descarga-de-steam-para-computadoras-personales/"><u>Acceso Inmediato a La Diversión Online Con La Descarga De Steam Para Computadoras Personales</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/acethinker-screen-recorder-review-and-alternative/"><u>AceThinker Screen Recorder Review and Alternative</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-oppo-a2-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Oppo A2? Here Is the Answer | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-your-next-favorite-channel-for-global-adventures/"><u>In 2024, Your Next Favorite Channel for Global Adventures</u></a></li>
-<li><a href="https://network-issues.techidaily.com/overcoming-software-limitations-on-freesync/"><u>Overcoming Software Limitations on FreeSync</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/orm-showdown-vimeos-edge-vs-youtube-and-dailymotion-for-2024/"><u>Platform Showdown Vimeo's Edge vs YouTube & Dailymotion for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-skype-sessions-captured-effective-freepaid-windowsmac-methods/"><u>[New] 2024 Approved Skype Sessions Captured Effective Free/Paid Windows/Mac Methods</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/oosting-revenue-with-youtube-short-videos-a-complete-plan-for-2024/"><u>[New] Boosting Revenue with YouTube Short Videos – A Complete Plan for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-from-free-to-paid-the-transition-to-youtubes-elite-service/"><u>[New] In 2024, From Free to Paid The Transition to YouTube's Elite Service</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-unveiling-the-power-of-photo-editing-techniques-to-add-text-in-windowsmacos/"><u>[New] In 2024, Unveiling the Power of Photo Editing Techniques to Add Text in Windows/MacOS</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-shuttered-creations-sudden-delete-incidents-for-2024/"><u>[New] Shuttered Creations Sudden Delete Incidents for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-enhancing-your-videos-step-by-step-for-ken-burns-effect-in-camtasa/"><u>[Updated] In 2024, Enhancing Your Videos Step-by-Step for Ken Burns Effect in Camtasa</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-establishing-a-signature-persona-on-youtube/"><u>[Updated] Step-by-Step Establishing a Signature Persona on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-design-principles-for-orderly-youtube-broadcasts/"><u>2024 Approved Design Principles for Orderly YouTube Broadcasts</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-advice-on-correcting-code-41-device-conflicts-in-system-settings/"><u>Expert Advice on Correcting Code 41 Device Conflicts in System Settings</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-top-rated-android-apps-on-google-play-store/"><u>New In 2024, Top-Rated Android Apps on Google Play Store</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ast-track-to-clearing-youtube-post-comments/"><u>The Fast Track to Clearing YouTube Post-Comments</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/transforming-disaster-into-opportunity-through-data-restoration-vishakha/"><u>Transforming Disaster Into Opportunity Through Data Restoration, Vishakha</u></a></li>
 </ul></div>
 

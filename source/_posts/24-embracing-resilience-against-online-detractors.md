@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Embracing Resilience Against Online Detractors"
-date: 2024-07-29T14:20:50.081Z
-updated: 2024-07-30T14:20:50.081Z
+date: 2025-01-22T05:33:23.224Z
+updated: 2025-01-24T22:11:17.462Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/6283ff7f0ec530727c4f03db2aa9125ca35be5851
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/6283ff7f0ec530727c4f03db2aa9125ca35be5851
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/6283ff7f0ec530727c4f03db2aa9125ca35be5851
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,14 +68,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,4 +81,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/xpert-tips-for-slide-presentation-with-youtube/"><u>[New] Expert Tips for Slide Presentation with YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-ultimate-guide-8-real-world-promotion-tools-for-videos/"><u>[New] In 2024, The Ultimate Guide 8 Real-World Promotion Tools for Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-iphone-xs-identity-verification-face-id-repair/"><u>[New] Mastering iPhone X's Identity Verification Face ID Repair</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tep-by-step-establishing-a-signature-persona-on-youtube/"><u>[New] Step-by-Step Establishing a Signature Persona on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-dialing-in-the-perfect-aspect-ratio-for-youtube-images-for-2024/"><u>[Updated] Dialing in the Perfect Aspect Ratio for YouTube Images for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-crafting-quick-cut-channel-sequences/"><u>[Updated] In 2024, Crafting Quick-Cut Channel Sequences</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-why-does-facebook-suggested-videos-not-showing-up/"><u>2024 Approved Why Does Facebook Suggested Videos Not Showing Up?</u></a></li>
+<li><a href="https://win11.techidaily.com/decoding-diskusage-in-windows-strategies-for-effective-drive-space-analysis/"><u>Decoding DiskUsage in Windows: Strategies for Effective Drive Space Analysis</u></a></li>
+<li><a href="https://extra-support.techidaily.com/photos-app-magic-crafting-stunningly-slow-motion-videos-online-for-2024/"><u>Photos App Magic Crafting Stunningly Slow-Motion Videos Online for 2024</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/solving-your-cpu-cooling-woes-why-might-a-pcs-fan-remain-silent-advice-by-yl-software-experts/"><u>Solving Your CPU Cooling Woes: Why Might a PC's Fan Remain Silent? Advice by YL Software Experts</u></a></li>
+<li><a href="https://windows11.techidaily.com/streamline-task-execution-top-6-windows-performance-monitors/"><u>Streamline Task Execution: Top 6 Windows Performance Monitors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/lueprint-for-youtube-video-success-for-2024/"><u>The Blueprint for YouTube Video Success for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unlocking-4k-potential-an-in-depth-look-at-dell-p2715q/"><u>Unlocking 4K Potential An In-Depth Look at Dell P2715Q</u></a></li>
+</ul></div>
 

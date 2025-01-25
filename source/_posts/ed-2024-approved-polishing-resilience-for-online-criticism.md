@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Polishing Resilience for Online Criticism\""
-date: 2025-01-16T05:35:41.916Z
-updated: 2025-01-19T01:26:32.256Z
+date: 2025-01-23T08:32:29.584Z
+updated: 2025-01-25T01:31:26.950Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d21
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d21
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,16 +83,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-break-free-top-10-exclusive-web-photo-workstations/"><u>[New] Break Free Top 10 Exclusive Web Photo Workstations</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-create-digital-humor-kapwings-meme-builder/"><u>[New] Create Digital Humor Kapwing's Meme Builder</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-premier-directory-of-economical-visual-content-providers/"><u>[Updated] 2024 Approved Premier Directory of Economical Visual Content Providers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-visionaries-of-video-workshop/"><u>[Updated] 2024 Approved The Visionaries of Video Workshop</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-behind-the-scenes-creating-successful-youtube-shorts-videos/"><u>[Updated] In 2024, Behind the Scenes Creating Successful YouTube Shorts Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-savory-streamers-the-creme-de-la-cuisine/"><u>[Updated] Savory Streamers The Crème De La Cuisine</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Lava Blaze 2 Pro? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Samsung Galaxy S23 FE? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-motorola-razr-40-ultra-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Motorola Razr 40 Ultra to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/en-your-content-for-unlimited-youtube-exposure/"><u>Sharpen Your Content for Unlimited YouTube Exposure</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-techniques-for-new-world-sound-glitches/"><u>Troubleshooting Techniques for New World Sound Glitches</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rafting-a-personalized-youtube-pathway-to-viewers-for-2024/"><u>[New] Crafting a Personalized YouTube Pathway to Viewers for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-locate-and-watch-vintage-facebook-moments/"><u>[New] In 2024, Locate and Watch Vintage Facebook Moments</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-youtubes-buffering-blues-your-pathway-out-current-strategies/"><u>[New] In 2024, YouTube's Buffering Blues – Your Pathway Out (Current Strategies)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ideo-content-battle-who-wins-with-vimeo-youtube-or-dailymotion-for-2024/"><u>[New] Video Content Battle Who Wins with Vimeo, YouTube, or DailyMotion for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-maximizing-revenue-average-income-from-youtubes-adsense-per-thousand-watchers-for-2024/"><u>[Updated] Maximizing Revenue Average Income From YouTube's AdSense Per Thousand Watchers for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/10-must-use-filmmaking-cuts-explained/"><u>10 Must-Use Filmmaking Cuts Explained</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-quick-guide-overcoming-youtube-short-hurdles/"><u>2024 Approved Quick Guide Overcoming YouTube Short Hurdles</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-streamline-your-content-on-youtube-a-detailed-tutorial/"><u>2024 Approved Streamline Your Content on YouTube A Detailed Tutorial</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/prehensive-guide-to-the-12-superior-vlogging-cameras-for-2024/"><u>A Comprehensive Guide to the 12 Superior Vlogging Cameras for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/beat-bugs-and-glitches-masterful-solutions-for-resident-evil-villages-mouse-control-issues/"><u>Beat Bugs and Glitches: Masterful Solutions for Resident Evil Village's Mouse Control Issues</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/enhanced-user-experience-with-advanced-analytics-powered-by-the-cutting-edge-technology-of-cookiebot/"><u>Enhanced User Experience with Advanced Analytics: Powered by the Cutting-Edge Technology of Cookiebot</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-mp3-essentials-guide-10-online-converters-reviewed/"><u>In 2024, The MP3 Essentials Guide #10 Online Converters Reviewed</u></a></li>
+<li><a href="https://win-answers.techidaily.com/optimizing-graphics-settings-for-a-seamless-experience-in-age-of-empires-iv/"><u>Optimizing Graphics Settings for a Seamless Experience in Age of Empires IV</u></a></li>
+<li><a href="https://video-capture.techidaily.com/professional-macbook-webcam-capture-techniques-guide-for-2024/"><u>Professional MacBook Webcam Capture Techniques Guide for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/rethinking-windows-photo-viewer-usage-on-modern-os-for-2024/"><u>Rethinking Windows Photo Viewer Usage on Modern OS for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/video-extraction-from-youtube-tips-on-downloading-to-mp4/"><u>Safe Video Extraction From YouTube - Tips on Downloading to MP4</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/bes-favorite-spotlight-equipment-17-for-2024/"><u>YouTube's Favorite Spotlight Equipment #17 for 2024</u></a></li>
 </ul></div>
 
