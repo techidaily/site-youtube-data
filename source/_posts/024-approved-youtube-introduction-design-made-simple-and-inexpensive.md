@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  YouTube Introduction Design Made Simple and Inexpensive\""
-date: 2024-08-08T13:46:39.192Z
-updated: 2024-08-09T13:46:39.192Z
+date: 2025-01-31T00:21:22.179Z
+updated: 2025-02-05T02:49:24.525Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/5c8db21fb7e97eed2eddd025f3f66d3a9e58c7bc7
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -44,13 +41,9 @@ thumbnail: https://thmb.techidaily.com/5c8db21fb7e97eed2eddd025f3f66d3a9e58c7bc7
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -77,10 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -92,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -127,10 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -138,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,6 +147,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-flavorful-frames-stepwise-food-film-making/"><u>[New] In 2024, Flavorful Frames Stepwise Food Film-Making</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-cutting-edge-computing-select-the-optimal-device-for-video-editing/"><u>[Updated] 2024 Approved Cutting Edge Computing Select the Optimal Device for Video Editing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-financial-flourishing-with-glamour-vlogs/"><u>[Updated] 2024 Approved Financial Flourishing with Glamour Vlogs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-dive-into-ios-screenshots-a-comprehensive-youtube-guide/"><u>[Updated] Dive Into iOS Screenshots A Comprehensive YouTube Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-methods-to-resuscitate-windows-photo-viewer-on-latest-os/"><u>[Updated] Methods to Resuscitate Windows Photo Viewer on Latest OS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-beyond-boundaries-channel-youtube-for-exciting-green-screens/"><u>2024 Approved Beyond Boundaries Channel Youtube for Exciting Green Screens</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-inspection-enhanced-edition-parrot-ar-drone/"><u>2024 Approved Inspection Enhanced Edition Parrot AR Drone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-nextgen-video-havens-step-away-from-youtube/"><u>2024 Approved NextGen Video Havens - Step Away From YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-techniques-for-finding-no-cost-image-frame-films/"><u>2024 Approved Techniques for Finding No-Cost Image Frame Films</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/isseurs-melding-visionary-sounds-and-frames/"><u>Connoisseurs Melding Visionary Sounds & Frames</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-least-complex-latin-course-online/"><u>Discover the Least Complex Latin Course Online</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/home-cinematic-excellence-with-5-quick-tips/"><u>Home Cinematic Excellence with 5 Quick Tips</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-streamline-vlogging-titles-top-11-affordable-generators/"><u>In 2024, Streamline Vlogging Titles - Top 11 Affordable Generators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-youtubes-creative-commons-for-content-sharing/"><u>Navigating YouTube's Creative Commons for Content Sharing</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/newly-released-usb-to-hdmi-driver-downloads-for-optimal-performance/"><u>Newly Released USB to HDMI Driver Downloads for Optimal Performance</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-tecno-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Tecno Android SIM Unlock APK</u></a></li>
+</ul></div>
 

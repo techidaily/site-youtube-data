@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Jokes in Jams  Best Funny Video Concepts Under Five Minutes\""
-date: 2024-08-16T03:23:02.769Z
-updated: 2024-08-17T03:23:02.769Z
+date: 2025-02-02T00:47:10.823Z
+updated: 2025-02-04T22:00:16.146Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,10 @@ Then the right platform with a plethora of pictures is covered hereunder the fol
 Yeah! The first idea looks so catchy. Everyone holds some dreams. And if you have such beautiful dreams that you would like to share with your loved ones. Then YouTube Shorts ideas are the right platform full of views, likes, and lovers from around the world. Just give a thrust to it.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Also, you can discuss different sorts of dreams that the human genre has been dreaming of for years. You can even add a flavor of future dreams that will open up the space of excellent speculation one can think of.
 
@@ -84,6 +88,10 @@ Competition creates a zeal to lead, and if you add some flavor to it. Then, peop
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Funny competition can vary from a weird hairstyle, odd season festival celebration, or anything that you think of interesting, different, and eye-catching.
 
 #### Idea 7: Quirky Music
@@ -100,6 +108,10 @@ Kids love cartoons, but the hidden fact is that everyone enjoys watching cartoon
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Mixing some comedy flavor to life will add more fun and enjoyment to all those seeking funny moments to reflect their days. Come on; show up your humor with this unique style.
 
 #### Idea 9: Funny act with pets
@@ -107,6 +119,10 @@ Mixing some comedy flavor to life will add more fun and enjoyment to all those s
 Pets are the favorite of those who own them. They are excellent; they play, dance, and do different kinds of fun activities. Have you ever noticed that, if not, they must take notice now?
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You will be surprised to see how much fun-loving these cute pets are—so, geared up to capture the funny acts of pets through YouTube Shorts ideas. It will bring a smile to everyone’s face.
 
@@ -121,8 +137,9 @@ Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Ch
 Wait, there is much more than these best YouTube Shorts ideas. Yes, you heard that right! The following paragraph will lead you to get some important tips, with the help of which you can raise YouTube Short Videos views. So, without waiting anymore, move on to the next paragraph to get a glimpse of it.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Tips to Get More Views for Your YouTube Shorts Videos
 
 Creating ideas for YouTube Shorts videos alone is not sufficient to grab more views. Some specific golden rules or tips will leap while catching more views to the YouTube Short Videos while applying the above ideas. Let’s understand them.
@@ -168,9 +185,6 @@ Then, indeed, this guide is the pathway. You will get different funny YouTube Sh
 Thus, start utilizing these powerful ideas and tips and head towards your YouTube Shorts journey.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -178,14 +192,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -194,8 +205,17 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/levate-views-not-video-length-expert-guide-to-yt-desc-templates-for-2024/"><u>[New] Elevate Views, Not Video Length Expert Guide to YT Desc Templates for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-navigating-through-channels-aesthetics-with-these-tools/"><u>[New] In 2024, Navigating Through Channels' Aesthetics with These Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-ultimate-guide-to-itunes-video-downloading-for-ios-users/"><u>[New] In 2024, The Ultimate Guide to iTunes Video Downloading for iOS Users</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-pro-tools-for-creatives-comprehensively-evaluating-ae-plugins-for-2024/"><u>[New] Pro Tools for Creatives Comprehensively Evaluating AE Plugins for 2024</u></a></li>
+<li><a href="https://win-studio.techidaily.com/guide-boost-your-sites-interactivity-with-easy-flipbook-downloads-using-flipbuilder/"><u>Guide: Boost Your Site's Interactivity with Easy Flipbook Downloads Using FlipBuilder</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-14-pro-to-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 14 Pro To Android devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-premier-collectors-list-top-shorts-for-free-online/"><u>In 2024, Premier Collector's List Top Shorts for FREE Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/izing-impact-video-marketing-on-youtube-for-2024/"><u>Maximizing Impact Video Marketing on YouTube for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-in-this-article-we-are-going-to-take-you-through-some-of-the-best-online-video-quality-enhancers-that-let-you-boost-a-video-clips-resolution-mak/"><u>New In 2024, In This Article, We Are Going to Take You Through some of the Best Online Video Quality Enhancers that Let You Boost a Video Clips Resolution, Make the Colors More Vibrant or Apply Visual Effects To</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-xiaomi-14-ultra-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Xiaomi 14 Ultra FRP</u></a></li>
+</ul></div>
 

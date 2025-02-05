@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Vloggers' Fears Decoded  Combat Strategies for Everyone\""
-date: 2025-01-18T18:59:00.808Z
-updated: 2025-01-24T19:23:13.542Z
+date: 2025-02-02T06:52:04.180Z
+updated: 2025-02-05T07:12:55.346Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Below is a list of 10 of the most common fears people have with vlogging and way
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. Fear of Looking Stupid Talking To Your Camera
 
 It can be nerve-racking to talk to your camera in public, especially if your vlog set-up attracts a lot of attention (Casey Neistat’s famous rig consisting of a DSLR camera with a GorillaPod tripod and a Rode shotgun mic attached to it definitely attracts more attention than just your everyday smartphone). Despite a lot of vloggers suggesting that people don’t care as much as you think they care, it still is an activity that stands out, gets noticed, and creates curiosity, which is plenty to feel nervous about.
@@ -46,6 +50,10 @@ It can be nerve-racking to talk to your camera in public, especially if your vlo
 My advice is to start with shorter conversations with your camera in public and gradually build your way up to longer ones or save all your longer talks for when you’re in a more private setting. Short conversations may include one simple sentence about where you are going. Then, in another separate recording, in a different setting with different people, you can explain why you’re going there. If you’ve never broken up your speech like this for your vlogs, you might wonder if this will make your vlogs look disjointed. But this is actually a technique (below) that can enhance your vlogs.
 
 As you continue to vlog in public more, you’ll become increasingly comfortable with it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2. Fear of Being Judged by Others
 
@@ -65,10 +73,6 @@ When you look at the vlogs of many of the top YouTubers, their lives appear so a
 
 When you have the ability to control what others see, you may be tempted to present yourself and your life in the most likable way to avoid disapproval and rejection. But the further away from your true self that you fabricate your story, the more inauthentic you’ll feel. Embrace disapproval and rejection and understand that, no matter how perfectly you present yourself, you just can’t avoid disapproval and rejection. It’s going to happen no matter what! So you might as well present yourself just as you are.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6. Fear of Your Production Not Being Good Enough
 
 Fearing that your production quality won’t measure up is another common fear that holds people back from vlogging. Just get started and put something together with the equipment and skills you already have. Loosen up a bit on your rigid high standards and experience for yourself that the consequences of doing your best with what you have are not so bad. You will develop your equipment and skills as you get more and more into vlogging.
@@ -78,10 +82,6 @@ Fearing that your production quality won’t measure up is another common fear t
 Getting a lot of subscribers is a common end goal for many who go into vlogging. This goal can seem impossible to reach with how crowded the vlogosphere has become with so many ambitious vloggers who are competing for views and subscribers.
 
 How can you know for sure that you won’t be wasting your time and effort trying? The truth is… you can’t know for sure. But dismissing all of your time and effort as a waste just because you’re not at the end yet will take away from the joy you could have with vlogging. Rather than focusing on getting big, focus on enjoying the process of vlogging.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8. Fear of Being Distracted From the Moment
 
@@ -93,10 +93,6 @@ Well, like all hobbies, activities, and passions, vlogging does take time and yo
 
 If, in the end, you realize you don’t enjoy vlogging, then at least you’re left with a documented piece of a memory that you can relive again and again, which can actually help you appreciate your past moments even more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9. Fear of Making Others Uncomfortable
 
 Even though you might have learned to enjoy and be comfortable with vlogging, your vlogging might make others uncomfortable. You can still vlog while respecting others’ boundaries by having a conversation first, before you start vlogging, around whether or not they feel comfortable with appearing in your vlog. You can then make sure to exclude those from your vlog who are uncomfortable with appearing in your vlog.
@@ -104,7 +100,7 @@ Even though you might have learned to enjoy and be comfortable with vlogging, yo
 Sometimes, though, as much as you try to exclude certain people from your vlogs, they might still end up in your footage. You might even find out after you’ve captured great footage that people do not want to be in your video. In these cases, you can always censor their faces out in editing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10. Fear of Permanently Leaving a Bad Mark
@@ -117,10 +113,14 @@ In post-production, you can use some video editing software to [delete unwanted 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -144,17 +144,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-leveraging-videos-with-text-a-cost-free-approach/"><u>[New] 2024 Approved Leveraging Videos with Text A Cost-Free Approach</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-no-payment-necessary-download-farewell-soundtracks-for-2024/"><u>[New] No Payment Necessary Download Farewell Soundtracks for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-expert-tips-on-syncing-gmail-and-zoom-for-remote-collaboration-for-2024/"><u>[Updated] Expert Tips on Syncing Gmail and Zoom for Remote Collaboration for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-essential-tips-on-calculating-your-youtube-traffic-and-earnings/"><u>[Updated] In 2024, Essential Tips on Calculating Your YouTube Traffic & Earnings</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-review-the-ultimate-4k-action-recorder/"><u>[Updated] Review The Ultimate 4K Action Recorder</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-smoothly-blending-bio-and-linktree-on-your-tiktok-platform/"><u>[Updated] Smoothly Blending Bio & Linktree on Your TikTok Platform</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-youtube-video-creation-secrets-of-the-professionals-unveiled/"><u>[Updated] YouTube Video Creation Secrets of the Professionals Unveiled</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-enhance-engagement-select-best-fonts-for-your-thumbnails/"><u>2024 Approved Enhance Engagement Select Best Fonts for Your Thumbnails</u></a></li>
-<li><a href="https://article-helps.techidaily.com/a-deeper-dive-into-high-definition-online-visibility-for-2024/"><u>A Deeper Dive Into High Definition Online Visibility for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ctical-pathway-for-profit-tracking-the-straightforward-steps-to-analyze-youtube-earnings-for-2024/"><u>A Practical Pathway for Profit Tracking The Straightforward Steps to Analyze YouTube Earnings for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/tial-history-vids-student-edition-of-top-10-lists-for-2024/"><u>Essential History Vids Student Edition of Top 10 Lists for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-nubia-red-magic-9-proplus-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Nubia Red Magic 9 Pro+ to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-video-fabrication-suite/"><u>[New] In 2024, Video Fabrication Suite</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-srt-to-sub-pivotal-approaches-for-content-transformation/"><u>2024 Approved SRT to SUB Pivotal Approaches for Content Transformation</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/obs-studio-windowsmac/"><u>如何使用OBS Studio Windows/Mac版本：深入學習最新評論及教程，以便即時下載</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/casting-strategies-for-youtube-facebook-twitch-and-others/"><u>Broadcasting Strategies for YouTube, Facebook, Twitch, and Others</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/generating-visuals-with-ai-mastering-image-creation-using-chatgpt/"><u>Generating Visuals with AI: Mastering Image Creation Using ChatGPT</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/lines-for-optimal-youtube-video-brightness/"><u>Guidelines for Optimal YouTube Video Brightness</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-giggle-factory-gratis-memo-makers-available/"><u>In 2024, Giggle Factory Gratis Memo Makers Available</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-seo-essentials-for-climbing-the-youtube-popularity-ladder/"><u>In 2024, SEO Essentials for Climbing the YouTube Popularity Ladder</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-youtube-seo-guide-how-to-improve-search-rankings-for-your-youtube-videos/"><u>In 2024, YouTube SEO Guide How to Improve Search Rankings For Your YouTube Videos</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/sign-up-simplicity-chatgpt-to-whatsapp-without-a-sim-card/"><u>Sign-Up Simplicity: ChatGPT to WhatsApp without a SIM Card</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-solution-for-hp-officejet-pro-6970-printer-driver-errors/"><u>Step-by-Step Solution for HP OfficeJet Pro 6970 Printer Driver Errors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eginners-blueprint-for-mobile-youtube-videos/"><u>The Beginner's Blueprint for Mobile YouTube Videos</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-future-of-diagnostics-and-treatment-can-chatgpt-lead-the-way/"><u>The Future of Diagnostics and Treatment: Can ChatGPT Lead the Way?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-ultimate-step-by-step-youtube-editing-walkthrough/"><u>The Ultimate Step-by-Step YouTube Editing Walkthrough</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ier-mics-for-online-presenters-for-2024/"><u>Top-Tier Mics for Online Presenters for 2024</u></a></li>
 </ul></div>
 

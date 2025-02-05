@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unlocking Superior Sound Recordings  Minus the Mic\""
-date: 2024-08-08T13:46:46.168Z
-updated: 2024-08-09T13:46:46.168Z
+date: 2025-02-02T07:47:40.188Z
+updated: 2025-02-05T07:50:21.936Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
 
 # How to Record Good Audio Without a Microphone?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -64,9 +61,6 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -79,14 +73,19 @@ _The pompom used in this video cost $2, but you might already have something tha
 
 If your built-in mic is on top of your camera you can get something called a ‘micromuff’. A micromuff is essentially a circular or rectangular piece of velcro with long strands of fluff on top. It’s open in the middle so it doesn’t actually cover your mic, but the surrounding fuzz blocks out the wind.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Use a Free Audio App
 
@@ -97,8 +96,9 @@ Even if you’re not recording video from your smartphone, it might be a good id
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Do a Sound Check
 
 Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
@@ -107,19 +107,21 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -127,14 +129,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,6 +142,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/igital-dialogue-mastery-connecting-with-viewers-flawlessly/"><u>[New] Digital Dialogue Mastery Connecting with Viewers Flawlessly</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-explore-beyond-youtube-with-these-top-5-video-tools/"><u>[New] Explore Beyond Youtube with These Top 5 Video Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-guide-to-playing-twitter-on-chromium-browser/"><u>[New] Guide to Playing Twitter on Chromium Browser</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-definitive-guide-to-srt-editing-on-mac/"><u>[New] The Definitive Guide to SRT Editing on Mac</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-community-builders-gamer-youtubers/"><u>[Updated] 2024 Approved Community Builders Gamer YouTubers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-transforming-slides-with-external-video-integration/"><u>[Updated] 2024 Approved Transforming Slides with External Video Integration</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-elevate-streams-to-next-level-with-av1-on-youtube-for-2024/"><u>[Updated] Elevate Streams to Next Level with AV1 on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-elevate-your-yt-marketing-essential-tips-for-higher-rankings/"><u>[Updated] Elevate Your YT Marketing Essential Tips for Higher Rankings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-double-the-joy-master-looping-of-youtube-media-on-televisions/"><u>[Updated] In 2024, Double the Joy Master Looping of YouTube Media on Televisions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-free-custom-minecraft-gif-templates/"><u>[Updated] In 2024, Free Custom Minecraft GIF Templates</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-master-your-sketches-with-the-ultimate-mac-apps/"><u>[Updated] Master Your Sketches with the Ultimate Mac Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-building-your-signature-solo-podcast-series/"><u>2024 Approved Building Your Signature Solo Podcast Series</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtubes-role-in-todays-dynamic-educational-landscape/"><u>2024 Approved YouTube's Role in Today's Dynamic Educational Landscape</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-virtual-reality-and-panoramic-videos-key-distinctions/"><u>In 2024, Virtual Reality & Panoramic Videos Key Distinctions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-youtube-creation-standard-studio-or-innovative-beta/"><u>Mastering YouTube Creation Standard Studio or Innovative Beta</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/sound-step-down-strategy-a-pro-guide-to-fading-audio/"><u>Sound Step-Down Strategy A Pro Guide to Fading Audio</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/by-step-strategies-how-to-create-stellar-youtube-shorts/"><u>Step-by-Step Strategies How to Create Stellar YouTube Shorts</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/the-hidden-dangers-in-assuming-artificaminds-around-us-navigating-ai-recognition-pitfalls/"><u>The Hidden Dangers in Assuming Artificaminds Around Us - Navigating AI Recognition Pitfalls</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-your-intel-uhd-graphics-driver-now-compatible-with-windows-10-and-11/"><u>Update Your Intel UHD Graphics Driver Now - Compatible with Windows 10 and 11</u></a></li>
+</ul></div>
 

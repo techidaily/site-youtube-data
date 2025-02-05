@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Learn to Turn Comments On or Off on YouTube Easily"
-date: 2025-01-19T11:25:55.156Z
-updated: 2025-01-25T02:32:45.531Z
+date: 2025-01-30T07:23:32.194Z
+updated: 2025-02-04T19:12:35.480Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Keeping all these points in mind, the following sections explain **how to enable
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -44,10 +48,6 @@ If you don’t want any comments on any of the videos that you publish, you must
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
 
@@ -80,7 +80,7 @@ Back on the **YouTube Studio** page, click **Content** from the left pane. From 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
@@ -124,13 +124,13 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -164,7 +164,7 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -188,24 +188,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-industry-standards-selecting-prime-gear-for-ultimate-4k-results-for-2024/"><u>[New] Industry Standards Selecting Prime Gear for Ultimate 4K Results for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-power-of-persuasion-hire-success-stories-1-10-for-2024/"><u>[New] The Power of Persuasion Hire Success Stories #1-10 for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/op-30-pro-freefire-hashtags-for-boosting-video-popularity/"><u>[New] Top 30 Pro-FreeFire Hashtags for Boosting Video Popularity</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-advanced-strategies-for-logging-lol-contests/"><u>[Updated] 2024 Approved Advanced Strategies for Logging LOL Contests</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-soundscape-shifting-made-easy-unveiling-the-best-free-vocal-transformers/"><u>[Updated] 2024 Approved Soundscape Shifting Made Easy Unveiling the Best Free Vocal Transformers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-cut-the-cord-clutter-simultaneous-playthrough-of-videos-for-2024/"><u>[Updated] Cut the Cord Clutter Simultaneous Playthrough of Videos for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-25-steps-forward-in-youtube-mastery-and-recognition/"><u>[Updated] In 2024, 25 Steps Forward in YouTube Mastery and Recognition</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-starting-out-building-your-youtube-presence-and-earning/"><u>[Updated] In 2024, Starting Out Building Your YouTube Presence & Earning</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-mastering-youtube-subscriber-milestones/"><u>[Updated] Mastering YouTube Subscriber Milestones</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-revolutionary-techniques-mastering-visual-arts-with-the-top-10-free-youtube-tutorials-for-2024/"><u>[Updated] Revolutionary Techniques Mastering Visual Arts with the Top 10 Free YouTube Tutorials for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-essential-3d-toolkit-creating-engaging-video-beginnings/"><u>2024 Approved Essential 3D Toolkit Creating Engaging Video Beginnings</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-slicedmedia-studio/"><u>2024 Approved SlicedMedia Studio</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Tecno Spark 10 4G | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/high-definition-bmw-e46-m3-gtr-desktop-backgrounds-and-walls-premium-visual-content-by-yl-computing/"><u>High-Definition BMW E46 M3 GTR Desktop Backgrounds and Walls: Premium Visual Content by YL Computing</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-inshot-tips-import-music-into-videos-effortlessly/"><u>In 2024, InShot Tips Import Music Into Videos Effortlessly</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/movavi-online-converta-gratuitamente-seu-amv-e-obtenha-a-medida-em-milhas-por-galao/"><u>Movavi Online - Converta Gratuitamente Seu AMV E Obtenha a Medida Em Milhas Por Galão</u></a></li>
-<li><a href="https://some-tips.techidaily.com/securing-enterprise-infrastructure-a-deep-dive-into-a-worldwide-firms-implementation-of-sso-and-mfa-for-enhanced-cybersecurity-techwise/"><u>Securing Enterprise Infrastructure: A Deep Dive Into a Worldwide Firm's Implementation of SSO & MFA for Enhanced Cybersecurity | TechWise</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/what-does-jailbreaking-apple-iphone-se-2022-i-do-get-answers-here-drfone-by-drfone-ios/"><u>What Does Jailbreaking Apple iPhone SE (2022) i Do? Get Answers here | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/what-is-a-vector-database-and-how-do-they-boost-ai/"><u>What Is a Vector Database, and How Do They Boost AI?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-10-best-sites-to-download-free-slideshow-templates/"><u>[New] 2024 Approved 10 Best Sites to Download Free Slideshow Templates</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/harting-success-with-youtube-income-streams-for-2024/"><u>[New] Charting Success with YouTube Income Streams for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-achieve-financial-insight-the-simple-three-steps-to-assess-youtube-earning-potential/"><u>[Updated] Achieve Financial Insight The Simple Three Steps To Assess YouTube Earning Potential</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-fast-fixes-for-chaotic-youtube-list-ordering-for-2024/"><u>[Updated] Fast Fixes for Chaotic YouTube List Ordering for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-supreme-audiovisual-hints-pack/"><u>2024 Approved Supreme Audiovisual Hints Pack</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-most-effective-7-apps-for-blocking-android-web-ads/"><u>2024 Approved The Most Effective 7 Apps for Blocking Android Web Ads</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-your-ideal-vr-gear-selection-would-you-prefer-the-ease-of-mobile-or-tethered-setup/"><u>2024 Approved Unveiling Your Ideal VR Gear Selection Would You Prefer the Ease of Mobile or Tethered Setup?</u></a></li>
+<li><a href="https://article-files.techidaily.com/cutting-edge-title-generator-for-online-sessions/"><u>Cutting-Edge Title Generator for Online Sessions</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/diagnose-and-fix-gpu-issues-with-yl-softwares-comprehensive-guide-to-troubleshooting/"><u>Diagnose & Fix GPU Issues with YL Software's Comprehensive Guide to Troubleshooting</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-issue-of-non-functional-right-click-on-your-mouse-in-windows-10/"><u>Fixing the Issue of Non-Functional Right-Click on Your Mouse in Windows 10</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/data-to-drama-utilizing-google-trends-in-video-planning/"><u>From Data to Drama Utilizing Google Trends in Video Planning</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-ultimate-list-watching-nba-in-real-time/"><u>In 2024, The Ultimate List Watching NBA in Real-Time</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-contacts-from-nord-3-5g-by-fonelab-android-recover-contacts/"><u>Possible solutions to restore deleted contacts from Nord 3 5G.</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolved-fixes-implemented-to-address-deathloops-freezing-issues-on-pc/"><u>Resolved: Fixes Implemented to Address Deathloop's Freezing Issues on PC</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/king-the-potential-of-monetized-vlogs/"><u>Unlocking the Potential of Monetized Vlogs</u></a></li>
 </ul></div>
 

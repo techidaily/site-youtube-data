@@ -1,7 +1,7 @@
 ---
 title: "Bend Reality with Your Own Animated Craftsmanship"
-date: 2025-01-17T23:55:50.115Z
-updated: 2025-01-19T09:54:21.562Z
+date: 2025-02-02T03:24:56.684Z
+updated: 2025-02-04T22:35:04.480Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,15 +112,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-viewer-count-trophies-and-channel-prominence-honors/"><u>[Updated] 2024 Approved Viewer Count Trophies & Channel Prominence Honors</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-decoding-the-mystery-of-where-are-my-youtube-comments/"><u>[Updated] Decoding the Mystery of Where Are My YouTube Comments?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-full-length-guide-to-transforming-gif-images-into-fun-stickers-on-popular-messengers-for-2024/"><u>[Updated] Full-Length Guide to Transforming GIF Images Into Fun Stickers on Popular Messengers for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-amplify-your-content-two-approaches-to-skyrocket-traffic/"><u>2024 Approved Amplify Your Content Two Approaches to Skyrocket Traffic</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-tips-for-finding-trending-videos-on-facebook/"><u>2024 Approved Tips for Finding Trending Videos on Facebook</u></a></li>
-<li><a href="https://media-tips.techidaily.com/fast-methods-for-converting-aiff-files-to-mp3-format-both-online-and-offline-solutions/"><u>Fast Methods for Converting AIFF Files to MP3 Format: Both Online & Offline Solutions</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-advanced-tips-for-zoom-meetings-on-chromebooks/"><u>In 2024, Advanced Tips for Zoom Meetings on ChromeBooks</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-sprinkle-spirits-into-your-screens-animated-text-techniques/"><u>In 2024, Sprinkle Spirits Into Your Screens Animated Text Techniques</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Lava Blaze Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/mending-windows-update-blockage-error-e/"><u>Mending Windows Update Blockage, Error E</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eautys-brightest-stars-youtube-personalities-to-follow/"><u>[New] Beauty's Brightest Stars YouTube Personalities to Follow</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-prime-list-cutting-through-the-noise-to-find-top-9-free-tools-for-2024/"><u>[New] The Prime List Cutting Through the Noise to Find Top 9 FREE Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-essential-tips-for-crafting-youtube-image-marketing/"><u>[Updated] 2024 Approved Essential Tips for Crafting YouTube Image Marketing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-supercharge-videos-download-premium-effs/"><u>[Updated] 2024 Approved Supercharge Videos - Download Premium Effs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-crafting-a-youtube-future-scaling-up-or-staying-independent-in-2024/"><u>[Updated] Crafting a YouTube Future Scaling Up or Staying Independent, In 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-go-global-with-gifs-converting-vimeo-video-to-animation/"><u>[Updated] In 2024, Go Global with GIFs Converting Vimeo Video to Animation</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-leaders-of-head-worn-digital-realms/"><u>[Updated] Leaders of Head-Worn Digital Realms</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-live-recording-mastery-with-innovative-webcams-explored/"><u>[Updated] Live Recording Mastery with Innovative WebCams Explored</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-from-zero-to-hero-creating-an-online-gaming-empire/"><u>2024 Approved From Zero to Hero Creating an Online Gaming Empire</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-how-to-make-a-striking-yt-preview-with-optimal-thumbnail-sizing/"><u>2024 Approved How to Make a Striking YT Preview with Optimal Thumbnail Sizing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-vivo-y100-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Vivo Y100 Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-motorola-g54-5g-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Motorola G54 5G Phone? Unlock It Now</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mind-your-words-with-ai-keep-secrets-safe/"><u>Mind Your Words with AI; Keep Secrets Safe</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-ultimate-stream-software-showdown-obs-vs-shadowplay/"><u>The Ultimate Stream Software Showdown OBS vs ShadowPlay</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Life's Journey Videos  Creating Authentic Online Experiences\""
-date: 2025-01-22T03:35:08.465Z
-updated: 2025-01-25T01:28:13.725Z
+date: 2025-01-29T01:56:30.377Z
+updated: 2025-02-04T21:50:16.733Z
 tags:
   - ai video
   - ai youtube
@@ -45,7 +45,7 @@ YouTube is a great platform you can use not only to share your gifts and talents
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\.  Channel Trailer
@@ -62,17 +62,21 @@ On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebrat
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\.  Never Have I Ever Q & A
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\.  Get Ready With Me Q & A
 
@@ -82,10 +86,6 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
@@ -94,13 +94,13 @@ Narrated Autobiopic videos are a great way to share your story or advice in a ci
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 10\.  YouTube Live/Webinar
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Custom Your Video with Excellent Video Editor
 
@@ -109,7 +109,7 @@ YouTube live videos are probably the best ways to interact and share your story 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -133,17 +133,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-crafting-a-top-notch-linkedin-image/"><u>[New] Crafting a Top-Notch LinkedIn Image</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/fficiently-shortening-youtube-content-for-2024/"><u>[New] Efficiently Shortening YouTube Content for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ow-youtube-determines-your-true-view-count/"><u>[New] How YouTube Determines Your True View Count</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/mnipresent-connectors-identifying-the-right-cms/"><u>[New] Omnipresent Connectors Identifying the Right CMS</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-upgrade-video-experience-activate-av1-on-youtube/"><u>[Updated] Upgrade Video Experience Activate AV1 on YouTube</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-step-wise-process-of-integrating-voice-over-into-videos/"><u>2024 Approved Step-Wise Process of Integrating Voice Over Into Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-the-power-of-branding-in-video-ranks-and-traffic/"><u>2024 Approved The Power of Branding in Video Ranks and Traffic</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/cant-view-mkv-movies-content-on-samsung-galaxy-xcover-7-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Can’t view MKV movies content on Samsung Galaxy XCover 7</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/discover-the-ultimate-guide-black-friday-2022-dates-and-top-bargain-locations/"><u>Discover the Ultimate Guide: Black Friday 2022 Dates & Top Bargain Locations</u></a></li>
-<li><a href="https://howto.techidaily.com/play-store-stuck-on-downloading-of-vivo-y78t-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Vivo Y78t? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-x100-pro-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on X100 Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unleashing-the-beast-within-a-comprehensive-review-of-the-2021-ipad-pro-with-m1-for-unmatched-desktop-level-functionality/"><u>Unleashing the Beast Within: A Comprehensive Review of the 2021 iPad Pro with M1 for Unmatched Desktop-Level Functionality</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-locating-youtubes-content-creation-hub-essential-guide/"><u>[New] In 2024, Locating YouTube's Content Creation Hub Essential Guide</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-revolutionary-date-insertion-methods-for-digital-artifacts/"><u>[New] In 2024, Revolutionary Date Insertion Methods for Digital Artifacts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-seamless-transition-transferring-exclusive-youtube-content-to-gmail/"><u>[New] In 2024, Seamless Transition Transferring Exclusive YouTube Content to Gmail</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/asterclass-refining-youtube-videos-through-imovie/"><u>[New] Masterclass Refining YouTube Videos Through iMovie</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-record-screen-and-upload-to-youtube-pc-mac-online/"><u>[Updated] Record Screen and Upload to YouTube [PC, Mac, Online]</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-infinix-smart-7-hd-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Infinix Smart 7 HD Activity | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-your-go-to-youtube-video-downloaders-on-android-platform/"><u>Choosing Your Go-To YouTube Video Downloaders on Android Platform</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fixing-the-igfxem-module-malfunction-a-step-by-step-guide/"><u>Fixing the igfxEM Module Malfunction – A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-building-brilliance-one-piece-at-a-time/"><u>In 2024, Building Brilliance One Piece at a Time</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-vivo-x100-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Vivo X100 Through Google Earth?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/wav-naar-swf-online-gratuita-converteertool-professioneel-service-by-movavi/"><u>Wav Naar Swf Online Gratuita Converteertool - Professioneel Service by Movavi</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The New Face of Collaboration  Video Events Post-VidCon\""
-date: 2024-08-16T03:21:04.762Z
-updated: 2024-08-17T03:21:04.762Z
+date: 2025-01-31T20:49:22.501Z
+updated: 2025-02-04T17:05:18.693Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 5. [RTX (US/UK/Australia)](#rtx)
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
 
@@ -114,6 +118,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -149,6 +157,10 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -188,6 +200,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -212,20 +228,21 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,10 +251,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/levate-your-video-guide-with-annotations-on-youtube-for-2024/"><u>[New] Elevate Your Video Guide with Annotations on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/39962427-updated-in-2024-stylish-profiles-easy-downloads/"><u>[Updated] In 2024, Stylish Profiles, Easy Downloads!</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-initiate-interactive-storytelling-with-windows-11s-movie-maker/"><u>[Updated] Initiate Interactive Storytelling with Windows 11'S Movie Maker</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-masterful-guide-integrating-youtube-and-social-media-platforms-fb/"><u>2024 Approved Masterful Guide Integrating YouTube and Social Media Platforms FB</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/diagnosing-and-fixing-mouse-right-click-issues-under-windows-10-operating-system/"><u>Diagnosing and Fixing Mouse Right-Click Issues Under Windows 10 Operating System</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-apple-iphone-11-pro-max-system-issues-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone 11 Pro Max System Issues? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-mobile-security-focused-the-leading-10-free-video-calling-applications/"><u>In 2024, Mobile Security-Focused The Leading 10 Free Video Calling Applications</u></a></li>
+<li><a href="https://tools.techidaily.com/mondly/products/"><u>Mondly's Products</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-best-movie-trailer-editing-tools-for-windows-and-macos-for-2024/"><u>New Best Movie Trailer Editing Tools for Windows and macOS for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/est-of-budget-a-guide-to-the-top-10-economical-video-design-schools-on-youtube/"><u>The Best of Budget A Guide to the Top 10 Economical Video Design Schools on YouTube</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-rated-tablets-comprehensive-reviews-and-testing-by-tech-experts/"><u>Top Rated Tablets : Comprehensive Reviews & Testing by Tech Experts</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/whats-hot-and-trending-our-pick-of-discovery-plus-shows-july-2024-edition/"><u>What's Hot and Trending: Our Pick of Discovery Plus Shows - July 2024 Edition</u></a></li>
+</ul></div>
 
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->

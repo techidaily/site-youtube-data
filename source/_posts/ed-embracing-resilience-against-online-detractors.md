@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Embracing Resilience Against Online Detractors"
-date: 2025-01-21T05:02:52.636Z
-updated: 2025-01-24T16:36:14.132Z
+date: 2025-01-30T17:38:12.217Z
+updated: 2025-02-05T02:15:16.293Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/98f34ca3fe8cce60e4b7bdc2a18ea2c36cd4a116d
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/98f34ca3fe8cce60e4b7bdc2a18ea2c36cd4a116d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,17 +83,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-skype-sessions-captured-effective-freepaid-windowsmac-methods/"><u>[New] 2024 Approved Skype Sessions Captured Effective Free/Paid Windows/Mac Methods</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/oosting-revenue-with-youtube-short-videos-a-complete-plan-for-2024/"><u>[New] Boosting Revenue with YouTube Short Videos – A Complete Plan for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-from-free-to-paid-the-transition-to-youtubes-elite-service/"><u>[New] In 2024, From Free to Paid The Transition to YouTube's Elite Service</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-unveiling-the-power-of-photo-editing-techniques-to-add-text-in-windowsmacos/"><u>[New] In 2024, Unveiling the Power of Photo Editing Techniques to Add Text in Windows/MacOS</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-shuttered-creations-sudden-delete-incidents-for-2024/"><u>[New] Shuttered Creations Sudden Delete Incidents for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-enhancing-your-videos-step-by-step-for-ken-burns-effect-in-camtasa/"><u>[Updated] In 2024, Enhancing Your Videos Step-by-Step for Ken Burns Effect in Camtasa</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-establishing-a-signature-persona-on-youtube/"><u>[Updated] Step-by-Step Establishing a Signature Persona on YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-design-principles-for-orderly-youtube-broadcasts/"><u>2024 Approved Design Principles for Orderly YouTube Broadcasts</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/expert-advice-on-correcting-code-41-device-conflicts-in-system-settings/"><u>Expert Advice on Correcting Code 41 Device Conflicts in System Settings</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-top-rated-android-apps-on-google-play-store/"><u>New In 2024, Top-Rated Android Apps on Google Play Store</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ast-track-to-clearing-youtube-post-comments/"><u>The Fast Track to Clearing YouTube Post-Comments</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/transforming-disaster-into-opportunity-through-data-restoration-vishakha/"><u>Transforming Disaster Into Opportunity Through Data Restoration, Vishakha</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-expert-psd-text-framing/"><u>[New] 2024 Approved Expert PSD Text Framing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-mastering-youtubes-short-form-content-key-tips-revealed/"><u>[New] In 2024, Mastering YouTube's Short-Form Content Key Tips Revealed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-merging-youtube-with-imovie-a-soundtrack-journey/"><u>[New] In 2024, Merging Youtube with iMovie A Soundtrack Journey</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ound-sanitization-cleaning-up-your-online-footage-for-2024/"><u>[New] Sound Sanitization Cleaning Up Your Online Footage for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-making-text-dance-2-creative-animation-strategies/"><u>[Updated] 2024 Approved Making Text Dance 2 Creative Animation Strategies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-boost-your-budget-a-straightforward-triple-step-method-to-monitor-youtube-revenue/"><u>[Updated] Boost Your Budget A Straightforward Triple-Step Method to Monitor YouTube Revenue</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-step-up-vfx-game-discover-these-8-sites-for-free-backdrops-and-footage/"><u>[Updated] In 2024, Step Up VFX Game - Discover These 8 Sites for FREE Backdrops & Footage</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-minute-video-crafters/"><u>[Updated] Minute Video Crafters</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-understanding-the-latest-display-technology-in-huawei-p10/"><u>[Updated] Understanding the Latest Display Technology in Huawei P10</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/like-a-pro-10-must-know-tips-for-newbies/"><u>Edit Like a Pro 10 Must-Know Tips for Newbies</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fixes-and-solutions-how-to-resolve-non-responsive-spotify-issues-on-pc/"><u>Fixes & Solutions: How to Resolve Non-Responsive Spotify Issues on PC</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ly-earnings-potential-on-youtube/"><u>Monthly Earnings Potential on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/strategies-for-penning-persuasive-vlogger-content-for-2024/"><u>Strategies for Penning Persuasive Vlogger Content for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-most-effective-thermal-compounds-for-computers-rankings-after-extensive-evaluation-of-90-products/"><u>The Most Effective Thermal Compounds for Computers - Rankings After Extensive Evaluation of 90 Products</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/toms-tech-insights-ultimate-guide-to-computer-components/"><u>Tom's Tech Insights: Ultimate Guide to Computer Components</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-10-freefire-game-hacks-for-youtube-gamers-for-2024/"><u>Top 10 FreeFire Game Hacks for YouTube Gamers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/al-studio-compiling-the-best-dj-visuals-for-download-for-2024/"><u>Virtual Studio Compiling the Best DJ Visuals for Download for 2024</u></a></li>
 </ul></div>
 
