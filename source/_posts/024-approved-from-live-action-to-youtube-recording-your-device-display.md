@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Live Action to YouTube  Recording Your Device Display\""
-date: 2024-08-23T06:26:41.076Z
-updated: 2024-08-24T06:26:41.076Z
+date: 2025-02-10T18:44:31.123Z
+updated: 2025-02-16T03:05:35.631Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,14 @@ You can find more information in this article: [How to Record iPhone/iPad’s Sc
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Wired Using QuickTime on your Mac
 
 If you have a Mac then you already have all the software you need.
@@ -53,8 +61,9 @@ If you have a Mac then you already have all the software you need.
 Although you can download a version of QuickTime for PC, the PC version does not have a screen recording option. If you have a PC you will need to use the second method.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Wirelessly Using AirPlay and Reflector(For Mac or PC!)
 
 If you either prefer to do things wirelessly or own a PC then you will need to use a slightly more round-about method. Rather than recording directly from your iPhone you will be mirroring your device’s interface onto your computer screen and then recording it there.
@@ -72,8 +81,9 @@ You can record your Mac or PC screen using Filmora Video Editor. Using Filmora y
 If you have a Mac you can also record your computer screen in QuickTime following the same steps listed above, until it comes time to choose your camera. Then you record your desktop instead of your device. There are a few different screen recording programs you can download for PC.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 After reading the three ways to record YouTube on iPhone/iPad, I am sure you want to give it a try. If you have any questions, please let us know!
@@ -81,22 +91,20 @@ After reading the three ways to record YouTube on iPhone/iPad, I am sure you wan
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,8 +113,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facebooks-ultimate-guide-selective-downloader-addons-and-extensions-for-firefox/"><u>[New] 2024 Approved Facebook's Ultimate Guide Selective Downloader Addons & Extensions for Firefox</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-highlighted-visions-is-intensified-lighting-the-future-of-hd-in-hdr/"><u>[New] Highlighted Visions Is Intensified Lighting the Future of HD in HDR?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tand-out-on-youtube-with-these-20-top-font-choices-for-2024/"><u>[New] Stand Out on YouTube with These 20 Top Font Choices for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ideo-view-count-boosters-top-8-thumbnails-tactics-for-2024/"><u>[New] Video View Count Boosters Top 8 Thumbnails Tactics for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-image-marketing-dos-vs-donts-explained/"><u>[New] YouTube Image Marketing Dos vs Don'ts Explained</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-best-youtube-video-ideas-to-spark-inspiration/"><u>[Updated] 2024 Approved Best YouTube Video Ideas to Spark Inspiration</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-detailed-walkthrough-to-flawless-youtube-videos-using-imovie-software-for-2024/"><u>[Updated] Detailed Walkthrough to Flawless YouTube Videos Using iMovie Software for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-ultimate-clearer-eliminate-backgrounds-effectively/"><u>[Updated] In 2024, Ultimate Clearer Eliminate Backgrounds Effectively</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-ultimate-youtuber-wealth-wonders/"><u>[Updated] In 2024, Ultimate Youtuber Wealth Wonders</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-app-image-alterations-resizing-photos-made-simple-ios/"><u>[Updated] In-App Image Alterations Resizing Photos Made Simple (iOS)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-first-steps-into-filmmaking-the-ultimate-guide-for-making-your-first-10-youtube-videos/"><u>2024 Approved First Steps Into Filmmaking The Ultimate Guide for Making Your First 10 YouTube Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-quick-tricks-randomizing-youtube-videos-on-all-devices/"><u>2024 Approved Quick Tricks Randomizing YouTube Videos on All Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unlock-the-power-of-engagement-to-monetize-facebook/"><u>2024 Approved Unlock the Power of Engagement to Monetize Facebook</u></a></li>
+<li><a href="https://win-premium.techidaily.com/7-auf-einen-usb-stick/"><u>7 Auf Einen USB-Stick</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-is-investing-in-a-monthly-youtube-premium-worthwhile/"><u>In 2024, Is Investing in a Monthly YouTube Premium Worthwhile?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-ultimate-guide-achieving-professional-sound-without-a-mic/"><u>In 2024, The Ultimate Guide Achieving Professional Sound without a Mic</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-honor-magic-v2-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Honor Magic V2 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nt-subscriber-growth-trackers-for-2024/"><u>Instant Subscriber Growth Trackers for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-next-big-thing-in-smartphones-release-info-and-price-breakdown-for-samsung-galaxy-z-flip-6/"><u>The Next Big Thing in Smartphones: Release Info and Price Breakdown for Samsung Galaxy Z Flip 6</u></a></li>
+</ul></div>
 

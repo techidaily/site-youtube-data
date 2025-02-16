@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Proven Techniques for Counteracting Virtual Insults\""
-date: 2024-08-23T06:26:32.036Z
-updated: 2024-08-24T06:26:32.036Z
+date: 2025-02-09T17:25:23.450Z
+updated: 2025-02-15T23:17:51.626Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/c72f65d6cf6eccfb8dd0cd66944cb2172744b7375
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/c72f65d6cf6eccfb8dd0cd66944cb2172744b7375
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,12 +81,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/dentifying-video-centric-dialogues-for-2024/"><u>[New] Identifying Video-Centric Dialogues for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-small-companies-guide-to-the-most-secure-video-tools/"><u>[New] In 2024, Small Companies' Guide to the Most Secure Video Tools</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-the-essentials-of-logging-live-performances-online-for-2024/"><u>[New] The Essentials of Logging Live Performances Online for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-first-time-filmmakers-guide-to-gear-selection/"><u>[New] The First-Time Filmmaker's Guide to Gear Selection</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nveiling-youtubes-behind-the-scenes-editor-space/"><u>[New] Unveiling YouTube's Behind-the-Scenes Editor Space</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-essentials-of-creating-and-curating-instagram-highlights-for-2024/"><u>[Updated] The Essentials of Creating and Curating Instagram Highlights for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-wallet-friendly-microphones-for-social-media-stars/"><u>[Updated] Wallet-Friendly Microphones for Social Media Stars</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-premier-football-vids-key-youtube-infographic-data/"><u>2024 Approved Premier Football Vids Key YouTube Infographic Data</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ng-savvy-streamlining-your-youtube-video-lengths/"><u>Editing Savvy Streamlining Your YouTube Video Lengths</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-fix-connectivity-issues-with-peripherals-on-windows-11-solved/"><u>How to Fix Connectivity Issues with Peripherals on Windows 11 [SOLVED]</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-motorola-moto-g73-5g-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Motorola Moto G73 5G phone? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-samsung-galaxy-f34-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Samsung Galaxy F34 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

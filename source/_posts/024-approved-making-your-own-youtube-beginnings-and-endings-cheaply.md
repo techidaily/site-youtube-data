@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Making Your Own YouTube Beginnings & Endings Cheaply\""
-date: 2024-08-23T06:25:21.842Z
-updated: 2024-08-24T06:25:21.842Z
+date: 2025-02-11T00:14:59.802Z
+updated: 2025-02-16T00:48:14.140Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/f308ec8a50cc9a493046d8e6543aebbcad8cb9f6d
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,12 +147,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-essential-insights-for-asmr-aficionados/"><u>[New] 2024 Approved Essential Insights for ASMR Aficionados</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-social-media-blend-adding-youtube-content-to-stories/"><u>[New] 2024 Approved Social Media Blend Adding YouTube Content to Stories</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rafting-cinema-youtubes-compreranche-guide-for-filmmakers-for-2024/"><u>[New] Crafting Cinema YouTube's Compreranche Guide for Filmmakers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-taking-your-filmed-artistry-on-a-journey-with-imovie-and-youtube/"><u>[Updated] 2024 Approved Taking Your Filmed Artistry on a Journey with iMovie & YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-5-easy-ways-to-multiply-your-youtube-follower-base/"><u>[Updated] 5 Easy Ways to Multiply Your YouTube Follower Base</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-reinstate-your-airdrop-linkages-simple-fixes-for-iosmacos-issues-for-2024/"><u>[Updated] Reinstate Your AirDrop Linkages Simple Fixes for iOS/macOS Issues for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-enhancing-profits-creating-compelling-video-trailers/"><u>2024 Approved Enhancing Profits Creating Compelling Video Trailers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/erate-your-youtube-journey-achieve-the-essential-10k-vistas/"><u>Accelerate Your YouTube Journey - Achieve the Essential 10K Vistas</u></a></li>
+<li><a href="https://driver-install.techidaily.com/atheros-network-card-efficient-software-reload/"><u>Atheros Network Card: Efficient Software Reload</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-zoom-on-xbox-one-a-step-by-step-guide-for-2024/"><u>Mastering Zoom on Xbox One A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-toolbox-what-every-youtube-newbie-needs-for-2024/"><u>The Ultimate Toolbox What Every YouTube Newbie Needs for 2024</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Write a Script for a YouTube Video"
-date: 2025-02-03T03:03:21.333Z
-updated: 2025-02-04T17:40:46.026Z
+date: 2025-02-09T16:51:01.822Z
+updated: 2025-02-15T22:55:16.823Z
 tags:
   - ai video
   - ai youtube
@@ -48,12 +48,16 @@ Here are some things to do before you start writing your script for YouTube:
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Writing a Script for a YouTube Video
@@ -64,13 +68,13 @@ Now that you're ready to sit down and write, here's what you do:
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
@@ -98,10 +102,6 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -109,7 +109,7 @@ After writing the script, the next step is to invite a trusted friend or family 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
@@ -118,11 +118,11 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -145,22 +145,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ramefixer-editor/"><u>[New] FrameFixer Editor</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/echniques-extracting-youtube-audio/"><u>[New] Techniques Extracting YouTube Audio</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nlocking-video-potential-essential-courses-for-new-creators-for-2024/"><u>[New] Unlocking Video Potential Essential Courses for New Creators for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-an-easy-to-follow-guide-adding-youtube-playlists-to-your-online-platform/"><u>[Updated] 2024 Approved An Easy-to-Follow Guide Adding YouTube Playlists to Your Online Platform</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-mastering-the-art-of-customizing-your-youtube-channel-url/"><u>[Updated] 2024 Approved Mastering the Art of Customizing Your YouTube Channel URL</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-best-software-to-start-your-youtube-videos-off-strongly/"><u>[Updated] 2024 Approved The Best Software to Start Your YouTube Videos Off Strongly</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-broad-overview-the-mechanics-of-google-podcast-app-for-2024/"><u>[Updated] Broad Overview The Mechanics of Google Podcast App for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-comic-corner-best-funny-content-on-the-planet-web-for-2024/"><u>[Updated] Comic Corner Best Funny Content on the Planet Web for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-savory-showlines-top-30-engaging-recipe-broadcast-names/"><u>[Updated] Savory Showlines Top 30 Engaging Recipe Broadcast Names</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ing-youtube-rankings-with-top-seo-practices-1-11-for-2024/"><u>Boosting YouTube Rankings with Top SEO Practices (1-11) for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/crafting-captivating-stories-on-fb-a-comprehensive-guide-to-bio-crafting/"><u>Crafting Captivating Stories on FB A Comprehensive Guide to Bio Crafting</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-stop-your-pc-from-crashing-while-enjoying-final-fantasy-xiv-online-adventures/"><u>How to Stop Your PC From Crashing While Enjoying Final Fantasy XIV Online Adventures?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-motorola-moto-e13-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Motorola Moto E13 Activity | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-vivo-y100-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Vivo Y100 FRP Without Computer</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/step-by-step-guide-repairing-a-nonfunctional-sennheiser-gameone-mic/"><u>Step-by-Step Guide: Repairing a Nonfunctional Sennheiser GameOne Mic</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-insights-on-latest-pc-technologies-and-equipment/"><u>Tom's Insights on Latest PC Technologies and Equipment</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-when-lava-blaze-pro-5g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Lava Blaze Pro 5G Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-achieving-high-quality-videos-with-your-cellphone-webcam/"><u>[New] 2024 Approved Achieving High-Quality Videos with Your Cellphone Webcam</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-mastering-youtube-clips-beginnings-and-conclusions-on-a-budget/"><u>[New] 2024 Approved Mastering YouTube Clips Beginnings & Conclusions on a Budget</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/apture-it-right-essential-camera-lenses-for-video-blogging-for-2024/"><u>[New] Capture It Right Essential Camera Lenses for Video Blogging for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-enhancing-twitter-video-experience-to-fhd-for-2024/"><u>[New] Enhancing Twitter Video Experience to FHD for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-essential-no-cost-game-recording-software-guide-for-2024/"><u>[New] Essential No-Cost Game Recording Software Guide for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-art-of-leading-lines-crafting-images-on-iphones/"><u>[New] The Art of Leading Lines Crafting Images on iPhones</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-dichotomy-of-youtube-rights-and-cc-licenses/"><u>[Updated] 2024 Approved The Dichotomy of YouTube Rights and CC Licenses</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-from-pixels-to-popularity-crafting-engaging-youtube-thumbnails-for-2024/"><u>[Updated] From Pixels to Popularity Crafting Engaging YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-how-to-stream-google-meet-to-youtube-step-by-step-guide/"><u>[Updated] In 2024, How To Stream Google Meet to YouTube [Step-by-Step Guide]</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-techniques-for-resolving-uneven-colors-and-bent-appearances-on-monitors/"><u>Troubleshooting Techniques for Resolving Uneven Colors and Bent Appearances on Monitors</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ate-youtuber-wealth-wonders-for-2024/"><u>Ultimate Youtuber Wealth Wonders for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/unlocking-personalized-content-potential-the-cookiebot-driven-edge-for-your-website/"><u>Unlocking Personalized Content Potential: The Cookiebot-Driven Edge for Your Website</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/unmute-the-silence-how-to-address-no-sound-problems-on-a-lenovo-computer-systematically/"><u>Unmute the Silence: How to Address No Sound Problems on a Lenovo Computer Systematically</u></a></li>
 </ul></div>
 

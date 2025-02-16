@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Turn on or Off Comments on YouTube\""
-date: 2024-08-23T06:23:54.420Z
-updated: 2024-08-24T06:23:54.420Z
+date: 2025-02-09T00:43:19.531Z
+updated: 2025-02-16T05:01:44.868Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ As a brand, it is imperative to thoroughly read all the comments that your YouTu
 
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -39,6 +43,10 @@ If you don’t want any comments on any of the videos that you publish, you must
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
 ![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
 
@@ -58,11 +66,19 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
 ![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
 
@@ -113,8 +129,9 @@ From under the **Audience** section in the right window of the **Video details**
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -131,10 +148,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -149,23 +162,17 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,8 +181,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-art-of-assembly-crafting-your-personalized-4k-video-editor-pc/"><u>[New] In 2024, The Art of Assembly Crafting Your Personalized 4K Video Editor PC</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-deciphering-the-world-of-youtube-media-conglomerates/"><u>[Updated] Deciphering the World of YouTube Media Conglomerates</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-gain-momentum-with-these-strategies-for-trending-youtubers/"><u>[Updated] Gain Momentum with These Strategies for Trending YouTubers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-thorough-summary-googles-podcast-platform-demystified/"><u>[Updated] In 2024, Thorough Summary Google's Podcast Platform Demystified</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-investment-alert-avoid-the-trap-of-artificial-youtube-engagement/"><u>[Updated] Investment Alert Avoid the Trap of Artificial YouTube Engagement</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-social-screening-highest-view-counts-on-youtube-for-2024/"><u>[Updated] Social Screening Highest View Counts on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-streamlined-mp4-creation-must-have-tools-on-mac/"><u>[Updated] Streamlined MP4 Creation Must-Have Tools on Mac</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-embedding-youtube-videos-tips-for-a-smooth-ppt-transition/"><u>2024 Approved Embedding YouTube Videos Tips for a Smooth PPT Transition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-find-your-way-to-youtube-studio-a-comprehensive-overview/"><u>2024 Approved Find Your Way to YouTube Studio A Comprehensive Overview</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/budget-pc-screen-capture-apps-for-2024/"><u>Budget PC Screen Capture Apps for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/er-and-cease-the-unremovable-guide-to-youtube-shorts/"><u>Conquer & Cease The Unremovable Guide to Youtube Shorts</u></a></li>
+<li><a href="https://review-topics.techidaily.com/experience-deep-rich-low-ends-with-the-sony-ult-field-7-your-must-have-festive-audio-companion/"><u>Experience Deep, Rich Low Ends with the Sony ULT Field 7 – Your Must-Have Festive Audio Companion</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-stop-roblox-from-breaking-down-on-pcs-six-fast-fixes-you-need-to-know/"><u>How to Stop Roblox From Breaking Down on PCs - Six Fast Fixes You Need to Know</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-xiaomi-redmi-a2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/identifying-and-fixing-your-pcs-graphics-card-issues-with-yl-software-expertise/"><u>Identifying and Fixing Your PC's Graphics Card Issues with YL Software Expertise</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-unlock-youtube-success-with-top-8-thumbnail-strategies/"><u>In 2024, Unlock YouTube Success with Top 8 Thumbnail Strategies</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-infinix-hot-40-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Infinix Hot 40 Device</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-the-nuances-of-softening-sounds-via-lumafusion-for-2024/"><u>Mastering the Nuances of Softening Sounds via Lumafusion for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/time-viewership-counter-systems-for-2024/"><u>Real-Time Viewership Counter Systems for 2024</u></a></li>
+</ul></div>
 

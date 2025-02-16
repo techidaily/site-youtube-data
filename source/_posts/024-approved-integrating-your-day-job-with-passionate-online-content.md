@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Integrating Your Day Job with Passionate Online Content\""
-date: 2024-08-16T03:25:01.291Z
-updated: 2024-08-17T03:25:01.291Z
+date: 2025-02-12T01:55:56.283Z
+updated: 2025-02-15T18:13:47.649Z
 tags:
   - ai video
   - ai youtube
@@ -47,35 +47,29 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 5. Be creative! Create audios (audio-only videos)
 
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
@@ -83,8 +77,9 @@ In the event that life gets too crazy, it’s perfectly fine to do just audio. M
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Make a YouTube Video with Wondershare Filmora
 
 Wondershare Filmora is one application that people prefer over any other video editing application due to its easy-to-use editing tools and social media aimed settings. This application can help any beginner with a desire to shoot a movie, achieve his dream even without the availability of high-tech cameras or equipment in his hand. The features like video stabilization feature and lens correction allow removing the major defects that occur while capturing a video. A large number of filters in the application can be used to give the cinematic effect whether it be a short video or a long movie.
@@ -94,8 +89,9 @@ Just try it and create your own YouTube video!
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -104,14 +100,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -120,8 +113,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-monetizing-videos-on-youtube-strategies-success/"><u>[New] 2024 Approved Monetizing Videos on YouTube Strategies Success</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-captivate-crowds-mastering-hashtag-use-in-high-traffic-short-videos/"><u>[New] In 2024, Captivate Crowds Mastering Hashtag Use in High-Traffic Short Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rofessionalizing-slides-with-youtube-videos-for-2024/"><u>[New] Professionalizing Slides with YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ealthiest-webcast-wonders-for-2024/"><u>[New] Wealthiest Webcast Wonders for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-social-media-gold-rush-prime-hashes-for-viewership/"><u>[Updated] 2024 Approved Social Media Gold Rush Prime Hashes for Viewership</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-video-editing-fixing-youtube-short-fails/"><u>[Updated] 2024 Approved Video Editing Fixing YouTube Short Fails</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-decoding-video-thread-embellishments/"><u>[Updated] In 2024, Decoding Video Thread Embellishments</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-top-10-global-youtube-personalities-peak-of-viewership/"><u>[Updated] In 2024, Top 10 Global YouTube Personalities Peak of Viewership</u></a></li>
+<li><a href="https://techtrends.techidaily.com/firefox-videodownloadhelper/"><u>「Firefox用 VideoDownloadHelper：ダウンロードヘルパーアプリを初めて使う方法とセキュリティ対策ガイド」</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-swift-introduction-the-art-of-green-screening/"><u>2024 Approved Swift Introduction The Art of Green Screening</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-the-best-of-the-best-essential-tablet-sketching-tools/"><u>2024 Approved The Best of the Best Essential Tablet Sketching Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/amplify-your-audience-engagement-with-strategic-instagram-videos/"><u>Amplify Your Audience Engagement with Strategic Instagram Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/e-meet-go-live-your-youtube-broadcast-companion/"><u>Google Meet Go Live - Your YouTube Broadcast Companion</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/e-smoothly-incorporate-online-videos-soundtracks/"><u>IMovie Smoothly Incorporate Online Videos' Soundtracks</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-in-2024-how-to-change-speed-of-video-in-final-cut-pro/"><u>New In 2024, How To Change Speed of Video in Final Cut Pro?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ssional-rapid-thumbnail-artistry-for-valorant-games-for-2024/"><u>Professional Rapid Thumbnail Artistry for Valorant Games for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-essential-quickstart-to-srt-to-txt-file-alteration/"><u>The Essential Quickstart to SRT to TXT File Alteration</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/the-ultimate-guide-to-the-best-iphone-and-ipad-videos-top-10-for-2024/"><u>The Ultimate Guide to the Best iPhone & iPad Videos (Top 10) for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-step-by-step-walkthrough-on-how-to-play-pokemon-go/"><u>Ultimate Step-by-Step Walkthrough on How to Play 'Pokémon Go'</u></a></li>
+</ul></div>
 

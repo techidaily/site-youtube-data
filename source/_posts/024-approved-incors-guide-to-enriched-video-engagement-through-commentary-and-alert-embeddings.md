@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Incor's Guide to Enriched Video Engagement Through Commentary and Alert Embeddings\""
-date: 2024-08-23T06:26:58.744Z
-updated: 2024-08-24T06:26:58.744Z
+date: 2025-02-09T18:29:01.303Z
+updated: 2025-02-15T20:31:16.172Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,12 +62,20 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes and exit
 
@@ -77,10 +89,18 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -126,14 +146,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,12 +159,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-live-tv-mastery-capturing-content-on-your-windows-pc/"><u>[New] In 2024, Live TV Mastery Capturing Content on Your Windows PC</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/teps-to-clear-out-your-youtube-watch-later-collection-for-2024/"><u>[New] Steps to Clear Out Your YouTube Watch Later Collection for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-digital-deception-steering-clear-from-buying-non-existent-followers/"><u>[Updated] 2024 Approved Digital Deception Steering Clear From Buying Non-Existent Followers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-best-way-to-use-obs-live-stream-to-facebook/"><u>[Updated] In 2024, Best Way to Use OBS Live Stream to Facebook</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-cutting-techniques-for-sports-entertainment-films/"><u>[Updated] In 2024, Cutting Techniques for Sports Entertainment Films</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/1716069664351-updated-integrated-recorder-functions-mate-10-20-and-p-series-p20-p10-phones-for-2024/"><u>[Updated] Integrated Recorder Functions Mate 10, 20 & P-Series (P20, P10) Phones. For 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-streamlining-video-creation-for-snapchat-on-mac/"><u>[Updated] Streamlining Video Creation for Snapchat on Mac</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-top-5-ps1-emulation-software-on-modern-computers-for-2024/"><u>[Updated] Top 5 PS1 Emulation Software on Modern Computers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/st-youtube-channels-for-stock-market-to-follow/"><u>15 Best YouTube Channels for Stock Market to Follow</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-elevate-streams-using-youtubes-av1-settings/"><u>2024 Approved Elevate Streams Using YouTube's AV1 Settings</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-user-friendly-guide-to-leveraging-windows-10-and-zoom/"><u>A User-Friendly Guide to Leveraging Windows 10 and Zoom</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/e-a-yt-hub-pro-complete-guide-revealed/"><u>Become a YT Hub Pro Complete Guide Revealed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/y-chorus-satirical-song-selections/"><u>Comedy Chorus Satirical Song Selections</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/discover-top-tier-gadgets-with-toms-equipment-guide/"><u>Discover Top-Tier Gadgets with Tom's Equipment Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-motorola-moto-g-stylus-2023-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Motorola Moto G Stylus (2023) Phone? Unlock It Now</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-free-video-editing-software-the-best-options-without-watermarks/"><u>New Free Video Editing Software The Best Options Without Watermarks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/zing-famebit-techniques-for-youtube-sponsorship-success/"><u>Utilizing FameBit Techniques for YouTube Sponsorship Success</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

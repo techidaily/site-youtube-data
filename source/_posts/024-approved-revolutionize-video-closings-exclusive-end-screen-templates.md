@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Revolutionize Video Closings - Exclusive End Screen Templates\""
-date: 2024-08-23T06:24:23.487Z
-updated: 2024-08-24T06:24:23.487Z
+date: 2025-02-11T16:26:23.161Z
+updated: 2025-02-16T02:39:10.406Z
 tags:
   - ai video
   - ai youtube
@@ -83,13 +83,25 @@ Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
@@ -101,6 +113,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
@@ -109,6 +125,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![stretch-end-screen-templates-canva](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
@@ -116,6 +136,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -129,14 +153,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,12 +166,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-how-to-record-google-voice-calls/"><u>[New] How To Record Google Voice Calls</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-role-of-analytics-in-youtube-shorts-management/"><u>[New] The Role of Analytics in YouTube Shorts Management</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-industry-standards-prime-gimbals-for-drones/"><u>[Updated] 2024 Approved Industry Standards Prime Gimbals for Drones</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-saving-a-look-at-your-window/"><u>[Updated] 2024 Approved Saving a Look at Your Window</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-essential-choices-top-10-best-video-editing-software-free-2023-for-2024/"><u>[Updated] Essential Choices Top 10 Best Video Editing Software (Free, 2023) for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-gamer-centric-streaming-tool-selection-for-2024/"><u>[Updated] Gamer-Centric Streaming Tool Selection for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-maximizing-income-average-adsense-payouts-per-thousand-viewers-for-2024/"><u>[Updated] Maximizing Income Average AdSense Payouts Per Thousand Viewers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unleash-creativity-with-youtube-clips-make-animation-gifs-easily/"><u>[Updated] Unleash Creativity with YouTube Clips - Make Animation GIFs Easily</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-real-deal-behind-asmr-videos/"><u>2024 Approved The Real Deal Behind ASMR Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-ultimate-checklist-12-must-have-cameras-for-vlogging-professionals/"><u>2024 Approved The Ultimate Checklist 12 Must-Have Cameras for Vlogging Professionals</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-webcamsavvy-essentialrecordinghacks/"><u>2024 Approved WebCamSavvy EssentialRecordingHacks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elevate-photoshoots-select-your-ideal-background-viewer-for-2024/"><u>Elevate Photoshoots Select Your Ideal Background Viewer for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/gratisk-downloads-av-instagram-videos-i-mp4-format/"><u>Gratisk Downloads Av Instagram Videos I MP4 Format</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/make-your-own-meme-now-for-2024/"><u>Make Your Own Meme Now for 2024</u></a></li>
+<li><a href="https://win-premium.techidaily.com/step-by-step-tutorial-for-shifting-pictures-from-your-samsung-galaxy-note-10-to-pc-efficiently/"><u>Step-by-Step Tutorial for Shifting Pictures From Your Samsung Galaxy Note 10 to PC Efficiently</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

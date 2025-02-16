@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Step Into the Spotlight  Learning YouTube Vlogger Etiquette\""
-date: 2024-08-23T06:25:44.935Z
-updated: 2024-08-24T06:25:44.935Z
+date: 2025-02-11T19:05:31.260Z
+updated: 2025-02-16T00:20:30.966Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ For most people, vlogging is not something that comes naturally. Like any skill,
 
 When we watch the most popular YouTubers, the traits that make them successful are often invisible, because we are so consumed by their vlog. In this article, I’ll highlight 8 tips from the most accomplished vloggers on the Internet, so that you can vlog confidently and make the best YouTube videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -39,6 +43,10 @@ Vlogging is about honesty, telling a story that is truthful and showing your per
 There will be an urge for you to mimic other vloggers, talking and acting the way they do, but savvy YouTube viewers will be able to see your faux personality pretty quickly.
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
 
@@ -51,8 +59,9 @@ Once all the pieces of the story are captured — including your storytelling, b
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -61,9 +70,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -71,6 +77,10 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -84,9 +94,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -97,9 +104,6 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -110,9 +114,6 @@ Consider your audience: they are coming home from school or work, where there we
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -140,27 +141,20 @@ If you want to find a video editing solution that empowers your imagination and 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,8 +163,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/oosting-engagement-from-the-start-premium-paid-free-intra-creators-for-2024/"><u>[New] Boosting Engagement From the Start Premium, Paid-Free Intra Creators for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-cutting-edge-or-outdated-full-review-and-guide-to-vitas-editor/"><u>[New] Cutting Edge or Outdated? Full Review & Guide to Vita's Editor</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/levating-your-youtube-experience-tips-on-channel-art-and-sizes/"><u>[New] Elevating Your YouTube Experience Tips on Channel Art and Sizes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-understanding-light-settings-in-youtube-video-editing/"><u>[New] In 2024, Understanding Light Settings in YouTube Video Editing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/astering-mobile-media-a-guide-to-the-9-smartest-gadgets-for-filmmakers/"><u>[New] Mastering Mobile Media A Guide to the 9 Smartest Gadgets for Filmmakers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-polishing-resilience-for-online-criticism/"><u>[Updated] 2024 Approved Polishing Resilience for Online Criticism</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-editors-workshop-enhancing-your-youtube-video-visibility-for-2024/"><u>[Updated] Editor's Workshop Enhancing Your Youtube Video Visibility for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-leading-list-of-16-youtube-openers-for-audience-expansion/"><u>[Updated] In 2024, Leading List of 16 YouTube Openers for Audience Expansion</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-navigating-ig-videos-successfully-building-an-efficient-marketing-blueprint-for-2024/"><u>[Updated] Navigating IG Videos Successfully Building an Efficient Marketing Blueprint for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-professional-photography-with-canons-complimentary-luts/"><u>[Updated] Professional Photography with Canon's Complimentary LUTs</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/boost-your-game-with-ai-powered-frame-rate-optimization-for-seamless-experience/"><u>Boost Your Game with AI-Powered Frame Rate Optimization for Seamless Experience</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/to-follow-steps-crafting-animated-gifs-from-youtube-content-pcmobile/"><u>Easy-to-Follow Steps Crafting Animated GIFs From YouTube Content (PC/Mobile)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tial-guidelines-for-creating-compelling-youtube-shorts-templates/"><u>Essential Guidelines for Creating Compelling YouTube Shorts Templates</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harnessing-power-of-luts-for-advanced-obs-studio-output-for-2024/"><u>Harnessing Power of LUTs for Advanced OBS Studio Output for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-essential-7-android-apps-to-eliminate-intrusive-ads/"><u>In 2024, Essential 7 Android Apps to Eliminate Intrusive Ads</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/navigating-snapads-a-business-strategy-guide/"><u>Navigating SnapAds A Business Strategy Guide</u></a></li>
+<li><a href="https://win-answers.techidaily.com/speeding-up-steam-expert-advice-on-accelerating-download-speeds/"><u>Speeding Up Steam: Expert Advice on Accelerating Download Speeds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tomorrows-tongues-revolutionizing-language-acquisition-today/"><u>Tomorrow's Tongues: Revolutionizing Language Acquisition Today</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eling-youtubes-monetization-shifts-for-2024/"><u>Unraveling YouTube's Monetization Shifts for 2024</u></a></li>
+</ul></div>
 

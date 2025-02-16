@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Fostering Resilience in the Face of Cyber Haters\""
-date: 2024-08-23T06:24:37.063Z
-updated: 2024-08-24T06:24:37.063Z
+date: 2025-02-11T04:23:22.615Z
+updated: 2025-02-16T01:49:22.103Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/31a47d0813e0a73316845fc7d36338a492235a7e4
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/31a47d0813e0a73316845fc7d36338a492235a7e4
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,12 +81,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-how-to-download-youtube-thumbnail-in-3-ways-onlinewinmac/"><u>[New] In 2024, How to Download YouTube Thumbnail in 3 Ways [Online/Win/Mac]</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-masterful-video-marketing-techniques-youtube-editions-top-5-list/"><u>[New] In 2024, Masterful Video Marketing Techniques - YouTube Edition's #Top 5 List</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-mastering-the-art-of-hashtag-usage-a-primer-for-gamers-yt/"><u>[New] In 2024, Mastering the Art of Hashtag Usage A Primer for Gamers YT</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/avigating-youtubes-community-standards-as-a-viewer-or-creator/"><u>[New] Navigating YouTube's Community Standards as a Viewer or Creator</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-first-steps-to-creating-a-successful-online-stream/"><u>[New] The First Steps to Creating a Successful Online Stream</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nlocking-youtube-sounds-through-screen-capture-for-2024/"><u>[New] Unlocking YouTube Sounds Through Screen Capture for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-maximize-your-content-impact-with-insights-from-social-blade-on-youtube/"><u>[Updated] 2024 Approved Maximize Your Content Impact with Insights From Social Blade on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-digital-fortune-makers-top-earning-youtubers-for-2024/"><u>[Updated] Digital Fortune Makers Top Earning YouTubers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-distinguishing-between-youtube-content-control-and-creative-commons-flexibility-for-2024/"><u>[Updated] Distinguishing Between YouTube Content Control and Creative Commons Flexibility for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-explore-costless-methods-for-superior-photo-quality-for-2024/"><u>[Updated] Explore Costless Methods for Superior Photo Quality for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-high-fidelity-mobile-sound-selector/"><u>[Updated] High Fidelity Mobile Sound Selector</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-total-unlinkage-from-youtube-shorts-complete-guide/"><u>2024 Approved Total Unlinkage From YouTube Shorts Complete Guide</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/decoding-the-mysteries-of-outdated-facebook-sharing-pcmobile-style-for-2024/"><u>Decoding the Mysteries of Outdated Facebook Sharing, PC/Mobile Style for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/epic-video-journeys-the-fastest-hits-reaching-100m-views-by-24/"><u>Epic Video Journeys The Fastest Hits Reaching 100M Views by '24</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-motorola-moto-g14-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Motorola Moto G14 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/overcoming-issues-with-windows-and-steam-remote-play/"><u>Overcoming Issues with Windows & Steam Remote Play</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->

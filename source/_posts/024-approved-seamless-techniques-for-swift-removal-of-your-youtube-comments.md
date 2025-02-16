@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Seamless Techniques for Swift Removal of Your Youtube Comments\""
-date: 2024-08-23T06:23:19.017Z
-updated: 2024-08-24T06:23:19.017Z
+date: 2025-02-12T03:33:50.008Z
+updated: 2025-02-16T03:05:14.239Z
 tags:
   - ai video
   - ai youtube
@@ -70,8 +70,9 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -86,9 +87,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -109,10 +107,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -127,17 +121,23 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
@@ -145,22 +145,20 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,8 +167,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ow-to-host-a-webinar-on-youtube-for-free-for-2024/"><u>[New] How to Host a Webinar on YouTube for Free for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-time-reversal-tactics-unique-youtube-video-experiences/"><u>[New] In 2024, Time-Reversal Tactics Unique YouTube Video Experiences</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-movie-buffs-secret-2023-recommendations/"><u>[Updated] 2024 Approved Movie Buffs' Secret 2023 Recommendations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-secure-a-unique-chanel-identity-with-these-top-11-affordable-tools/"><u>[Updated] 2024 Approved Secure a Unique Chanel Identity with These Top 11 Affordable Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-select-5-high-quality-audio-headphones/"><u>[Updated] 2024 Approved Select 5 High-Quality Audio Headphones</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-adding-words-to-pictures-easy-photo-text-editing-tips/"><u>[Updated] Adding Words to Pictures Easy Photo Text Editing Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-bend-the-light-homegrown-animated-innovations/"><u>[Updated] Bend the Light Homegrown Animated Innovations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-ideal-screener-tech-elevating-your-youtube-presence/"><u>[Updated] Ideal Screener Tech Elevating Your YouTube Presence</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-professional-zoom-settings-guide-for-google-meet/"><u>[Updated] Professional Zoom Settings Guide for Google Meet</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-elevate-your-chuckles-kapwings-meme-designer/"><u>2024 Approved Elevate Your Chuckles Kapwing's Meme Designer</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/complete-tutorial-on-setting-up-and-utilizing-chatgpt-add-ons/"><u>Complete Tutorial on Setting Up and Utilizing ChatGPT Add-Ons</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/decoding-off-facebook-data-privacy-and-safety-considerations/"><u>Decoding Off-Facebook Data Privacy & Safety Considerations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tial-asmr-apps-android-and-ios-edition/"><u>Essential ASMR Apps Android & iOS Edition</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-xiaomi-redmi-12-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Xiaomi Redmi 12 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-from-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code From your Apple iPhone 12 Pro Max</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-chucklechasm-exciting-places-to-get-comical-calls/"><u>In 2024, ChuckleChasm Exciting Places to Get Comical Calls</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-oneplus-nord-ce-3-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your OnePlus Nord CE 3 5G</u></a></li>
+</ul></div>
 
