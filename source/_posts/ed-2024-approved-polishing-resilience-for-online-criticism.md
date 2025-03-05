@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Polishing Resilience for Online Criticism\""
-date: 2025-01-29T23:01:27.737Z
-updated: 2025-02-05T01:14:57.918Z
+date: 2025-03-01T01:54:46.568Z
+updated: 2025-03-04T23:47:17.731Z
 tags:
   - ai video
   - ai youtube
@@ -25,10 +25,6 @@ thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d21
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -58,10 +54,6 @@ thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d21
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -83,22 +75,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-feast-of-fame-top-30-show-titles-to-sizzle-viewership/"><u>[New] 2024 Approved Feast of Fame Top 30 Show Titles to Sizzle Viewership</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-recordingratings-analyzer/"><u>[New] 2024 Approved RecordingRatings Analyzer</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-achieving-prominence-in-online-gaming-content/"><u>[New] In 2024, Achieving Prominence in Online Gaming Content</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-adjusting-low-bit-rate-settings-obs/"><u>[New] In 2024, Adjusting Low-Bit Rate Settings (OBS)</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-profit-potential-unlocked-how-to-enroll-in-youtubes-membership/"><u>[New] In 2024, Profit Potential Unlocked How to Enroll in YouTube's Membership</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-echoes-of-now-strategies-for-downloading-current-events/"><u>[Updated] 2024 Approved Echoes of Now Strategies for Downloading Current Events</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-quick-snapshot-the-essential-skill-for-zoom-meetings/"><u>[Updated] In 2024, Quick Snapshot The Essential Skill for Zoom Meetings</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-maximize-engagement-insider-secrets-to-youtube-seo-for-2024/"><u>[Updated] Maximize Engagement Insider Secrets to YouTube SEO for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-maximize-screen-time-top-10-free-youtube-playlist-extractors/"><u>[Updated] Maximize Screen Time Top 10 Free YouTube Playlist Extractors</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-ultimate-precision-machines-best-of-the-series/"><u>[Updated] Ultimate Precision Machines - Best of the Series</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-10-strategies-for-educators-starting-their-own-youtube-series/"><u>2024 Approved 10 Strategies for Educators Starting Their Own YouTube Series</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-youtube-seo-mastery-balancing-titles-and-tags/"><u>2024 Approved YouTube SEO Mastery Balancing Titles and Tags</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/o-succeed-youtubes-powerful-business-channel-list-for-2024/"><u>How to Succeed YouTube's Powerful Business Channel List for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-expert-tips-for-converting-facebook-hd-video-quality-to-mp4-online/"><u>In 2024, Expert Tips for Converting Facebook HD Video Quality to MP4 Online</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nt-these-8-key-mishaps-on-your-youtube-journey-for-2024/"><u>Prevent These 8 Key Mishaps on Your YouTube Journey for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/e-realms-stepwise-food-videography-for-2024/"><u>Recipe Realms Stepwise Food Videography for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-the-potential-of-chatgpt-for-personal-stress-management-solutions/"><u>Unlocking the Potential of ChatGPT for Personal Stress Management Solutions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-crafting-captivating-thumbnails-a-comprehensive-guide-for-youtube-creators/"><u>[New] 2024 Approved Crafting Captivating Thumbnails A Comprehensive Guide for YouTube Creators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-diy-youtube-openers-technique-one-and-technique-two/"><u>[New] 2024 Approved DIY YouTube Openers Technique One & Technique Two</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-enhance-every-viewing-moment-with-these-top-6-free-platforms-for-youtube-short-downloads/"><u>[New] 2024 Approved Enhance Every Viewing Moment with These Top 6 Free Platforms for YouTube Short Downloads</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-evaluating-dailymotion-vs-youtube-profitability/"><u>[New] 2024 Approved Evaluating Dailymotion vs YouTube Profitability</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-pre-production-meets-post-production-premiere-and-youtube/"><u>[New] 2024 Approved Pre-Production Meets Post-Production Premiere and YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-premium-5-web-based-video-recorders/"><u>[New] Premium 5 Web-Based Video Recorders</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-everything-you-need-to-know-about-the-newly-released-samsung-galaxy-watch-7/"><u>Discover Everything You Need to Know About the Newly Released Samsung Galaxy Watch 7!</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/enhance-your-broadcast-with-manycam-superior-virtual-camera-and-live-streaming-software-solutions/"><u>Enhance Your Broadcast with ManyCam: Superior Virtual Camera & Live Streaming Software Solutions</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-xiaomi-redmi-a2plus-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Xiaomi Redmi A2+?</u></a></li>
+<li><a href="https://windows11.techidaily.com/resuscitate-stalled-excel-performance-in-windows-environment/"><u>Resuscitate Stalled Excel Performance in Windows Environment</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-7-premier-free-web-based-audio-format-changers/"><u>Top 7 Premier Free Web-Based Audio Format Changers</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-how-to-edit-videos-to-the-beat-in-premiere-pro-for-2024/"><u>Updated How to Edit Videos to the Beat in Premiere Pro for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Thriving in the YouTube Landscape with Data-Driven Approach\""
-date: 2025-02-13T00:04:05.096Z
-updated: 2025-02-15T17:37:44.344Z
+date: 2025-02-28T19:57:19.096Z
+updated: 2025-03-05T01:41:05.068Z
 tags:
   - ai video
   - ai youtube
@@ -63,10 +63,6 @@ When you enter your YouTube Creator Studio, you will find the Analytics Tab on t
 
 ![youtube-creator-sutdio](https://images.wondershare.com/filmora/youtube-creator-sutdio.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 But with all this information, it can get a little overwhelming for new YouTubers. Don’t sweat. Let’s walk through each section to identify:
 
 \- What information it is displaying
@@ -127,10 +123,6 @@ The Realtime report is a fantastic tool for seeing the immediate performance of 
 ![performance-of-your-channel](https://images.wondershare.com/filmora/performance-of-your-channel.jpg)  
   
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **See Performance of Your 25 Most Recently Published Videos**
 
 In the Realtime dashboard, you will see the last 48 hours and last 60-minute performance of your 25 most recently published videos.
@@ -153,10 +145,6 @@ If you want to find out how many people have viewed your videos from a mobile de
 
 ![real-time-data](https://images.wondershare.com/filmora/real-time-data.jpg)  
   
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **How to Use the Realtime Dashboard**
 
@@ -275,10 +263,6 @@ YouTube puts a lot of weight on this metric because they know that the more time
 ![the-aggregated-time](https://images.wondershare.com/filmora/the-aggregated-time.jpg)  
   
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In the graph, you will also be able to see the combined Views of all your videos, as well as the segmented performance of YouTube Red viewers.
 
 YouTube Red is YouTube’s subscription plan. It is currently only available in Australia, Korea, Mexico, New Zealand, and the United States.
@@ -348,10 +332,6 @@ However, if you notice a sudden peak in the middle of your video, you can assume
 In the example below, we see that there is a peak at the point in this video where a specific part of a tutorial is shown. Viewers were most likely rewatching to confirm they understand the information, so they can apply it themselves.
 
 ![how-to-use-audience-retention](https://images.wondershare.com/filmora/how-to-use-audience-retention.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Knowing this, for the next video you make, you can better anticipate where your viewers are going to need more time on a specific part or whether you should skip ahead to something more interesting.
 
@@ -567,10 +547,6 @@ By having a report to see which videos have been added to the playlist, you can 
 ![video-in-the-most-playlists](https://images.wondershare.com/filmora/video-in-the-most-playlists.jpg)  
   
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **See If There Is a Correlation Between Videos in Playlists and Watch Time**
 
 Identify if there are any direct or indirect effects of having videos in the playlist by comparing it to important metrics such as Watch Time. If you see that there is a boost for days when more videos are added to the playlist, you can start planning more strategies to get video features along with other related content.
@@ -622,10 +598,6 @@ Know which platform your audience is most active on. Understanding this can help
 
 ![most-popular-service-for-your-channel](https://images.wondershare.com/filmora/most-popular-service-for-your-channel.jpg)  
   
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **See How Frequently a Video is Getting Shared**
 
@@ -697,10 +669,6 @@ See what is happening on screen that is making the card more click-worthy, this 
 ![on-screen-content](https://images.wondershare.com/filmora/on-screen-content.jpg)![click-worthy-link](https://images.wondershare.com/filmora/click-worthy-link.jpg)  
   
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **How to Use Cards Report**
 
 This report helps you understand the different cards and how they are performing within your videos so that you can better plan your content to increase the chances of your audience engaging with your cards.
@@ -742,18 +710,10 @@ By clicking into the Best for Viewer section you can see the top-performing vide
 ![top-performing-videos-that-youtube-suggest](https://images.wondershare.com/filmora/top-performing-videos-that-youtube-suggest.jpg)  
   
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **How to Use The End Screens Report**
 
 The End Screens report is great for letting you know which of your existing content the audience is interested in seeing after they finished watching one of your videos. As you learn more about your viewers and accumulate more videos, with the help of the End Screens report, you can determine which videos to use to increase Views and Watch Time.
   
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Conclusion**
 
@@ -790,24 +750,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/utting-edge-openings-at-no-cost-the-best-youtube-intro-makers/"><u>[New] Cutting-Edge Openings at No Cost The Best YouTube Intro Makers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/oogle-account-integration-for-private-youtube-video-sharing/"><u>[New] Google Account Integration for Private YouTube Video Sharing</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-accelerated-steps-to-rearrange-youtube-music-ordering/"><u>[New] In 2024, Accelerated Steps to Rearrange YouTube Music Ordering</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-charting-your-course-from-creator-to-major-label/"><u>[New] In 2024, Charting Your Course From Creator to Major Label</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-principles-of-filming-inspirational-daily-living-documentaries/"><u>[New] In 2024, Principles of Filming Inspirational Daily Living Documentaries</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-tips-for-crafting-impactful-video-thumbnails-on-youtube/"><u>[New] In 2024, Tips for Crafting Impactful Video Thumbnails on YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-how-to-see-your-subscribers-on-youtube/"><u>[Updated] 2024 Approved How to See Your Subscribers on YouTube?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-navigating-to-the-shadows-of-youtube-videos/"><u>[Updated] Navigating to the Shadows of YouTube Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-trailblazing-the-future-of-3d-color-grading-tools-for-2024/"><u>[Updated] Trailblazing the Future of 3D Color Grading Tools for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-superior-alert-sound-pick-optimal-websites/"><u>2024 Approved Superior Alert Sound Pick Optimal Websites</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-weekly-essentials-the-best-of-igtv/"><u>2024 Approved Weekly Essentials The Best of IGTV</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-place.techidaily.com/data-secure-methods-successfully-duplicating-windows-10-dynamic-disks-without-losing-information/"><u>Data-Secure Methods: Successfully Duplicating Windows 10 Dynamic Disks Without Losing Information</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/einfache-schritte-zum-wiederherstellen-von-daten-nach-einem-windows-1011-absturz/"><u>Einfache Schritte Zum Wiederherstellen Von Daten Nach Einem Windows 10/11-Absturz</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-sony-xperia-10-v-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Sony Xperia 10 V?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-error-1015-while-restoring-iphone-15-plus-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to fix error 1015 while restoring iPhone 15 Plus | Stellar</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-top-pick-of-vocal-transformation-apps-for-youtubers/"><u>In 2024, Top Pick of Vocal Transformation Apps for YouTubers</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-realme-11-5g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Realme 11 5G? Fixed | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/transform-your-photos-into-masterpieces-with-top-pixlr-techniques-for-2024/"><u>Transform Your Photos Into Masterpieces with Top Pixlr Techniques for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-corrected-clandestine-miniature-video-absence/"><u>[New] 2024 Approved Corrected Clandestine Miniature Video Absence</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-diving-into-the-world-of-youtube-search-engine-rankings/"><u>[New] 2024 Approved Diving Into the World of YouTube Search Engine Rankings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-polishing-your-youtube-projects-the-premiere-pro-way/"><u>[New] 2024 Approved Polishing Your YouTube Projects The Premiere Pro Way</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-ultimate-youtube-strategy-for-simultaneous-synchronization/"><u>[New] 2024 Approved The Ultimate Youtube Strategy for Simultaneous Synchronization</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-directors-academy-youtube-channels-for-cinematic-innovation/"><u>[Updated] 2024 Approved Directors Academy YouTube Channels for Cinematic Innovation</u></a></li>
+<li><a href="https://techtrends.techidaily.com/diy-tech-help-how-to-successfully-boot-windows-10-from-an-empty-hard-disk/"><u>DIY Tech Help: How to Successfully Boot Windows 10 From an Empty Hard Disk</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-factory-reset-ipad-or-apple-iphone-xs-max-without-icloud-password-or-apple-id-by-drfone-ios/"><u>How to Factory Reset iPad or Apple iPhone XS Max without iCloud Password or Apple ID?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-poco-c51-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Poco C51 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Samsung Galaxy S23 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-with-strategy-launching-an-online-dominant-gaming-channel/"><u>Start with Strategy Launching an Online Dominant Gaming Channel</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/vocal-clarity-macs-acoustic-secrets-for-2024/"><u>Vocal Clarity Mac's Acoustic Secrets for 2024</u></a></li>
 </ul></div>
 

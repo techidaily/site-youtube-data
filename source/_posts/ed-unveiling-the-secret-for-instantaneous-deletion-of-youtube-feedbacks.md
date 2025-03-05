@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unveiling the Secret for Instantaneous Deletion of Youtube Feedbacks"
-date: 2025-02-10T21:19:10.813Z
-updated: 2025-02-15T23:54:39.531Z
+date: 2025-02-28T05:25:18.447Z
+updated: 2025-03-04T23:25:53.347Z
 tags:
   - ai video
   - ai youtube
@@ -40,10 +40,6 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Delete YouTube Comments from Desktop?
 
@@ -92,10 +88,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -125,27 +117,15 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -174,16 +154,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/valuating-earnings-from-one-million-youtube-watches-for-2024/"><u>[New] Evaluating Earnings From One Million YouTube Watches for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-expert-techniques-for-acquiring-pristine-images-for-2024/"><u>[New] Expert Techniques for Acquiring Pristine Images for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-ignite-conversations-tactics-for-facebook-impact-for-2024/"><u>[New] Ignite Conversations Tactics for Facebook Impact for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nlock-youtube-placement-secrets-what-matters-most-in-2024/"><u>[New] Unlock YouTube Placement Secrets What Matters Most, In 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-how-to-efficiently-delete-unwanted-video-feedback/"><u>2024 Approved How to Efficiently Delete Unwanted Video Feedback</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/effortless-file-restoration-toolkit-complimentary/"><u>Effortless File Restoration Toolkit – Complimentary</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/how-to-see-someones-location-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>How to See Someones Location on Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-navigating-to-the-shadows-of-youtube-videos/"><u>In 2024, Navigating to the Shadows of YouTube Videos</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-pioneering-the-future-of-video-conferencing-with-google-meet-to-youtube/"><u>In 2024, Pioneering the Future of Video Conferencing with Google Meet to YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-the-ultimate-guide-to-finding-the-most-impactful-keywords-for-your-videos/"><u>In 2024, The Ultimate Guide to Finding the Most Impactful Keywords for Your Videos</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/openai-denies-decline-in-chatgpts-intelligence/"><u>OpenAI Denies Decline in ChatGPT's Intelligence</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-precision-trimming-elevating-your-youtube-video-quality/"><u>[New] In 2024, Precision Trimming Elevating Your YouTube Video Quality</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/avigating-ad-blocking-in-chrome-firefox-android-and-ios-for-youtube/"><u>[New] Navigating Ad-Blocking in Chrome, Firefox, Android, & iOS for YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/hort-sensation-keywords-for-enhancing-video-shows-virality-for-2024/"><u>[New] Short Sensation Keywords for Enhancing Video Shows' Virality for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-get-rid-of-youtube-distractions-ad-blocking-on-chrome-firefox-and-ios/"><u>[Updated] 2024 Approved Get Rid of YouTube Distractions Ad-Blocking on Chrome, Firefox & iOS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-legal-steps-for-overcoming-a-youtube-copyright-strike-for-2024/"><u>[Updated] Legal Steps for Overcoming a YouTube Copyright Strike for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-free-yourself-from-cash-for-sound-the-best-18-audio-crackers-on-youtube/"><u>2024 Approved Free Yourself From Cash for Sound The Best 18 Audio Crackers on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-handling-haters-strategies-for-content-creators/"><u>2024 Approved Handling Haters Strategies for Content Creators</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-windows-color-rich-video-landscape/"><u>2024 Approved Navigating Windows' Color-Rich Video Landscape</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/comment-gerer-la-panne-erreur-disque-dur-solide-ssd-dans-les-ordinateurs-portables-hp-les-5-etapes-a-suivre/"><u>Comment Gérer La Panne 'ERREUR DISQUE DUR SOLIDE' (SSD) Dans Les Ordinateurs Portables HP : Les 5 Étapes À Suivre</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-can-i-remove-built-in-iphone-apps-from-my-device/"><u>How Can I Remove Built-In iPhone Apps From My Device?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-xiaomi-redmi-a2plus-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Xiaomi Redmi A2+ without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/mp4xspf-xspf/"><u>MP4にするためのXSPFファイル変換ガイド - XSPFを開けない問題</u></a></li>
+<li><a href="https://win-blog.techidaily.com/online-free-oa-movavi-au/"><u>Online Free OA 편집 - Movavi: 원격 통신을 위한 AU 바이트 대조</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ps4-viewing-experience-boosted-with-delay-free-streaming-techniques/"><u>PS4 Viewing Experience Boosted with Delay-Free Streaming Techniques</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-veritable-value-of-voice-podcasters-earnings-analysis-for-2024/"><u>The Veritable Value of Voice Podcasters’ Earnings Analysis for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ideo-sharing-triad-vimeo-vs-youtube-and-dailymotion-showdown-for-2024/"><u>The Video Sharing Triad Vimeo vs YouTube & Dailymotion Showdown for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eling-the-secrets-of-viral-content-creation/"><u>Unraveling the Secrets of Viral Content Creation</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Life's Journey Videos  Creating Authentic Online Experiences\""
-date: 2025-02-11T17:54:40.492Z
-updated: 2025-02-15T21:50:42.733Z
+date: 2025-03-03T03:27:19.682Z
+updated: 2025-03-04T21:16:01.943Z
 tags:
   - ai video
   - ai youtube
@@ -58,10 +58,6 @@ On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebrat
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
@@ -74,25 +70,13 @@ Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q 
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 9\.  25 Facts About Me Tag
 
@@ -105,10 +89,6 @@ YouTube live videos are probably the best ways to interact and share your story 
 ## Custom Your Video with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -133,22 +113,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/rchitects-of-online-marvel-adventures/"><u>[New] Architects of Online Marvel Adventures</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/iy-audio-excellence-no-mic-necessary-for-2024/"><u>[New] DIY Audio Excellence No Mic Necessary for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-solo-mastery-how-to-turn-off-apex-legends-cross-play-feature/"><u>[Updated] 2024 Approved Solo Mastery How to Turn Off Apex Legends' Cross-Play Feature</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-astronomys-best-showcase-10-prime-hd-sky-archives/"><u>[Updated] Astronomy's Best Showcase - 10 Prime HD Sky Archives</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-ideal-audio-transformer-devices-for-youtube-experts-for-2024/"><u>[Updated] Ideal Audio Transformer Devices for YouTube Experts for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-fixed-youtube-shorts-lacking-in-sight/"><u>[Updated] In 2024, Fixed YouTube Shorts Lacking in Sight</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-youtube-video-links-made-better-with-desktop-and-mobile-timestamping-for-2024/"><u>[Updated] YouTube Video Links Made Better with Desktop & Mobile Timestamping for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-cultivating-a-positive-mindset-against-cyberbullying/"><u>2024 Approved Cultivating a Positive Mindset Against Cyberbullying</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-joining-flv-files-a-step-by-step-guide/"><u>2024 Approved Joining FLV Files A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-key-tactics-for-identifying-potential-youtube-co-stars/"><u>2024 Approved Key Tactics for Identifying Potential YouTube Co-Stars</u></a></li>
-<li><a href="https://win-unique.techidaily.com/comment-reprendre-le-controle-de-vos-fichiers-manquants-sur-un-ssd-externe-guide-pratique/"><u>Comment Reprendre Le Contrôle De Vos Fichiers Manquants Sur Un SSD Externe : Guide Pratique</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/decoding-windows-past-a-step-by-step-to-inspect-and-clean-activities/"><u>Decoding Windows' Past: A Step-by-Step to Inspect and Clean Activities</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-latest-realtek-rtl8188cu-wireless-network-adapter-driver-for-windows-10-and-7/"><u>Get the Latest Realtek RTL8188CU Wireless Network Adapter Driver for Windows 10 & 7</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Xiaomi Redmi K70E? | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-stepwise-approach-to-exceptional-gopro-footage/"><u>In 2024, Stepwise Approach to Exceptional GoPro Footage</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/including-third-party-storage-on-file-explorer/"><u>Including Third-Party Storage on File Explorer</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/the-essential-steps-to-compress-youtube-video-spaces/"><u>The Essential Steps to Compress YouTube Video Spaces</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-comprehensive-codes-of-conduct-for-the-yt-community/"><u>[New] 2024 Approved Comprehensive Codes of Conduct for the Yt Community</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-revisiting-the-golden-age-of-cinema-video-tutorials/"><u>[New] 2024 Approved Revisiting the Golden Age of Cinema Video Tutorials</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-sidestep-green-screen-gaffes-your-essential-mac-fix-guide/"><u>[New] 2024 Approved Sidestep Green Screen Gaffes Your Essential Mac Fix Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-6-best-gopro-helmet-mounts-and-how-to-use-them/"><u>[New] 6 Best GoPro Helmet Mounts and How to Use Them</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-step-by-step-approach-to-ad-revenue-in-youtube-videos/"><u>[New] A Step-by-Step Approach to Ad Revenue in YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-directing-content-destination-from-imovie-files-to-youtube-platform-for-2024/"><u>[New] Directing Content Destination From iMovie Files To YouTube Platform for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-aerial-capture-face-off-dji-mavic-2-vs-hero6-black/"><u>[New] In 2024, Aerial Capture Face-Off DJi Mavic 2 vs Hero6 Black</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-minecraft-enthusiasts-blueprint-6-essential-recordings-strategies-for-2024/"><u>[New] The Minecraft Enthusiast's Blueprint 6 Essential Recordings Strategies for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-streamline-your-gaming-with-xbox-screen-recorders/"><u>[Updated] 2024 Approved Streamline Your Gaming with Xbox Screen Recorders</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-out-the-vibes-of-your-channel-top-10-online-artists-unite/"><u>Bring Out the Vibes of Your Channel Top 10 Online Artists Unite</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-obtain-the-newest-driver-updates-for-hp-printers-compatible-with-windows-11/"><u>How to Obtain the Newest Driver Updates for HP Printers Compatible with Windows 11</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-6plus-software-choices-download-youtube-music-as-mp3-for-iphone-users/"><u>In 2024, 6+ Software Choices Download YouTube Music as MP3 for iPhone Users</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-smooth-and-swift-designing-your-best-thumbnails/"><u>In 2024, Smooth & Swift Designing Your Best Thumbnails</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-unanswered-calls-a-guide-for-samsung-galaxy-watch-users/"><u>Troubleshooting Unanswered Calls: A Guide for Samsung Galaxy Watch Users</u></a></li>
 </ul></div>
 

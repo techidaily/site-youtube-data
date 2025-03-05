@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Learn to Turn Comments On or Off on YouTube Easily"
-date: 2025-01-30T07:23:32.194Z
-updated: 2025-02-04T19:12:35.480Z
+date: 2025-03-04T02:03:53.090Z
+updated: 2025-03-05T08:32:49.938Z
 tags:
   - ai video
   - ai youtube
@@ -34,10 +34,6 @@ Keeping all these points in mind, the following sections explain **how to enable
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
@@ -79,10 +75,6 @@ Back on the **YouTube Studio** page, click **Content** from the left pane. From 
 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **Additional Info about Comments Options**
 
 The four options that become available when you allow the comments on your YouTube channel along with their meaning are:
@@ -123,15 +115,7 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -163,10 +147,6 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -188,20 +168,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-10-best-sites-to-download-free-slideshow-templates/"><u>[New] 2024 Approved 10 Best Sites to Download Free Slideshow Templates</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/harting-success-with-youtube-income-streams-for-2024/"><u>[New] Charting Success with YouTube Income Streams for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-achieve-financial-insight-the-simple-three-steps-to-assess-youtube-earning-potential/"><u>[Updated] Achieve Financial Insight The Simple Three Steps To Assess YouTube Earning Potential</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-fast-fixes-for-chaotic-youtube-list-ordering-for-2024/"><u>[Updated] Fast Fixes for Chaotic YouTube List Ordering for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-supreme-audiovisual-hints-pack/"><u>2024 Approved Supreme Audiovisual Hints Pack</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-the-most-effective-7-apps-for-blocking-android-web-ads/"><u>2024 Approved The Most Effective 7 Apps for Blocking Android Web Ads</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-your-ideal-vr-gear-selection-would-you-prefer-the-ease-of-mobile-or-tethered-setup/"><u>2024 Approved Unveiling Your Ideal VR Gear Selection Would You Prefer the Ease of Mobile or Tethered Setup?</u></a></li>
-<li><a href="https://article-files.techidaily.com/cutting-edge-title-generator-for-online-sessions/"><u>Cutting-Edge Title Generator for Online Sessions</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/diagnose-and-fix-gpu-issues-with-yl-softwares-comprehensive-guide-to-troubleshooting/"><u>Diagnose & Fix GPU Issues with YL Software's Comprehensive Guide to Troubleshooting</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-the-issue-of-non-functional-right-click-on-your-mouse-in-windows-10/"><u>Fixing the Issue of Non-Functional Right-Click on Your Mouse in Windows 10</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/data-to-drama-utilizing-google-trends-in-video-planning/"><u>From Data to Drama Utilizing Google Trends in Video Planning</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-the-ultimate-list-watching-nba-in-real-time/"><u>In 2024, The Ultimate List Watching NBA in Real-Time</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-contacts-from-nord-3-5g-by-fonelab-android-recover-contacts/"><u>Possible solutions to restore deleted contacts from Nord 3 5G.</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolved-fixes-implemented-to-address-deathloops-freezing-issues-on-pc/"><u>Resolved: Fixes Implemented to Address Deathloop's Freezing Issues on PC</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/king-the-potential-of-monetized-vlogs/"><u>Unlocking the Potential of Monetized Vlogs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-boredom-be-gone-find-joy-with-these-top-15-humorists/"><u>[New] 2024 Approved Boredom Be Gone Find Joy with These Top 15 Humorists</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-quantifying-the-fortune-of-mr-beast/"><u>[New] 2024 Approved Quantifying the Fortune of Mr. Beast</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-top-8-proven-video-growth-and-promotion-strategies/"><u>[New] 2024 Approved Top 8 Proven Video Growth & Promotion Strategies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-youtube-shorts-creating-flawless-5-second-videos/"><u>[New] 2024 Approved YouTube Shorts Creating Flawless 5-Second Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/armonious-hubs-your-guide-to-posting-audio-on-youtube/"><u>[New] Harmonious Hubs Your Guide to Posting Audio on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-uncover-11-free-effective-youtube-naming-solutions/"><u>[Updated] In 2024, Uncover 11 Free, Effective YouTube Naming Solutions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamlining-your-monetization-mastering-youtube-adsense/"><u>[Updated] Streamlining Your Monetization Mastering YouTube AdSense</u></a></li>
+<li><a href="https://windows11.techidaily.com/a-stepwise-guide-to-banishing-the-onedrive-icon-from-explorer/"><u>A Stepwise Guide to Banishing the OneDrive Icon From Explorer</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-8-best-mirrorless-cameras-vloggers-should-know/"><u>In 2024, 8 Best Mirrorless Cameras Vloggers Should Know</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-peak-performance-pros-favorite-4k-dslr-shoulder-rigs/"><u>In 2024, Peak Performance Pro's Favorite 4K DSLR Shoulder Rigs</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-top-12-game-choices-for-the-ultimate-pc-clicking-journey/"><u>In 2024, Top 12 Game Choices for the Ultimate PC Clicking Journey</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/remove-all-preferred-songs-on-spotify-a-simple-detailed-tutorial/"><u>Remove All Preferred Songs On Spotify: A Simple, Detailed Tutorial</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-smart-the-top-10-channel-selection-for-history-buffs-for-2024/"><u>Study Smart The Top 10 Channel Selection for History Buffs for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-complete-playbook-for-configuring-and-evaluating-in-stream-ads-on-facebook-for-2024/"><u>The Complete Playbook for Configuring and Evaluating In-Stream Ads on Facebook for 2024</u></a></li>
 </ul></div>
 

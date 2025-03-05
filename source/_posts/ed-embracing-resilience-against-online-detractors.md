@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Embracing Resilience Against Online Detractors"
-date: 2025-01-30T17:38:12.217Z
-updated: 2025-02-05T02:15:16.293Z
+date: 2025-03-03T08:00:17.833Z
+updated: 2025-03-04T21:17:58.419Z
 tags:
   - ai video
   - ai youtube
@@ -25,10 +25,6 @@ thumbnail: https://thmb.techidaily.com/98f34ca3fe8cce60e4b7bdc2a18ea2c36cd4a116d
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -58,10 +54,6 @@ thumbnail: https://thmb.techidaily.com/98f34ca3fe8cce60e4b7bdc2a18ea2c36cd4a116d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -83,22 +75,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-expert-psd-text-framing/"><u>[New] 2024 Approved Expert PSD Text Framing</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-mastering-youtubes-short-form-content-key-tips-revealed/"><u>[New] In 2024, Mastering YouTube's Short-Form Content Key Tips Revealed</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-merging-youtube-with-imovie-a-soundtrack-journey/"><u>[New] In 2024, Merging Youtube with iMovie A Soundtrack Journey</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ound-sanitization-cleaning-up-your-online-footage-for-2024/"><u>[New] Sound Sanitization Cleaning Up Your Online Footage for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-making-text-dance-2-creative-animation-strategies/"><u>[Updated] 2024 Approved Making Text Dance 2 Creative Animation Strategies</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-boost-your-budget-a-straightforward-triple-step-method-to-monitor-youtube-revenue/"><u>[Updated] Boost Your Budget A Straightforward Triple-Step Method to Monitor YouTube Revenue</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-step-up-vfx-game-discover-these-8-sites-for-free-backdrops-and-footage/"><u>[Updated] In 2024, Step Up VFX Game - Discover These 8 Sites for FREE Backdrops & Footage</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-minute-video-crafters/"><u>[Updated] Minute Video Crafters</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-understanding-the-latest-display-technology-in-huawei-p10/"><u>[Updated] Understanding the Latest Display Technology in Huawei P10</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/like-a-pro-10-must-know-tips-for-newbies/"><u>Edit Like a Pro 10 Must-Know Tips for Newbies</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/fixes-and-solutions-how-to-resolve-non-responsive-spotify-issues-on-pc/"><u>Fixes & Solutions: How to Resolve Non-Responsive Spotify Issues on PC</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ly-earnings-potential-on-youtube/"><u>Monthly Earnings Potential on YouTube</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/strategies-for-penning-persuasive-vlogger-content-for-2024/"><u>Strategies for Penning Persuasive Vlogger Content for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-most-effective-thermal-compounds-for-computers-rankings-after-extensive-evaluation-of-90-products/"><u>The Most Effective Thermal Compounds for Computers - Rankings After Extensive Evaluation of 90 Products</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/toms-tech-insights-ultimate-guide-to-computer-components/"><u>Tom's Tech Insights: Ultimate Guide to Computer Components</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/top-10-freefire-game-hacks-for-youtube-gamers-for-2024/"><u>Top 10 FreeFire Game Hacks for YouTube Gamers for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/al-studio-compiling-the-best-dj-visuals-for-download-for-2024/"><u>Virtual Studio Compiling the Best DJ Visuals for Download for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-digital-domain-decisions-short-form-content/"><u>[New] 2024 Approved Digital Domain Decisions Short-Form Content</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-expert-insights-into-crafting-dynamic-youtube-shorts-templates/"><u>[New] 2024 Approved Expert Insights Into Crafting Dynamic YouTube Shorts Templates</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-game-developers-top-recording-tools/"><u>[New] 2024 Approved Game Developers' Top Recording Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-streamlining-your-youtube-earnings-post-monetization-processes/"><u>[New] 2024 Approved Streamlining Your YouTube Earnings Post-Monetization Processes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-unlocking-youtube-success-mastering-the-art-of-shorts-thumbnails/"><u>[New] 2024 Approved Unlocking YouTube Success Mastering the Art of Shorts Thumbnails</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-transform-viewers-criticism-into-content-enhancement/"><u>[Updated] How to Transform Viewers' Criticism Into Content Enhancement</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-livestream-grabber-by-fb-for-2024/"><u>[Updated] LiveStream Grabber by FB for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1-mastering-color-grading-techniques-in-movavi-video-editing-software/"><u>1. Mastering Color Grading Techniques in Movavi Video Editing Software</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-mastering-clear-sound-recording-without-mic-techniques/"><u>2024 Approved Mastering Clear Sound Recording Without Mic Techniques</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-unlocking-video-excellence-on-tiktok-through-effective-templates-use/"><u>2024 Approved Unlocking Video Excellence on TikTok Through Effective Templates Use</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/guide-transferring-data-from-restored-edb-mailboxes-to-active-exchange-servers-via-video-tutorial/"><u>Guide: Transferring Data From Restored EDB Mailboxes to Active Exchange Servers via Video Tutorial</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mastering-sound-top-10-microphones/"><u>Mastering Sound Top 10 Microphones</u></a></li>
+<li><a href="https://blog-min.techidaily.com/resolving-common-plex-streaming-issues-fix-guide-for-error-codes-like-s1001-and-conversion-failures/"><u>Resolving Common Plex Streaming Issues: Fix Guide for Error Codes Like S1001 and Conversion Failures</u></a></li>
 </ul></div>
 

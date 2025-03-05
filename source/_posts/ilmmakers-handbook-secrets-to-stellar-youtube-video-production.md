@@ -1,7 +1,7 @@
 ---
 title: "\"The Filmmaker's Handbook  Secrets to Stellar YouTube Video Production\""
-date: 2025-02-03T19:46:01.792Z
-updated: 2025-02-05T02:20:29.548Z
+date: 2025-02-27T01:42:55.248Z
+updated: 2025-03-04T20:56:28.639Z
 tags:
   - ai video
   - ai youtube
@@ -27,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/5a4d47d2bc28159ccd90a432752164871c06ebbca
  We have mentioned before about [the equipment you should have to start your YouTube video shooting](https://tools.techidaily.com/wondershare/filmora/download/), however, being methodical in your approach to the video making process and knowing exactly what and where you are going to stage and record will increase the quality of the content. Focus on the technical aspects of your YouTube video before you actually start shooting and strive to be well prepared for all the challenges a day on the set may bring.
 
  These and other useful tips may help you make better videos for your YouTube channel, so let's explore different ways of improving your video making skills.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 10 Tips for Shooting Better YouTube Videos
 
@@ -64,10 +60,6 @@ thumbnail: https://thmb.techidaily.com/5a4d47d2bc28159ccd90a432752164871c06ebbca
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Posting vertically oriented videos to your YouTube channel will make you look unprofessional because portrait mode is never used for capturing videos. YouTubers who record their videos with Smartphones are more likely to fall into this trap, but all you need to do to avoid this is remember to hold the device horizontally.
 
  By switching to portrait mode, you'll be cropping the frame in a way, so you might unknowingly end up removing parts of the shot you wanted to record.
@@ -84,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/5a4d47d2bc28159ccd90a432752164871c06ebbca
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 8. Keep The Shot in Focus
 
  You can always keep the shot in focus by simply enabling the autofocus feature, but if you do so you won't be able to control where the focus is going to be. Pulling focus manually is an art that takes years to master, and you have to keep practicing it as much as you can in order to become good at it.
@@ -97,10 +85,6 @@ thumbnail: https://thmb.techidaily.com/5a4d47d2bc28159ccd90a432752164871c06ebbca
 #### 9. Put The Camera on a Tripod
 
 ![Camera tripod ](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The footage you produce should be smooth and free of camera shakes. All video cameras pick up vibrations easily, so even the slightest movement or impact can ruin a shot. Putting the camera on a tripod is one of the best ways to stabilize the shot and avoid camera shaking.
 
@@ -124,10 +108,6 @@ thumbnail: https://thmb.techidaily.com/5a4d47d2bc28159ccd90a432752164871c06ebbca
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -149,21 +129,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-illustration-ingenuity-3d-text-magic/"><u>[New] 2024 Approved Illustration Ingenuity 3D Text Magic</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-guide-to-supercharged-video-engagement-with-youtube-notes/"><u>[New] In 2024, Guide to Supercharged Video Engagement with YouTube Notes</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-how-to-capture-and-share-your-games-online/"><u>[New] In 2024, How to Capture and Share Your Games Online</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-unlocking-mobile-content-guide-to-establishing-easy-business-and-personal-channels/"><u>[New] In 2024, Unlocking Mobile Content Guide to Establishing Easy Business & Personal Channels</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ntegrating-chroma-keying-into-your-edit-suite-for-2024/"><u>[New] Integrating Chroma Keying Into Your Edit Suite for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-shortening-success-youtubes-leading-link-minimizers-compared/"><u>[Updated] 2024 Approved Shortening Success YouTube's Leading Link Minimizers Compared</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-ultimate-list-of-8-youtube-mistakes-to-evade/"><u>[Updated] 2024 Approved The Ultimate List of 8 Youtube Mistakes to Evade</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-30-metaverse-phenomena-making-your-mark-with-memes/"><u>[Updated] 30 Metaverse Phenomena Making Your Mark with Memes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-diy-delights-in-motion-personalized-animation-artistry-for-2024/"><u>[Updated] DIY Delights in Motion Personalized Animation Artistry for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-get-official-passport-photo-online-download-and-print-your-portraits-for-free/"><u>[Updated] Get Official Passport Photo Online – Download & Print Your Portraits for FREE</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-maximize-your-vr-journey-oculus-rift-readiness/"><u>[Updated] In 2024, Maximize Your VR Journey Oculus Rift Readiness</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-legal-steps-for-overcoming-a-youtube-copyright-strike/"><u>[Updated] Legal Steps for Overcoming a YouTube Copyright Strike</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/a-step-by-step-aspect-ratio-guide-for-youtube-creators-for-2024/"><u>A Step-by-Step Aspect Ratio Guide for YouTube Creators for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
-<li><a href="https://windows11.techidaily.com/decoding-the-absence-of-drive-letters-problems-and-cures-for-win-users/"><u>Decoding the Absence of Drive Letters: Problems & Cures for Win Users</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/o-create-a-youtube-account/"><u>How to Create a YouTube Account</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-experts-choice-top-10-low-cost-sbd-applications/"><u>[New] 2024 Approved Expert's Choice Top 10 Low-Cost SBD Applications</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-facebooks-novelty-the-leading-five-new-features-unraveled/"><u>[New] 2024 Approved Facebook's Novelty The Leading Five New Features Unraveled</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-how-to-boost-your-youtube-revenue-from-mobile-a-comprehensive-guide/"><u>[New] 2024 Approved How to Boost Your YouTube Revenue From Mobile - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-multimedia-fabrication-zone/"><u>[New] 2024 Approved Multimedia Fabrication Zone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-securing-your-stake-in-youtubes-financial-future/"><u>[New] 2024 Approved Securing Your Stake in YouTube's Financial Future</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pro-tips-for-capturing-stunning-close-up-footage/"><u>[New] Pro Tips for Capturing Stunning Close-Up Footage</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-vivo-y200e-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/does-your-pc-comply-with-vanguards-essential-cpu-requirements/"><u>Does Your PC Comply with Vanguard's Essential CPU Requirements?</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-update-dell-xps-m4210-docking-station-drivers-with-one-click/"><u>Download & Update Dell XPS M4210 Docking Station Drivers with One Click</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/exploring-the-latest-features-of-movavi-video-suite-whats-fresh/"><u>Exploring the Latest Features of Movavi Video Suite: What's Fresh?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-voice-changer-software-for-youtube-videos-free-and-paid/"><u>Top 6 Voice Changer Software for Youtube Videos [Free & Paid]</u></a></li>
 </ul></div>
 

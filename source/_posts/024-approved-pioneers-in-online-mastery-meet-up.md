@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Pioneers in Online Mastery Meet-Up\""
-date: 2024-08-23T06:30:13.569Z
-updated: 2024-08-24T06:30:13.569Z
+date: 2025-02-28T23:48:00.015Z
+updated: 2025-03-05T07:55:19.759Z
 tags:
   - ai video
   - ai youtube
@@ -63,9 +63,6 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
@@ -78,26 +75,16 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -106,28 +93,19 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -136,8 +114,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/he-secret-to-viral-videos-get-the-best-thumbnail-size-guide-for-2024/"><u>[New] The Secret to Viral Videos? Get the Best Thumbnail Size Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-yielding-the-manual-to-merging-media-with-moolah/"><u>[New] YouTube Yielding The Manual to Merging Media with Moolah</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-coordinating-a-course-through-combined-youtube-watches/"><u>[Updated] 2024 Approved Coordinating a Course Through Combined YouTube Watches</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-free-youtube-intro-makers/"><u>[Updated] Best Free YouTube Intro Makers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-experts-pathway-navigating-fullscreen-realms-in-premiere-pro/"><u>[Updated] Expert's Pathway Navigating Fullscreen Realms in Premiere Pro</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-revenue-rising-the-essential-guide-for-youtubers/"><u>[Updated] Revenue Rising The Essential Guide for YouTubers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-channel-up-the-essential-guide-to-computer-and-mobile-video-upload/"><u>2024 Approved Channel Up The Essential Guide to Computer & Mobile Video Upload</u></a></li>
+<li><a href="https://extra-information.techidaily.com/abletons-art-of-softening-soundscapes-for-2024/"><u>Ableton's Art of Softening Soundscapes for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/of-the-best-cutting-edge-hiring-videos-1-10/"><u>Best of the Best Cutting-Edge Hiring Videos #1-10</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-a-thriving-biz-channel-proven-strategies-and-examples/"><u>Build a Thriving Biz Channel Proven Strategies and Examples</u></a></li>
+<li><a href="https://program-issues.techidaily.com/bypassing-the-wait-how-to-fix-continuous-loading-in-among-us-games/"><u>Bypassing the Wait: How to Fix Continuous Loading in Among Us Games</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/detailed-walkthrough-ipad-screen-recording-for-2024/"><u>Detailed Walkthrough IPad Screen Recording for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-insights-for-smooth-operation-of-win11-for-2024/"><u>Expert Insights for Smooth Operation of Win11 for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-realme-c53-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Realme C53</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-unleashing-the-power-of-youtube-finding-and-creating-partnerships/"><u>In 2024, Unleashing the Power of YouTube Finding and Creating Partnerships</u></a></li>
+<li><a href="https://techtrends.techidaily.com/teslas-robotaxi-unveiled-release-schedule-anticipated-pricing-and-features-revealed/"><u>Tesla's Robotaxi Unveiled: Release Schedule, Anticipated Pricing & Features Revealed</u></a></li>
+</ul></div>
 

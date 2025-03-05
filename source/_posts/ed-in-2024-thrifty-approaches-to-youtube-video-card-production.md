@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Thrifty Approaches to YouTube Video Card Production"
-date: 2025-02-14T04:10:36.338Z
-updated: 2025-02-15T23:51:46.852Z
+date: 2025-02-26T20:10:10.335Z
+updated: 2025-03-04T23:06:21.894Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,6 @@ thumbnail: https://thmb.techidaily.com/f68ad44dfce4596bff961c8c73128e503881dbfbd
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -77,10 +73,6 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -89,10 +81,6 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -129,10 +117,6 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -154,18 +138,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-artistic-additions-free-designs-for-youtube-crafting/"><u>[New] In 2024, Artistic Additions Free Designs for YouTube Crafting</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-find-out-the-best-8-youtube-engagement-tools/"><u>[New] In 2024, Find Out The Best 8 Youtube Engagement Tools</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-blending-audio-from-youtube-into-video-mediums/"><u>[Updated] 2024 Approved Blending Audio From YouTube Into Video Mediums</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-a-creators-primer-to-understanding-major-content-providers-for-2024/"><u>[Updated] A Creator's Primer to Understanding Major Content Providers for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-channel-expansion-sharing-your-show-across-30-platforms/"><u>2024 Approved Channel Expansion Sharing Your Show Across 30 Platforms</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/clearing-up-the-blank-page-mystery-in-printers/"><u>Clearing Up the Blank Page Mystery in Printers</u></a></li>
-<li><a href="https://win11.techidaily.com/enhancing-user-experience-powertoys-on-win11/"><u>Enhancing User Experience: PowerToys on Win11</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/youtube-names-generators-plus-how-to-brainstorm/"><u>Good YouTube Names Generators [+ How to Brainstorm]</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/ideal-3d-software-for-creating-animation-for-2024/"><u>Ideal 3D Software for Creating Animation for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-honor-x8b-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Honor X8b To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Poco M6 Pro 4G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-how-to-watch-deleted-youtube-videos-online-in-2-ways/"><u>In 2024, How to Watch Deleted YouTube Videos Online in 2 Ways</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-windows-ms-error-for-co-users/"><u>Overcoming Windows MS Error for Co-Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ow-to-search-comments-on-youtube-quickly/"><u>[New] How to Search Comments on YouTube Quickly?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-discover-the-best-11-no-fee-name-crafting-for-channels/"><u>[New] In 2024, Discover the Best 11 No-Fee Name Crafting for Channels</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-pricing-guide-to-film-a-bands-music-visual/"><u>[New] In 2024, Pricing Guide to Film a Band's Music Visual</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/egal-boundaries-of-online-video-capturing-tools-for-2024/"><u>[New] Legal Boundaries of Online Video Capturing Tools for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-essential-steps-for-chromakey-magic/"><u>[Updated] 2024 Approved Essential Steps for Chromakey Magic</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-achieving-youtube-financial-goals-via-viewer-statistics/"><u>[Updated] Achieving Youtube Financial Goals via Viewer Statistics</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-solutions-for-when-your-usb-hdmi-connection-wont-connect/"><u>Expert Solutions for When Your USB-HDMI Connection Won't Connect</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-x-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-imdb-watchlists-in-kodi-the-ultimate-configuration-manual/"><u>Mastering IMDB Watchlists in Kodi: The Ultimate Configuration Manual</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-endorsed-methods-for-video-marketing-success/"><u>Top 8 Endorsed Methods for Video Marketing Success</u></a></li>
 </ul></div>
 
